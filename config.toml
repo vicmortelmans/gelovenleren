@@ -1,0 +1,41 @@
+baseURL = 'http://example.org/'
+languageCode = 'nl-nl'
+title = 'Geloven Leren'
+theme = 'hugo-tufte'
+uglyurls = false
+
+[permalinks]
+post = '/blog/:filename'
+page = '/page/:filename'
+portfolio = '/portfolio/:filename'
+
+[params]
+subtitle = 'Opinie en tools voor wie begaan is met het katholieke geloof'
+showPoweredBy = false
+twitter = 'vicmortelmans'
+facebook = 'alledaagsgeloven'
+copyrightHolder = 'info@gelovenleren.net'
+
+[taxonomies]
+  category = "categories"
+# -----------------------------------------------------------------------
+# Navigation menu 
+# -----------------------------------------------------------------------
+[[menu.nav]]
+  name = "Opinie"
+  pre = "<i class='fas fa-home la-lg'></i>"
+  weight = -110 
+  identifier = "artikels"
+  url = "/page/artikels/"
+[[menu.nav]]
+  name = "Tools"
+  pre = "<i class='fas fa-tools la-lg'></i>"
+  weight = -110 
+  identifier = "tools"
+  url = "/page/hulpmiddelen/"
+[[menu.nav]]
+  name = "Alledaags"
+  pre = "<i class='fas fa-dove la-lg'></i>"
+  weight = -100 
+  identifier = "alledaags"
+  url = "https://alledaags.gelovenleren.net/"

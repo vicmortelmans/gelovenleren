@@ -1,0 +1,13 @@
+---
+title: "De menswording is de samenvatting van alle geheimen"
+date: "2020-10-31"
+categories: 
+  - "gouden-boek"
+coverImage: "unnamed-file-236.jpeg"
+---
+
+De tijd laat mij niet toe, uitvoerig in te gaan op de voortreffelijkheid en grootheid van dit geheim van Jezus, levend en heersend in Maria ofwel van de heilige menswording. Daarom zal ik mij in korte bewoordingen slechts tot het volgende bepalen. Dit is het eerste en verhevenste, het meest verborgen en minst bekende mysterie van Jezus Christus. Hierin heeft hij, samen met Maria en verborgen in haar schoot alle voorbeschikten uitverkoren. Daarom wordt de schoot van Maria door de heiligen genoemd: Aula sacramentorum: zaal van Gods geheimen. In dit mysterie heeft Hij reeds alle andere geheimen van zijn leven samengevat door het feit, dat Hij ze toen al aanvaardde: Jesus ingrediens mundum dixit: Ecce venio ut faciam voluntatem tuam enzovoort: Jezus heeft bij zijn komst in de wereld gezegd: Zie, ik kom om uw wil te doen. De menswording is dus de samenvatting van alle geheimen, want ze bevat de wil en de genade ervan. Tenslotte is het de troon van Gods barmhartigheid, vrijgevigheid en glorie. De troon van zijn barmhartigheid is het met betrekking tot ons. Immers wij kunnen in dit geheim alleen maar door Maria tot Jezus naderen. Slechts door haar bemiddeling is het ons mogelijk Hem te zien en aan te spreken. Welnu, Jezus verhoort zijn lieve Moeder altijd. Er is dus ook altijd voor ons, arme zondaars, genade en barmhartigheid te verkrijgen.
+
+Adeamus ergo cum fiducia ad tronum gratiae: Gaan wij vol vertrouwen naar de troon van glorie. De troon van zijn vrijgevigheid is het ten opzichte van Maria, want Jezus, de nieuwe Adam, heeft tijdens zijn verblijf in dit ware aards paradijs er zo veel verborgen wonderen verricht, dat engelen noch mensen ze kunnen begrijpen. Daarom wordt Maria door de heiligen de heerlijkheid Gods genoemd: Magnificentia Dei, alsof Hij alleen reeds in Maria al zijn pracht manifesteerde: Solummodo ibi magnificus Dominus. De troon van glorie is het voor de hemelse Vader. In Maria immers heeft Jezus de toorn van zijn Vader tegen het mensdom volkomen gestild. Daar heeft Hij de eer volledig hersteld, hem door de zonde ontroofd. Hij heeft er de Vader door het offer van zijn wil en van zichzelf groter eer bewezen, dan door alle mogelijke offers van het Oude Verbond. Daar heeft Hij de Vader tenslotte een oneindige glorie geschonken, zoals deze nog nooit van mensen ontvangen had.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

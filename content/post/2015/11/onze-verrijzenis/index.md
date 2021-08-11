@@ -1,0 +1,22 @@
+---
+title: "Onze verrijzenis"
+date: "2015-11-05"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 367\. Donderdag na de drie en twintigste Zondag na Pinksteren
+
+In het epistel van de Zondag lezen wij: „Vanuit de hemel verwachten wij onze Zaligmaker Jezus Christus, die ons vernederd lichaam zal veranderen zodat het aan zijn verheerlijkt lichaam gelijkvormig wordt, door de kracht waarmee Hij alle dingen aan zich kan onderwerpen” ( Phil.3, 20. 21 ).
+
+1\. Een van de geopenbaarde waarheden die te weinig leven in het christelijk bewustzijn, is het zo troostrijke leerstuk van de verrijzenis des vleses. De meeste christenen bekommeren zich erg weinig om het leven van het hiernamaals en voorzover zij daaraan denken, is het gewoonlijk in vage voorstellingen van eeuwige beloning of straf. En die christenen welke hun geloof meer bewust beleven, vergeestelijken het hemelse loon tot een onlichamelijk bestaan in de tegenwoordigheid Gods. Onze opstanding uit de doden is voor de meesten een onbelangrijk aanhangsel van de geloofsbelijdenis geworden. Zo was het niet altijd. Wie maar enigermate met de geschriften der apostelen vertrouwd is, weet dat de verrijzenis van het lichaam voor hen een van de kernstukken van ons geloof was. De tekst uit de brief aan de Philippenzen die hierboven werd aangehaald, is er een uit vele. Het woord Gods blijft voor alle tijden opperste regel des geloofs en bron van openbaring.
+
+De heilige Schrift leert dat onze zaligheid niet voltooid is vóór de verrijzenis des vleses waardoor de hele mens, ziel en lichaam, verheerlijkt en onsterfelijk met Christus zal zijn. Want Jezus Christus blijft ons enig en volkomen model. Zoals de zedelijk-geestelijke gelijkvormigheid met Jezus de heiligheid uitmaakt, zo zal ook de mens zijn eeuwige bestemming niet hebben bereikt, voor hij een zo volkomen mogelijke gelijkvormigheid heeft verworven met de verheerlijkte Zaligmaker. Het volmaakte zoonschap, zegt Paulus , wordt eerst ons deel door de volledige verlossing ook van het lichaam ( Rom.8, 23 ). De _mens_ Jezus Christus zetelt verheerlijkt aan Gods rechterhand. Hij is ons leven nog verborgen in God ( Kol.3, 3 ). Eenmaal zal Hij verschijnen om alle dingen te voltooien en, eerstgeborene onder vele broeders, ons geheel doen gelijken op het volmaakte Beeld van God dat de enige Zoon is ( Rom.8, 29 ).
+
+2\. Deze leer wekt niet alleen een troostrijke verwachting voor de toekomst, zij werpt ook licht op onze tegenwoordige toestand. Paulus spreekt hier en elders over ons _vernederd_ lichaam. Wij weten allen wat hij bedoelt: ziekte, pijn en dood, maar ook begeerlijkheid, zelfzucht, zonde; alle ellende van Eva's kinderen ligt in dit woord, lichaam des doods, vervat ( Rom.7, 24 ). De apostel denkt er niet aan deze aardse miserie te ontkennen, te ontvluchten of te idealiseren. Hij heeft een beter geneesmiddel voor onze wanhoop dan de vlucht uit de werkelijkheid. De Zoon Gods zelf heeft ons vlees aangenomen en in dit lichaam onze zonde gedragen en door zijn dood, door het offer van zijn lichaam, ons verlost. Hij heeft datzelfde lichaam, vlees van ons vlees, onsterfelijk en verheerlijkt doen verrijzen, Hij zetelt aan Gods rechterhand en zal wederkeren om ons deel te geven aan zijn lot.
+
+Zeer practische besluiten mogen wij uit deze leer trekken voor de tijd van ons aardse leven. Eerbied voor het lichamelijke: wat God niet heeft versmaad, hoe zouden wij dat mogen minachten? Kracht om de zonde te overwinnen: het lichaam is niet bestemd voor de ontucht, maar het behoort aan de Heer en de Heer aan het lichaam; weet ge niet dat uw lichamen ledematen zijn van Christus? ( 1 Kor.6, 13. 15 ) Edelmoedigheid in het lijden: ik bezweer u, broeders, bij de barmhartigheid Gods uw lichamen aan te bieden als een levende offerande, heilig en welgevallig aan God, als een geestelijke eredienst ( Rom.12, 1 ). Thans verheug ik mij dat ik voor u lijden mag en aanvullen wat in mijn vlees aan de Christus-kwellingen ontbreekt, ten bate van zijn lichaam, de Kerk ( Kol.1, 24 ). En al wat ons zwak en ellendig maakt en wat als „de doorn in het vlees” in de zuiver menselijke orde geen functie kan vervullen, vindt in Christus zijn zin, „want in de zwakheid komt de Kracht tot haar recht” ( 2 Kor.12, 9 ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

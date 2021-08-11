@@ -1,0 +1,20 @@
+---
+title: "De ware eredienst"
+date: "2015-03-11"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [128\. Woensdag na de Derde Zondag van de vasten](http://ift.tt/1xbGZZX)
+
+In het evangelie van heden geselt de Heer de onoprechte en baatzuchtige vroomheid. De Schriftgeleerden hadden het goddelijke gebod van de ouderliefde zodanig geïnterpreteerd, dat het in bepaalde gevallen louter een formaliteit was geworden. Het „eer uw vader en uw moeder” van de decaloog hield (en houdt) uiteraard ook in, dat de kinderen, zo nodig, hun behoeftige ouders zouden ondersteunen. Kinderen, die zich aan deze plicht wilden onttrekken, behoefden, volgens de leer der Schriftgeleerden, over de goederen, die hun ouders ten dienste zouden kunnen staan, slechts de Korban -, de gelofteformule uit te spreken. Men maakte daarmee deze goederen tot een heilige, voor God bestemde gave, aan het profaan gebruik onttrokken, die niet voor het onderhoud van vader en moeder mocht worden bestemd. Het ergerlijkste van dit alles was, dat, naar het schijnt, het niet eens nodig werd geacht de gelofte ook in de daad om te zetten door bijvoorbeeld die goederen metterdaad aan de priesters of aan de tempelschatkist af te dragen. Ook waar dit wel gebeurde, werd de rangorde der waarden omgekeerd, daar de plicht de ouders te ondersteunen de voorrang heeft op de niet strikt voorgeschreven daden van godsdienstigheid. En Jezus sprak met gloeiende verontwaardiging tot de Farizeeën en Schriftgeleerden: „Zo hebt gij het woord Gods van kracht beroofd terwille van uw eigen overlevering. Huichelaars, terecht heeft Isaias over u geprofeteerd zeggende: „Dit volk eert Mij met de lippen, maar hun hart is verre van Mij” ” ( Mt. 15, 6-8 ).
+
+1\. Waarom was de Heer zo verontwaardigd? Omdat de godsdienst misbruikt werd voor egoïstische doeleinden. Onder het mom van vroomheid kon men het zich veroorloven doodgewoon hardvochtig en zelfzuchtig te blijven. De ergernis bestond vooral hierin, dat men niet onverbloemd egoïstisch handelde, dat de godsdienstigheid, de eer van God derhalve, werd benut om menselijke kwaadaardigheid met een valse schijn te bedekken. _Dit is de grote ergernis._ Dat de godsdienst in de ogen van eerlijke en rechtvaardige mensen wordt ontluisterd, niet door menselijke zwakheid, maar door huichelarij en opzettelijke berekening. Jezus heeft door zijn prediking, zoals wij bijvoorbeeld in de Bergrede kunnen lezen, de religie een oneindige ernst en diepte gegeven door haar onverbrekelijk te verbinden met de zedelijkheid en de mensenliefde. Hij heeft duidelijker dan wie ook geleerd, dat men God niet kan eren, als men onrechtvaardig of liefdeloos is, dat de cultus geen zin heeft, ja een gruwel wordt in Gods oog, als zijn bedienaren uit lafheid of eigenbelang onrecht, verdrukking en haat tolereren.
+
+2\. Het moet ons allen duidelijk zijn, dat wat Jezus in het evangelie gesproken heeft, niet alleen tot de Farizeeën van zijn tijd is gezegd. Het evangelie is eeuwig, zoals ook de mens en zijn boosheid en baatzucht eeuwig zijn. Het wezenlijke farizeïsme is van alle tijden. Het bestaat in de ergerlijke koppeling van vroomheid, dat is van de gebaren en vormen, van de leuzen en formules van de godsdienst, met de dingen van het vlees, dat is met financiële baatzucht, met het sauveren van wereldse reputaties, met de strijd van belangen en van macht, met het in stand houden van onrecht en verdrukking.
+
+Hieruit volgt, dat de christenen zich altijd opnieuw in dit punt hebben te onderzoeken, niet alleen als afzonderlijke personen maar ook als leden van de maatschappij waartoe zij behoren en waarvoor zij mede verantwoordelijk zijn. „Barmhartigheid wil Ik en geen offerande” ( Mt. 8, 13 ). „Wanneer gij uw gave naar het altaar brengt en u daar herinnert, dat uw broeder iets tegen u heeft, laat uw gave dan vóór het altaar, ga u eerst met uw broeder verzoenen en kom en offer daarna uw gave” ( Mt. 5, 23-24 ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

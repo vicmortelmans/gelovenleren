@@ -1,0 +1,25 @@
+{{ $category := .Get 0 }}
+{{ range .Site.RegularPages }}
+  {{ if in .Params.categories $category }}
+      {{ partial "content.header.html" . }}
+      <p>
+        {{ if .Params.coverImage }}
+        <label
+          for="marginnote-{{.Page.File.UniqueID}}-0"
+          class="margin-toggle"
+          >&#8853;
+        </label>
+        <input
+          type="checkbox"
+          id="marginnote-{{.Page.File.UniqueID}}-0"
+          class="margin-toggle"
+        />
+        <span class="marginnote" style="text-align:right;"><a href="{{ .RelPermalink }}" style="background:none;"><img src="{{ .RelPermalink }}images/{{ .Params.coverImage }}" style="max-height:120px;margin-top:9px;"/></a></span>
+        {{ end }}
+        {{ .Summary }}
+      </p>
+      {{ if .Truncated }}
+      <p><a href="{{ .RelPermalink  }}">Verder lezen &rarr;</a></p>
+      {{ end  }}
+  {{ end }}
+{{ end }}

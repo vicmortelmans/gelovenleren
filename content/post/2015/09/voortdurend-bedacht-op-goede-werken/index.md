@@ -1,0 +1,20 @@
+---
+title: "Voortdurend bedacht op goede werken"
+date: "2015-09-16"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 317\. Woensdag na de Zestiende Zondag na Pinksteren
+
+„Wij bidden U, Heer, dat uw genade ons altijd moge voorkomen en volgen en dat zij ons verlene voortdurend op goede werken bedacht te zijn” (oratie van de Zondag).
+
+1\. _Altijd_ voorkomen en volgen, _voortdurend_ bedacht zijn. De Kerk die de geest bezit van haar goddelijke Meester, wil dat wij diep overtuigd zijn van de onvervangbare kostbaarheid van onze aardse levenstijd. De christelijke tijd is een voor ieder van ons afgepaste schat waarvan geen fractie mag verloren gaan. Uren doorgebracht in luiheid of ijdel vermaak, tijd die niet „nuttig” is voor Christus en zijn rijk, zijn voor altijd verloren. Natuurlijk kunnen niet alle ogenblikken bewust en uitdrukkelijk voor de Heer worden besteed en mag onze houding niet ontaarden in neurotische gespannenheid. Natuurlijk wil God dat wij redelijke zorg dragen voor onze gezondheid en ontspanning, dat wij (normaal gesproken althans) oververmoeidheid vermijdenenz.Maar zie ook dat andere en zoveel voornamer aspect. Hoe zal ik op mijn sterfbed oordelen over het gebruik van de mij toegemeten tijd? Zal mijn geweten mij veroordelen, zo ik om Christus' wil mij te weinig rust gunde? De tijd is kort en de eeuwigheid zonder einde, maar de tijd is de grondslag van onze eeuwigheid. Dit aardse leven bezit hoedanigheden die de eeuwigheid mist en die wij kunnen samenvatten in het woord: lijdende en zwoegende liefde. Al blijft het waar dat een vuriger liefde goed kan maken wat vroegere traagheid verzuimde, er ligt iets tragisch in de gedachte dat deze verspilde kansen als zodanig nooit weerkeren.
+
+2\. Het is hierom dat de Kerk bidt dat wij _voortdurend_ op goede werken bedacht mogen zijn. Dit is niet 'n soort geestelijk egoïsme om zoveel mogelijk „verdiensten” te verzamelen door een materiële werkheiligheid, — het is de uiting van de nimmer moede liefde die om wille van Christus en de zielen deze kostbare tijd van werken en zwoegen, van moeizaam ploegen en zaaien ten volle wil benutten. De liefde wil geen stukje van de bodem braak laten liggen. Zij wil werken zolang het dag is. Haar hand vindt altijd iets te doen: plichten van gebed en arbeid, werken van lichamelijke en geestelijke barmhartigheid. Zij vindt ook steeds datgene te doen wat Gods eer bevordert en goed is voor de naaste, want zij zoekt zichzelve niet. Zij is als de moeder die het eerst van allen op is en 's avonds nauwelijks tijd vindt voor het rustig zitje bij de haard.
+
+3\. Het is verwonderlijk dat degenen, wie de rusteloze liefde geen tijd laat aan zichzelf te denken, voor een ander altijd tijd over hebben en zelden of nooit gejaagd en onrustig zijn. Want het gaat bij de nimmer moede liefde niet om de bedrijvigheid. Vóór zij over de goede werken spreekt, bidt de oratie God dat zijn genade onze daden moge voorkomen, begeleiden en volgen. Het gaat om een activiteit die ontspringt aan een innerlijke bron. En Gods genade heeft die bron gezuiverd; zuiver en helder is die ziel, niet langer troebel en verward. In de geest die volmaakt bemint, doet de bedrijvigheid geen afbreuk aan de innerlijke rust, gaan actie en contemplatie samen. „Zulk een ziel leeft nog slechts het leven van Christus, dat leven van liefde voor de Vader en van ijver voor zijn eer, welks stroom geheel besloten ligt in de schoot der heilige Drieëenheid. _In vrede strijdt zij_ volgens haar bijzondere voorbestemming en zij zegeviert immer meer in de tijdelijke verheerlijking Gods, totdat God alles in allen is geworden. Tot volkomen eenheid geraakt, is zij voor haar God de volmaaktste en volledige lofprijzing. Zij kan Hem geen grotere eer bewijzen dan door mee te helpen dat allen volmaakt worden in de eenheid” ( Marie-Antoinette de Geuser ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

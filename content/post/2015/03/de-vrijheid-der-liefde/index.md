@@ -1,0 +1,20 @@
+---
+title: "De vrijheid der liefde"
+date: "2015-03-22"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [139\. Passiezondag](http://ift.tt/1Cb754L)
+
+„Sponte libera Redemptor passioni deditus” , zingt de dichter in de hymne der lauden: „de Verlosser het lijden toegewijd _uit vrije wil_ ” .
+
+1\. Aanbidden wij de vrijheid van Jezus' liefde in zijn smartelijk en gezegend lijden. „Daarom bemint de Vader Mij, omdat Ik mijn leven afleg om het weer op te nemen. Niemand ontneemt het Mij, maar Ik leg het vrijwillig af” ( Joh. 10, 17. 18 ). Het kan schijnen dat Jezus weerloos ten offer viel aan de listen der priesters, — dat zijn einde werkelijk was wat het in de ogen der wereld lijken moest: een smadelijke mislukking en anders niets, — dat zijn lot tragisch en heldhaftig, maar onontkoombaar en fataal was. Doch Hij die de Zoon is, de mensgeworden Logos , Hij gaf zijn leven in vrijheid, omdat Hij het zelf wilde, omdat Hij zijn uur, dat Hijzelf nabijgebracht had, gekomen wist ( Joh. 13, 1 ). — En juist dáárom, om die opperste vrijheid van een goddelijke liefde, is zijn dood het grootste bewijs niet alleen, maar ook de hoogste openbaring van God „die de Liefde is” . „Hierin is Gods liefde voor ons openbaar geworden, dat God zijn ééngeboren Zoon in de wereld heeft gezonden, opdat wij door Hem zouden leven. Daarin bestaat de liefde — niet alsof wij eerst God bemind zouden hebben — dat Hij ons spontaan heeft liefgehad en zijn Zoon gezonden heeft als zoenoffer voor onze zonden” ( 1 Joh. 4, 7-10 ). „Daaraan hebben wij de liefde leren kennen, dat Hij zijn leven voor ons heeft gegeven” ( 1 Joh. 3, 16 ). Vrijwillig heeft Jezus zijn kruis gedragen en de bloedige en schandelijke dood op zich genomen. „Gelooft ge niet, dat mijn Vader Mij aanstonds meer dan twaalf legioenen engelen zou zenden, als Ik Hem daarom bad? Maar hoe zullen dan de Schriften worden vervuld?” ( Mt. 26, 53. 54 ).
+
+2\. Vrijheid is de edele en onontbeerlijke eigenschap der liefde. Hoe vrijer deze wordt geschonken, hoe zuiverder zij liefde is. Ook van ons vraagt God de vrijheid der liefde, die kostbaarste vrucht van ons hart, die zijn genaden oogsten wil. Zij is in Gods oog zo kostbaar, dat Hij liever het vele en ontzettende kwaad toelaat en verdraagt, dat het verkeerde gebruik van de vrijheid dat is de zonde, met zich brengt, dan de mens zijn vrijheid te ontnemen. Afgedwongen liefde is geen liefde. De mens is verplicht God te beminnen, maar hij blijft vrij. De genade nodigt, maar noodzaakt niet. „Zie, Ik sta aan de deur en klop. Wanneer iemand luistert naar mijn stem en de deur ontsluit zal Ik bij hem binnenkomen en maaltijden met hem houden en hij met Mij” ( Openb. 3, 20 ). God forceert onze deur niet, maar slechts hij die blijde opent zal de heerlijkheid smaken van zijn tafel.
+
+3\. De vrijheid van Jezus, Heer van de tijd en meester van alle omstandigheden, is goddelijk en souverein, omdat Hij het in zijn macht had het lijden te ontgaan en Zichzelf alle uitkomst te verschaffen waarnaar zijn benauwd mensenhart in de Hof van Olijven snakte; maar Hij heeft het niet gewild, uit liefde tot de Vader en de zielen. Wij, sterfelijke mensen, zijn ondergeschikt aan de loop der dingen en onderworpen aan vele factoren buiten ons, maar ons hart en onze wil blijven vrij. Ook van ons vraagt God een vrije onderwerping, overgave, spontane liefde, die alleen Hem en onszelf waardig zijn. Vele mensen lijden gedwongen. Ook vele christenen verduren met tegenzin, mokkend en morrend, met een soort „onderwerping” aan Gods wil als aan een buiten en boven ons werkende overmacht, waaraan men nu eenmaal niet kan ontkomen. Zij zien Gods wil als een nauwelijks verchristelijkt heidens noodlot. Dit is niet de liefde die Jezus aan ons heeft verdiend. Dit is niet de vrijheid die de vrucht des Geestes is, de overgave der kinderen en de triomferende vrede der ware minnaars.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

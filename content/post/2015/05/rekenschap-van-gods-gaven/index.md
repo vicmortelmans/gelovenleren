@@ -1,0 +1,22 @@
+---
+title: "Rekenschap van Gods gaven"
+date: "2015-05-15"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [193\. Vrijdag onder het octaaf van Hemelvaart](http://ift.tt/1HgA881)
+
+„Aan ieder onzer is de genade gegeven naar de mate waarin Christus haar schenkt … Hij die neergedaald is, Hij is het ook die is opgestegen hoog boven alle hemelen om alles te vervullen” ( Eph. 4, 7. 10 ; epistel van de vigilie van Hemelvaart).
+
+Wij lopen het gevaar het mysterie van 's Heren Hemelvaart — evenals dat van zijn Verrijzenis — eenzijdig te verstaan als zijn persoonlijke verheerlijking en aldus de eigenlijke heilsbetekenis er van (wat het betekent _voor ons_ ) niet te begrijpen. Voorzeker, door de Hemelvaart is Jezus definitief zijn glorie binnengegaan. Hij zetelt nu aan Gods rechterhand, „hoog boven alle heerschappij en macht en kracht en hoogheid en boven elke naam die genoemd wordt in deze wereld niet alleen, maar ook in de toekomstige” ( Eph. 1, 21 ). Maar Hij heeft zelf gezegd: „Het is goed voor u dat Ik heenga. Want zo Ik niet heenga, zal de Helper niet tot u komen; maar als Ik heenga, zal Ik Hem tot u zenden” ( Joh. 16, 7 ). De Heer is van ons heengegaan om „ons een plaats te bereiden” ( Joh. 14, 2 ). Maar Hij laat ons intussen niet vereenzaamd als wezen achter ( Joh. 14, 18 ). Nu Hij door Verrijzenis en Hemelvaart verheerlijkt is, zendt Hij ons vanwege de Vader de Helper, de Vertrooster, de Geest der waarheid ( Joh. 15, 26 ). Hemelvaart en Geesteszending staan in nauw verband met elkaar. Het is dezelfde waarheid die is uitgedrukt in de boven aangehaalde woorden van Sint Paulus .
+
+1\. „Hij die neergedaald is, Hij is het ook die is opgestegen hoog boven alle hemelen om alles vol te maken.” Jezus is door de menswording op de aarde en door de diepe vernedering van de kruisdood in het graf neergedaald. Dezelfde is het die uit het graf is opgestaan en ten hemel gestegen om nu als „levendmakende Geest” ( 1 Kor. 15, 45 ), als verheerlijkte Verlosser, de _volheid_ van zijn gaven uit te storten over de Kerk. „Hij is het geweest die zowel apostelen heeft gegeven als profeten, zowel evangelisten als herders en leraars om de heiligen ( \= = christenen) toe te rusten tot dienstbetoon, tot opbouw van het Lichaam van Christus, totdat wij alleen de eenheid des geloofs en der volle kennis van de Zoon Gods bereikt hebben, de mannelijke rijpheid, de maat van de wasdom der volheid van Christus” ( Eph. 4, 11-13 ). In Christus zijn wij rijk geworden in ieder opzicht van genade en Geestesgaven ( 1 Kor. 1, 5 ). In de tijd tussen Hemelvaart en Pinksteren leven wij ieder jaar met de Kerk in haar liturgie in de vreugdevolle verwachting en het vurige verlangen naar de komst van de Geest, die de volheid der gaven schenkt, die zelf de ongeschapen gave Gods is, — om aldus te groeien tot geestelijke rijpheid, tot de bovennatuurlijke wasdom van de volmaakte Christus. Wij mogen ons niet tevreden stellen met het bereikte (met hetgeen wij _menen_ bereikt te hebben); mij mogen niet rusten en zeggen: het is genoeg. De gaven van de verheerlijkte Zaligmaker worden ons met mildheid geschonken, de Geest die levend maakt wordt ons meegedeeld; maar de Geest van de gekruisigde Jezus ook is het, die ons aandrijft tot steeds verdergaand opgeven van onszelf, uit liefde, om Christus gelijkvormig te worden.
+
+2\. Want het is noodzakelijk ons immer opnieuw te bezinnen op de _ontzettende verantwoordelijkheid_ van de christenen. Wij ontvangen de Geest niet om Hem te bedroeven ( Eph. 4, 30 ) noch om zijn vuur te blussen ( 1 Thess. 5, 19 ).
+
+„Van ieder wie veel gegeven werd, zal veel geëist worden” ( Lk. 12, 48 ). „Ieder onzer is de genade gegeven naar de mate van Christus” ; ieder ontvangt zijn speciale genade, dat is óók, zijn bijzondere roeping, taak en verantwoordelijkheid. Uit gemakzucht en lauwheid vergelijken wij ons gaarne met anderen die ogenschijnlijk minder arbeiden, bidden en lijden voor God dan wij. Wanneer twee hetzelfde doen, dan heeft dat nog niet dezelfde waarde in Gods oog. Hoeveel genaden zijn _mij_ geschonken? Hoeveel inspraken Gods? Hoeveel voorbeelden? Hoeveel goede boeken heb ik gelezen? Hoe dikwijls stond mij Gods wil ( „uw heiliging” ) helder voor ogen? En wat weet ik van een ander? Oordeel niet, vergelijk niet, maar verneder u voor God en woeker met zijn gaven. Geef u geheel.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

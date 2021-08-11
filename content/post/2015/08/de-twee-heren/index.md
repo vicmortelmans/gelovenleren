@@ -1,0 +1,20 @@
+---
+title: "De twee heren"
+date: "2015-08-31"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 301\. Maandag na de Veertiende Zondag na Pinksteren
+
+„Niemand kan twee heren dienen. Hij zal ofwel de ene haten en de andere liefhebben ofwel zich aan de eerste hechten en de tweede minachten. Gij kunt niet tegelijk God dienen en de mammon” ( Mt.6, 24 ; evangelie van de Zondag).
+
+1\. Jezus spreekt in deze woorden een zedekundige waarheid uit van grote betekenis. Zich aanpassend aan het geestespeil van zijn toehoorders gebruikt Hij het beeld van de toenmalige slavernij die nog beslister dan de meeste dienstbetrekkingen van onze tijd de mogelijkheid uitsloot twee meesters tegelijk te dienen. Dat gáát gewoonweg niet. Het is niet een kwestie van niet mogen, het is onmógelijk. Dit is een anthropomorfistisch beeld; de Heer spreekt over uitwendige dienst aan personen, maar Hij bedoelt toch allereerst een _innerlijk conflict_ . Het is onmogelijk dat de mens twee werkelijk onderscheiden waarden als laatste doel van zijn streven tegelijkertijd najaagt. Hij kan dat zichzelf en anderen trachten wijs te maken, maar in werkelijkheid dient hij slechts één heer, terwijl hij de andere „haat” of „minacht” . Jezus noemt hier als tegenstrijdige idealen God en het geld. Men kan deze algemene waarheid natuurlijk ook toepassen op andere dingen: God en de eigen wil, God en de eer der mensen en zo verder. Het kan ook een op zichzelf beschouwd geringe waarde zijn die zich tegenover Gods wil stelt. Dit hangt af van de concrete mens. Zo zal de een vrijwel onverschillig zijn voor geld en bezit, maar zijn wil niet dan met de grootste moeite kunnen buigen voor het gebod van zijn rechtmatige overheid, terwijl een ander weer het sterkst wordt aangetrokken door genieting en levensvreugde. God en zijn heilige wil mogen alleen het einddoel zijn van ons streven, dat zo gericht moet wezen, dat alle andere goederen daaraan in waarheid ondergeschikt worden gezien en gewild. Het gaat dus over een morele houding; onze _wil_ moet zodanig zijn dat in een geval van conflict tussen God en het schepsel, in de beslissende keuze dus, God wordt verkozen boven al het andere, zij het met bloedend hart.
+
+2\. Deze juiste gesteltenis van de wil is het essentiële, wat God altijd van ons vraagt en wat wij Hem in alle omstandigheden kunnen aanbieden. Niet zelden immers blijft, ook waar de wil God zuiver dient, het _psychologisch_ conflict. De wil onderwerpt zich aan God, maar het gevoel en heel ons natuurlijk wezen roepen om een andere heer, totdat de wil met Gods genade geleidelijk meester wordt van de begeerten en zo overreedt het spoor te volgen van het koninklijk besluit van onze vrijheid. Maar deze volmaakte heerschappij wordt niet zonder strijd bereikt, zolang wij op aarde leven en „de zelfzucht begeert tegen de Geest” ( Gal.5, 17 ; epistel van de Zondag). Onze Heer zelf heeft zich gewaardigd tot onze overgrote vertroosting de tweespalt te ervaren van het natuurlijke streven en het goddelijk welbehagen, toen Hij bad in de Hof: „Niet mijn wil geschiede, maar de uwe” .
+
+Er staat echter een machtig middel tot onze beschikking om de heftigheid van dit zieleconflict gaandeweg te verminderen en God, onze enige Heer, te dienen niet enkel met moeizame wilsinspanning, doch ook van harte, in een overgave die geleidelijk alle krachten der ziel Hem met vreugde onderwerpt, niet langer alleen als plichtsvervulling, maar met bloedwarme liefde. Dit middel is het inwendig gebed. Het voortdurend innig schouwen op Gods oneindig wezen legt ten slotte beslag op de _hele_ mens. Het dienen wordt dan zoete noodzaak en, toch wel in de allermeeste gevallen, spontane „vrucht des Geestes: liefde, vreugde, vrede” (epistel). Het zuivere gebed „vernietigt grond en wortel der zonde. Alle deugden worden er volmaakt door ontvangen en liggen er gevoelvol in besloten, zonder enige vertroebeling der intentie” (The Cloud of Unknowing).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

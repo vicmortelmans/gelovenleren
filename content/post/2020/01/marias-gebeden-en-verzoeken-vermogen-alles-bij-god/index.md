@@ -1,0 +1,11 @@
+---
+title: "Maria's gebeden en verzoeken vermogen alles bij God"
+date: "2020-01-01"
+categories: 
+  - "gouden-boek"
+coverImage: "unnamed-file-33.jpeg"
+---
+
+De genade vervolmaakt de natuur en de glorie vervolmaakt de genade. Onze Heer is dus ongetwijfeld ook in de hemel nog evenzeer de Zoon van Maria als Hij dat op aarde was. Maar dan volgt daaruit ook, dat Hij, als de beste van alle kinderen, nog altijd even onderworpen en gehoorzaam is aan de beste van alle moeders. Nu mag men deze afhankelijkheid niet als een soort verlaging of onvolmaaktheid in Jezus Christus opvatten. Maria immers staat oneindig ver beneden haar Zoon, die God is. Zij geeft Hem dan ook geen bevelen, zoals een aardse moeder dat doen kan aan een kind, dat haar ondergeschikt is. Maria is zo geheel en al in God omgevormd, door de genade en de glorie, die alle heiligen omvormt, dat zij niets vraagt, verlangt of verricht wat met Gods eeuwige en onveranderlijke wil in strijd zou zijn. Wanneer wij dus in de geschriften van de heilige Bernardus, Bernardinus, Bonaventura en anderen lezen, dat alles in de hemel en op aarde, zelfs God, aan de allerheiligste Maagd onderworpen is, dan willen zij alleen maar zeggen, dat God aan haar zo een groot gezag heeft willen verlenen, dat het lijkt alsof zij evenveel macht heeft als God. Haar gebeden en verzoeken vermogen zo veel bij God, dat zijne Majesteit ze feitelijk als bevelen beschouwt. Het is Hem niet mogelijk aan de aandrang van zijn dierbare Moeder te weerstaan, omdat haar gebed altijd ootmoedig is en in overeenstemming met zijn wil. Wij weten hoe Mozes met de kracht van zijn gebed Gods toorn tegen Israël wist te weerhouden. Hij deed dat met zo een heilig geweld, dat de zeer verheven en oneindig barmhartige Heer hem in zijn oneindige barmhartigheid niet kon weerstaan, en hem vroeg hem toch in zijn toorn te laten begaan om dat opstandige volk te straffen. Wat moeten wij dan wel denken van Maria’s nederig gebed? Zij is immers de waardige Moeder van God en haar smeken vermag meer bij zijne Majesteit dan de tussenkomst van alle engelen en heiligen in de hemel en op aarde.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

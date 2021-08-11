@@ -1,0 +1,22 @@
+---
+title: "Zo zal Hij wederkeren, alleluja"
+date: "2015-05-19"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [197\. Dinsdag onder het octaaf van Hemelvaart](http://ift.tt/1c1AZhE)
+
+„Nog staarden zij naar de hemel, terwijl Hij opsteeg; en zie, daar stonden twee mannen bij hen, in witte klederen gehuld. Ze zeiden: „Mannen van Galilea, wat staat ge naar de hemel te staren? Jezus, die uit uw midden ten hemel is opgenomen, Hij zal weer op dezelfde wijze komen als gij Hem hebt zien opstijgen ten hemel” ” ( Hand. 1, 10. 11 ; epistel van Hemelvaart). In zijn verheerlijkte staat en komende op de wolken des hemels zal Jezus terugkeren bij het laatste oordeel. Deze gedachte heeft de apostelen sterkte en troost geschonken bij hun opofferend werk voor de Heer. De eerste christenen hebben geleefd in de vreugdevolle verwachting van Jezus'wederkomst. Zij hebben wellicht al te menselijk naar deze komst uitgezien, als zou ze spoedig, nog tijdens hun aardse leven, plaatsgrijpen, al had de Heer ook verklaard: „Van die dag en dat uur weet niemand iets, zelfs de engelen in de hemel niet, maar de Vader alleen” ( Mt. 24, 36 ). De wereld oordeelt dat zij het slachtoffer van een illusie zijn geweest en wijzelf, door twintig eeuwen „wijs” geworden, denken niet meer aan Jezus' komst. Maar Sint Petrus schrijft: „Voor de Heer is één dag als duizend jaren en duizend jaren als één dag. Niet traag is de Heer met zijn belofte (van de wederkomst), zoals sommigen dat traagheid noemen; maar lankmoedig is Hij voor u, daar Hij niet wil dat sommigen verloren gaan, doch dat allen zich bekeren. Maar komen zal de Dag des Heren als een dief …” ( 2 Petr. 3, 8-10 ).
+
+1\. „Zoals de bliksem uitschiet van het oosten en flitst tot het westen, zo zal ook de komst van de Mensenzoon zijn” ( Mt. 24, 27 ). De Heer zal komen onfeilbaar zeker, onverwacht en openbaar. „Zie, Hij komt met de wolken; en alle oog zal Hem aanschouwen, zelfs zij die Hem doorstoken hebben; en alle geslachten der aarde zullen zich op de borst kloppen om Hem” ( Openb. 1, 7 ). De rechtvaardigen zullen in heerlijkheid verrijzen en met Christus de wereld richten ( 1 Kor. 6, 2 ). Dan zal het recht triomferen, met goddelijke volkomenheid. Dan zullen de verborgenheden der duisternis aan het licht treden en de bedoelingen der harten geopenbaard worden ( 1 Kor. 4, 5 ).
+
+Onze daden bezitten geen waarde dan die welke in _dat_ licht, Gods licht, stand houdt. Alle gedachten en alle geheime motieven en alle verborgen zonden zullen dan worden onthuld. Gewroken wordt het bloed der onschuldigen en de traan der armen. En schitteren als de zon zal elk stil offer voor de Heer gebracht en de daad der liefde welke alleen bekend was aan de Vader, die ziet in het verborgen. „Want niets is bedekt, dat niet ontdekt en niets verborgen dat niet bekend zal worden” ( Mt. 10, 26 ).
+
+2\. „De tijd van het oordeel is daar dat begint met Gods huis” ( 1 Petr. 4, 17 ). Gods huis, Gods familie dat zijn wij; en wij vallen allereerst onder zijn alwetend oordeel. Veel zal worden gevraagd van hen wie veel gegeven werd. „Oordeelt niet opdat ge niet geoordeeld wordt. Want met het oordeel dat gij velt, zult ge zelf veroordeeld worden.” ( Mt. 7, 1. 2 ). „Niet iedereen die tot mij zegt: „Heer, Heer!” zal binnengaan in het rijk de hemelen, maar wie de wil volbrengt van mijn Vader die in de hemelen is” ( Mt. 7, 21 ). De christen zal rekenschap moeten afleggen voor de talloze genaden hem om niet geschonken. En de godgewijde zielen mogen sidderen bij de gedachte aan het overgrote goed dat hun werd toevertrouwd voor hun eigen heiliging en die van anderen.
+
+Het oordeel begint nu reeds, zegt Sint Petrus , voor wie de tekenen van de tijd weet te verstaan. De vervolgingen waaraan de Kerk blootstaat, de verdrukking der onschuldigen, het lijden der uitverkorenen zijn de inleidende akten van het grote en definitieve oordeel, waardoor God zijn volk tot inkeer en boete wil brengen, die nu nog vrucht kunnen dragen. Door het lijden wil de Heer beletten dat ons hart zich hecht aan deze wereld die vergaat. En Hij schenkt ons de goddelijke kans ons lijden met het zijne te verenigen, met Hem zielen te redden en Hem de waarachtigheid van onze liefde te tonen. Zij wij zijn liefderijk Hart dit grote bewijs der liefde geven, mogen wij met blij vertrouwen zijn glorieuze komst afwachten.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

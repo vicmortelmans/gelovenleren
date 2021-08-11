@@ -1,0 +1,10 @@
+---
+title: "Aandeel in Maria's geloof"
+date: "2020-09-26"
+categories: 
+  - "gouden-boek"
+---
+
+2) De heilige Maagd zal u ook haar geloof meedelen. Haar geloof hier op aarde was groter dan dat van alle patriarchen, profeten, apostelen en van alle heiligen. Nu zij in de hemel heerst, heeft zij dit geloof niet meer, want in het glorielicht aanschouwt zij alle dingen duidelijk in God. Maar bij haar intrede in de hemel heeft de Allerhoogste goedgevonden, dat haar geloof toch niet verloren ging. Zij heeft het namelijk behouden om het in de strijdende Kerk te doen voortleven bij haar meest getrouwe dienaars en dienaressen. Dus hoe meer u de liefde van deze verheven vorstin en trouwe maagd zult weten te winnen, hoe zuiverder geloof er uit heel uw levenswijze aan de dag zal treden. Een zuiver geloof: weinig zult u nog geven om het gevoelige en het buitengewone. Een levendig geloof en door liefde bezield; uw werken zult u uit loutere liefde verrichten. Een geloof, hecht en onwrikbaar als de rots; onwankelbaar en standvastig zult u blijven bij storm en noodweer. Een werkdadig en alles doordringend geloof; als een geestelijke sleutel zal het u tot alle mysteriën van Jezus Christus toegang verlenen, tot de hoogste bestemming van de mens, ja tot het hart van God zelf. Een moedig geloof dat u, zonder aarzelen, grote dingen zal doen ondernemen en volvoeren voor God en het heil van de zielen. Tenslotte een geloof dat uw brandende fakkel, uw goddelijk leven en verborgen schat van de goddelijke Wijsheid zal zijn en uw alvermogend wapen. Allen, die in de duistere schaduwen van de dood neerzitten, zult u ermee verlichten; de lauwen en hen die het goud van de liefde missen, zult u met dat geloof in liefde doen ontvlammen. Het leven zult u schenken aan hen, die de dood van de zonde gestorven zijn. Met uw zacht en machtig woord zult u versteende harten vermurwen, ceders van de Libanon neervellen en tenslotte weerstand bieden aan de duivel en alle vijanden van ons heil.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

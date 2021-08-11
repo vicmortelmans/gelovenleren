@@ -1,0 +1,20 @@
+---
+title: "Mijn hart is bereid, o God"
+date: "2015-10-17"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 348\. Zaterdag na de Twintigste Zondag na Pinksteren
+
+Zo lazen wij in de mis van de Zondag: „Mijn hart is bereid, o God, mijn hart is gerust. Voor U, mijn Heerlijkheid, wil ik zingen en spelen op de citer” ( Ps.107, 2 ). Ook Sint Paulus vermaant in het epistel de christenen om „vervuld van de Heilige Geest, elkander toe te spreken met psalmen en hymnen en geestelijke liederen” ( Eph.5, 19 ). Het zou Gods eer ten zeerste bevorderen als de christenen naar deze woorden leefden, als zij wat minder strijdbaar opkwamen voor hun rechten en de geestelijke vreugde der verlossing wat meer lieten uitstralen. Door goedheid en blijdschap wordt de mens voor Christus gewonnen, niet door strijd en gelijkhebberij. Maar ook de gelovigen zijn zwakke mensen, „van nature kinderen van de toorn” , en zolang wij niet door zelfverloochening de genade van de Heilige Geest in ons doen zegevieren, zullen wij het merkteken van de verlossing waarom de wereld vraagt, niet dragen. Hoe zullen zij die er buiten staan in Christus' Kerk geloven, wanneer de christenen nauwelijks anders zijn dan zijzelf? Alleen wat echt en waarachtig is kan zijn waarde bewijzen; de overtuigingskracht van een middelmatig christelijk leven is zeer gering. Het geeft een onvoldoende beeld, het maakt een valse indruk van de heerlijkheid die God voor ons allen heeft bestemd.
+
+1\. Ons hart moet _bereid_ zijn, vóór wij Gods heerlijkheid kunnen bezingen en zijn glorie verspreiden. Het innerlijke leven moet er zijn. Ons hart moet _anders_ zijn, geraakt door God en door die aanraking gemerkt. Aan ons wordt de eis van volstrekte eerlijkheid gesteld. En volstrekte eerlijkheid betekent volstrekte weerloosheid voor God. God is bij machte uit stenen kinderen van Abraham te verwekken. Hij kan zich ook van halfslachtige christenen bedienen om anderen te treffen. Maar Hij zoekt de aanbidders in geest en waarheid. Zij alleen zijn Hem waardig. En ook voor het apostolische werk wil Hij „oprechten van hart” . Wij mogen geen enkel zelfbedrog dulden. Maar het ergste is dat wij daaraan lijden zonder het te weten. Er is niets wat ons zo geneest van zelfoverschatting en zelfmisleiding als het zuivere gebed. De beschouwing, volhardend beoefend, maakt het ons onmogelijk onszelf iets wijs te maken. Wie gewoon is zichzelf te zien in het licht van Gods tegenwoordigheid, kan in zichzelf niets goeds meer ontdekken, of hij beschouwthet als voortvloeiend uit de enige bron van alle goeds, als door God geschapen en in stand gehouden, en altijd afhankelijk van die liefde.
+
+2\. En daaruit volgt de _weerloosheid_ die een eerlijk en innerlijk levend mens gevoelt tegenover God. Wie innerlijk leeft is niet op slag volmaakt. Hij zal zichzelf veeleer nooit als volmaakt beschouwen en hij zal gewaar worden dat hij een grotere zondaar is dan hij vroeger dacht. Hij zal immers zien wat de Liefde vraagt en hij zal steeds klaarder ontdekken hoezeer hij te kort schiet: een onuitsprekelijk in gebreke blijven (dit besef is als de keerzijde van zijn geluk. Zijn geluk is, te zien hoe oneindig en buiten alle verhouding God hem overtreft en tegelijk te weten dat God hem niet loslaat doch leidt en liefheeft en dat Gods liefde juist dit besef van mateloze ongenoegzaamheid in hem bewerkt.) Maar hij kan God niets meer weigeren. Hij staat machteloos voor de Heer, ook al weet hij, uit een droevige en langdurige ervaring wellicht, dat hij niet trouw zal zijn en slechts kan hopen rouwmoedig en nederig terug te keren, na een nieuwe nederlaag. En hij weet ook dat dit gevecht om liefde hem, ondanks alles, altijd dieper en vaster zal vestigen in God.
+
+Zulk een mens heeft zijn hart geopend naar de kant van God en hij beijvert zich het geheel geopend te houden. Zo iemand, die eerlijk wil zijn en weerloos, zal ook ooit, door Gods genade, een ander kunnen helpen.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

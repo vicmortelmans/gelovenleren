@@ -1,0 +1,20 @@
+---
+title: "Uw geloof heeft u gered"
+date: "2015-11-06"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 368\. Vrijdag na de drie en twintigste Zondag na Pinksteren
+
+Hoe moet het die vrouw uit het evangelie van de Zondag te moede zijn geweest, toen zij Jezus had aangeraakt en zij zich genezen wist! Twaalf jaar is een lange tijd en al die tijd had zij zich diep ongelukkig gevoeld, een uitgestotene, afgesneden van de gemeenschap van haar volk. Zij had het nauwelijks durven bestaan de Heer te naderen. Maar het was een laatste en vertwijfelde poging, nadat alle andere middelen en de vele dokters die zij had geraadpleegd en aan wie zij haar geld was kwijtgeraakt, hadden gefaald. En nu, opeens, wist zij dat heel de ellende geleden was en voorgoed voorbij, als een boze droom. „Schep moed, dochter, uw geloof heeft u gered.”
+
+1\. Dit vreugdevolle weten dat door Jezus' genade alles anders kan worden moge ook ons ten deel vallen. Het is _niet_ waar dat wij niet op kunnen staan uit de staat van lauwheid waarin wij misschien al jaren verkeren. Het is _niet_ zo dat de idealen van leven die ons vroeger en wellicht lang geleden bezielden, onmogelijk waren en onwerkelijk. (Het kan zijn dat zij in een of ander opzicht verbetering behoefden; in de kern waren zij goed.) Maar wij hebben als die vrouw ons heil gezocht bij de mensen en zijn bij menselijke berekening te rade gegaan. Zelf werden wij wijzer en wij schaamden ons bijna voor de edelmoedigheid van onze jeugd, die wij onbedachtzaamheid en gebrek aan ervaring gingen noemen. En diep in onszelf verheugde zich onze gemakzucht dat wij verstandiger waren geworden en dat ook de anderen of bijna alle anderen zich aanpasten aan het leven en aan de eisen van datgene wat de mensen het leven heten. Maar het is fout het geestelijke leven te beschouwen als een menselijke onderneming of een louter zielkundig proces. Het is fout dit ook maar onbewust of helf bewust te doen. „Bij de mensen is het onmogelijk, maar niet bij God.” Wanneer wij handelen alsof het _eeuwige leven_ van onze inspanning afhing, kunnen wij beter aan iets anders denken.
+
+2\. Als wij jaren lang hebben getobt met menselijk rekenen en menselijk pogen, kan het gebeuren dat wij opeens de Heer mogen aanraken (dat Hij ons aanraakt) en dat wij _weten_ . Wij hebben aan den lijve ondervonden dat wij niet beter zijn dan onze broeders en zusters en dat wij ons vruchteloos afmatten op dezelfde plaats, zonder voortgang te maken. Wij hebben ervaren dat wij machteloos zijn, dat wij „zonder Hem niet vermogen” . Dan is de bodem bereid (dan, als wij naakt en arm zijn en door ervaring wéten dat wij het zijn). Dan kan ons gebeuren wat die vrouw uit het evangelie overkwam. Het inzicht van onze volkomen machteloosheid en het blijde weten dat Hij alles kan, liggen vlak naast elkaar, ja, zij zijn in elkaar vervat. Daarna kunnen wij, evenals die vrouw, terugkeren tot het gewone leven. Er is niets veranderd. Wij zijn even zwak en ellendig als te voren. Maar er is één ding. God heeft ons duidelijk gemaakt dat Hij begin en einde is van alles, ook van datgene wat wij _ons_ geestelijk leven believen te noemen. Buiten Hem bestaat dat geestelijke leven niet. Buiten Hem is er hoogstens verlangen naar Hem, vernedering voor Hem, berouw om Hem (en ook deze komen van God). Wij zien opeens de diepe zin van onze machteloosheid. Wij hebben eindelijk vrede met onze eindeloze nederlagen, omdat zij Hem verheerlijken. Het maakt ons zalig te weten dat er in dit domein, Gods domein, niets is dat wij het onze kunnen noemen.
+
+Deze waarheid maakt ons vrij. Zij maakt ons niet zorgeloos of nalatig, maar vrij van eigenwaan, van krampachtige inspanning, van bezorgdheid en angst. En sterk door Hem. Onze zwakheid kan ons niet langer ontmoedigen. Wij geloven nu waarachtig wat het epistel zegt, dat Hij machtig is om _alles_ , ook onze zwakheid en ellende, aan zich te onderwerpen.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

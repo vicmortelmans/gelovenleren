@@ -1,0 +1,22 @@
+---
+title: "De volmaakte vrijheid"
+date: "2015-04-07"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [155\. Paasdinsdag](http://ift.tt/1F8BN18)
+
+„Dat nu zeggen: „Alleluja” , zij die door de Heer bevrijd zijn, die Hij heeft verlost uit de greep van de vijand en verzameld uit alle landen” ( Ps. 106, 2 ; graduale ).
+
+„God, die door het paasfeest de wereld middelen van herstel hebt gegeven, blijf uw volk, bidden wij, de hemelse gaven schenken, opdat het de volmaakte vrijheid moge verwerven en voortgang maken ten eeuwigen leven” (oratie van Paasmaandag).
+
+1\. Pasen is het hoogfeest der verlossing, van _onze_ verlossing. Jezus is niet alléén verrezen; geen enkele van zijn godmenselijke daden heeft Hij gesteld voor zich alleen. „Eén is voor allen gestorven en Eén is voor allen verrezen.” ( 2 Kor. 5, 14. 15 ). Verlossing in Christus wil niet enkel zeggen wegnemen van Adams vloek, maar ook herstel van Adams leven; niet alleen kwijtschelding van zonde en straf, maar bovenal nieuw leven, een nieuwe liefde, een zuiver gericht zijn op God, een nieuwe betrekking tot Hem, een nieuw zijn: het kindschap Gods. Dáárom is Jezus verrezen. Hij is in alles ons hoofd en ons beeld. In dit nieuwe leven is Hij ons voorgegaan, op heerlijke en ongeëvenaarde wijze. In de verrezen Zaligmaker, in dat verheerlijkt lichaam en die verheerlijkte ziel, rust, als in de bron, de volheid van ons leven, van ons kindschap Gods, van ons geluk in de hemel en op aarde. Hij vat ons allen samen; in Hem, het Hoofd, zijn wij allen besloten. In Hem worden wij ondergedompeld en uit Hem putten wij de stromen van levend water. Wanneer een waarachtig gelovende ziel in de eucharistie met de verrezen Heiland verenigd is, dan ligt haar wezen en leven verankerd in het centrum van de bovennatuurlijke wereld, dan rust zij aan het hart van dat heelal (ook al zou haar eigen hart koud blijven als een steen).
+
+Dit is de betekenis van Jezus' opstanding uit de doden. In Christus zijn wij allen verrezen tot een nieuw en waarlijk goddelijk leven. In zijn verrijzenis werd Jezus, zoals de apostel zegt, voor ons allen „levendmakende Geest” ( 2 Kor. 15, 45 ). Hij is het eerste stuk van die nieuwe schepping die de hemel is, — en tegelijk is Hij die nieuwe schepping geheel, want ons, zijn ledematen, rukt Hij mee in dat rijk van louter licht en liefde. „Hij is het Hoofd van het lichaam, de Kerk; Hij is het begin, de eerstgeborene uit de doden, opdat Hij in alles de eerste zou zijn” ( Kol. 1, 18 ).
+
+2\. Aan dit paasmysterie, aan deze bovennatuurlijke heilswerkelijkheid, moeten onze stemming en gesteltenis beantwoorden. Wij moeten de _mentaliteit_ van verlosten bezitten, toch zeker tijdens deze week van witte vreugde die als het ware een voorproef is van de hemel. Het is het wat de liturgie „de volmaakte vrijheid” noemt, de blijheid der kinderen Gods. Deze bestaat in vrijheid van de zonde en van gehechtheid aan de zonde (en om deze strijden wij ons leven lang). Maar wij mogen daarbij niet blijven staan. Deze vrijheid uit zich immers spontaan in geestesvreugde, onbelemmerd vertrouwen, een blijde breedheid; zij wil ons verlossen van vrees en kleinheid, van innerlijke dwang en formalisme. „Christus heeft ons vrij gemaakt om in de vrijheid te blijven, staat dus vast en kromt u niet opnieuw onder het slavenjuk” , schreef Sint Paulus aan zijn Galaten, toen zij, eenmaal christen geworden, in een soort misleide devotie meenden ook nog de Joodse wet te moeten onderhouden. Denk niet, dat deze vermaning alleen maar historische waarde heeft. Juist voor vrome mensen dreigt altijd opnieuw het gevaar van dit soort farizeïsme. Zij worden de slaaf van eigen gemaakte wetten en gewoonten, van dikwijls erg menselijke bedenksels. Zij durven in het geestelijke niet ruim en bevrijd adem te halen. Zeker, wij willen de stem van ons geweten en de rechtmatige leiding van onze wettige overheid volgen. Wij moeten Gods wet en wil eerbiedig en gehoorzaam aanvaarden. Het volmaakte kindschap wacht ons eerst in de hemel. Er dreigen gevaren van duivel, wereld en vlees. Maar denken wij ook eens aan die kostelijke godswoorden: „Schept moed: Ik heb de wereld overwonnen” ( Joh. 16, 33 ). „De volmaakte liefde bant de vrees uit” ( 1 Joh. 4, 18 ). „Het Jerusalem uit den hoge is vrij, en dat is _onze_ moeder” ( Gal. 4, 26 ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

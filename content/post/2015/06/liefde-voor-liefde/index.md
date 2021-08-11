@@ -1,0 +1,20 @@
+---
+title: "Liefde voor Liefde"
+date: "2015-06-12"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [221\. Feest van het Allerheiligste Hart van Jezus](http://ift.tt/1L0XPlH)
+
+Op het einde der dertiende eeuw bloeide reeds in de Duitse mystiek de godsvrucht tot het heilig Hart. Christus verscheen aan Sint Mechtild van Hackeborn en toonde haar de wonde van zijn Hart en sprak: „Aanschouw de grootheid van mijn liefde! Wilt ge ze leren kennen, dan zult ge haar nergens duidelijker vinden dan in de woorden van het evangelie: „Gelijk de Vader Mij bemind heeft, zo heb Ik u bemind” .” En Sint Gertrudis de Grote verhaalt in haarHeraut der goddelijke liefde, hoe haar Sint Jan de Evangelist verscheen, terwijl hij vol eerbied en liefde de vinger legde aan de borst des Heren en zeide: „Zie, dit is het Allerheiligste, dat alle goed in de hemel en op aarde in zich bevat” . Op Gertrudis ' vraag waarom hij in zijn evangelie over dit geheim had gezwegen, antwoordde hij: „Mijn taak was het voor de jeugdige Kerk een woord over het ongeschapen Woord des Vaders te schrijven, waaraan het verstand der gehele mensheid tot aan het einde der wereld genoeg heeft. De taal echter van de zalige klop van het goddelijk Hart is aan de tegenwoordige tijd voorbehouden, opdat de reeds verouderde en in Gods liefde verkoelende wereld weer verwarmd worde bij het vernemen van deze geheimen.” Vierhonderd jaar later zou het heilig Hart zich eveneens op het feest van Johannes voor het eerst openbaren aan de heilige Margareta Maria Alacoque ( W. Lampen , Sint Gertrudis de Grote , Hilversum 1939). Wat de godsvrucht van het heilig Hart voor ons betekent, kunnen wij samenvatten in twee woorden: liefde voor liefde, liefde tegenover koudheid, liefde tegenover haat. Het gaat hier over een dubbele liefde en over een tweevoudige liefdeloosheid.
+
+1\. Daar is vooreerst als de bron en grondslag van alles de liefde van Christus. Want het levende, verheerlijkte Hart van Jezus vereren wij niet op zichzelf beschouwd, als los gedacht van zijn aanbiddelijk lichaam en zijn gezegende mensheid, maar als het orgaan en het symbool van de liefde die Hem bezield heeft en in de kruisdood gedreven voor ons heil. De liefde waarmee Hij ons eerst bemind heeft en altijd „het eerst” blijft beminnen, de oneindige liefde die louter goedheid en tederheid is en tegelijk goddelijke heiligheid en reinheid.
+
+Liefde wil wederkerig zijn. Dat is het juist wat Jezus met deze godsvrucht voorheeft: ons leven te stellen in het teken van de liefde, niet van loutere plicht en gerechtigheid. Wie het goddelijk Hart bemint, wil niet rekenen, maar geven; wil niet aan zichzelf denken, maar aan Hem, aan zijn belangen, aan de eer des Vaders, aan het heil der zielen, aan de Kerk. En dan is er geen einde en geen grens (en in onze tijden allerminst) …
+
+2\. Tegenover de liefde van dit Hart staat de haat van de wereld, die niet alleen zijn rechten, maar ook zijn liefde miskent, wat oneindig smartelijker is. Juist als de _versmade Liefde_ heeft Hij zich aan de H. Margareta geopenbaard, omdat de wereld zich steeds weer van Hem heeft afgewend. En zouden wij ook maar een ogenblik durven veronderstellen, dat deze verachting en onverschilligheid van de wereld in onze eeuw geringer is dan in de achttiende? _Eerherstel_ vraagt Jezus, overvloedige liefde die de versmading der Liefde wil goedmaken. Doch er is een liefdeloosheid die Jezus' Hart veel dieper grieft: dat is de koelheid van godgewijde zielen. De afkeer der wereld is ontzettend, maar de wereld kent Hem niet zoals Hij is (en aan deze onwetendheid zijn ook wij niet onschuldig). Doch de godgewijde zielen, de priesters en de kloosterlingen, weten beter. Zij zijn de lievelingen van Gods genade en van zijn uitverkiezing. Op hen heeft de Heer zijn hoop gesteld voor de redding der wereld die God zozeer liefheeft. „Wie veel is gegeven, van hem wordt veel gevraagd.” „Leef op de hoogte van uw roeping.”
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

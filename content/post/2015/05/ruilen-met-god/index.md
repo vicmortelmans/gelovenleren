@@ -1,0 +1,22 @@
+---
+title: "Ruilen met God"
+date: "2015-05-06"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [184\. Woensdag na de Vierde Zondag na Pasen](http://ift.tt/1GNHOM9)
+
+„O God die ons aan de éne, hoogste godheid hebt deelachtig gemaakt dor de eerbiedwaardige ruilhandel van dit offer, geef ons, bidden wij U, dat wij de waarheid die wij kennen, door een waardige levenswandel mogen bereiken” ( secreta van de Zondag).
+
+1\. Het offergebed der mis bevat een gedachte die de liturgie meermalen formuleert en die hier tot uiting komt in het éne woordje _commercia_ wat vertaald werd met „ruilhandel” . Dit klinkt misschien wat cru (al is het ook zeker de oorspronkelijke zin), maar de bedoeling is deze: de mens geeft God wat het zijne is (maar wat nooit werkelijk van hem is zolang hij het God niet terugschenkt) en ontvangt daarvoor in ruil het goddelijke want _eeuwige_ leven, het kindschap Gods, de vereniging met God. Waarlijk „een wondere ruil: de Schepper van het menselijk geslacht verwaardigde zich (van ons) een levend lichaam aan te nemen en uit de Maagd geboren te worden, en mens geworden uit de Maagd, heeft Hij ons zijn godheid geschonken” (antifoon onder het octaaf van Kerstmis). Deze eerste ruil ligt aan de gehele verlossing ten grondslag: de mensheid schonk door de allerzuiverste Maagd het Woord Gods een lichaam waardoor Hij werd vlees van ons vlees, bloed van ons bloed, één van ons, waarlijk mens. En Hij, God en mens, Christus, de enige Zoon, gaf ons „de mogelijkheid kinderen Gods te worden” ( Joh. 1, 12 ), evenals Hij _kinderen_ in plaats van alleen maar schepselen en dienaren Gods. Dat vlees van ons vlees, dat levende lichaam, dat lijden kon en sidderend gevoelig was als alle vlees, werd gekruisigd, — en toen brak open de bron der genade, de stroom van het eeuwige leven vloeide als het water en bloed uit zijn zijde. Deze ruil gaat immer door; want de mis is het kruisoffer onder ons tegenwoordig. In de mis brengt de mens brood en wijn naar het altaar, de voortbrengselen van zijn arbeid, die zijn leven onderhouden, die zijn leven en zo hemzelf verzinnebeelden, — en hij ontvangt deze gaven terug als het lichaam en het bloed des Heren waardoor hij leeft dat andere leven, het leven van de Zoon Gods. Wonderbare ruil …
+
+2\. Want het is waar: wat wij van God terug ontvangen, is zodanig dat wij het ons niet eens waarlijk denken kunnen. Deelgenootschap aan de ene hoogste godheid (liturgie), eeuwig leven ( Sint Jan ), deelgenootschap aan de goddelijke natuur ( 2 Petr. 1, 4 ): hoe wij het noemen mogen, we kunnen het niet in begrippen vatten, maar we mogen het léven, het bezitten: Christus' leven in ons. Wij bezitten het in beginsel. Als wij ons niet verzetten, groeit het in ons en wordt het sterker, zodat het gaat overheersen en bezit nemen van ons, van binnen uit. Wanneer wij willen wat God wil, zal ons leven gaan in de richting van wat Paulus noemde: „Niet ik leef, maar Christus leeft in mij” . Wachten wij ons toch voor de grote fout, te denken dat dit leven niet of minder reëel zou zijn, omdat ik het niet zuiver denken kan en omdat het zo „verheven” is. Het is reëler dan dit papier dat mijn ogen zien de deze geluiden die mijn oor treffen.
+
+3\. Hoe reëel het is, dat ervaren wij pas, als wij ons deel van de ruilhandel ernstig nemen en fair uitvoeren. Dat doen er slechts weinigen. Het is waar: wat wij God bieden lijkt weinig en wat Hij geeft is ondenkbaar veel. Maar vergeet het niet: ook God vraagt van mij alles. Hij vraagt niet dit beetje tijd, geld, moeite (dat is: geboden en oude Wet), Hij vraagt _mijzelf_ en daarmee alles: „Als iemand mijn volgeling wil zijn, moet hij _zichzelf_ verloochenen … Wie zijn leven verliest om Mij, zal het redden” (en dit is de wet der liefde). — Pas als ik mezelf opgeef (radicaal: vanaf de wortel en daarom altijd opnieuw en altijd helemaal), gaat Christus in mij leven, — en naar de mate waarin ik mezelf vergeet voor mijn evenmens, _want dat is hetzelfde_ . Ik zelf ga onder, mijn oude zelf verdwijnt (en in Christus, die het hoofd is van alles, vind of hervind ik mijn ware zelf; maar daarom hoef ik mij niet te bekommeren).
+
+Zoete Moeder, die aan de mensheid Jezus hebt geschonken, geef ons aan Hem, opdat wij ons leven in Hem verliezend het eeuwige leven in Hem mogen vinden.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

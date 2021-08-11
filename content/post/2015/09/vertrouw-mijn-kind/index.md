@@ -1,0 +1,22 @@
+---
+title: "Vertrouw, mijn kind"
+date: "2015-09-27"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 328\. Achttiende Zondag na Pinksteren
+
+Het evangelie van vandaag ( Mt.9, 1-8 ) geeft ons in al zijn kortheid een indrukwekkend beeld van Jezus' bovenaardse macht en majesteit. Die tekst is daarom zeer geschikt de voornaamste les te vormen van de zondagsliturgie. De hoogmis is het hoogtepunt in het leven der Kerk. De Heer zelf is dan tegenwoordig met de zijnen onder de sacramentele tekenen van het offer, maar Hij openbaart zich ook door zijn Geest in het woord Gods, dat blijft in eeuwigheid.
+
+1\. Het evangelie verhaalt de genezing van een lamme, die men op een draagbaar of rustbed voor Jezus' voeten had neergelaten (door het dak nog wel), terwijl Hij, van alle kanten door de menigte omgeven, de boodschap van het rijk Gods verkondigde. Maar vóór de man door Jezus werd genezen vond er iets anders plaats. „Hun vertrouwvol geloof ziende zie Hij tot de lamme: „Schep moed, kind, je zonden zijn vergeven!” ” Dit was ongehoord. Wonderbare genezingen kon men nog enigszins verdragen; men moest ze trouwens wel verdragen; feiten die voor ieders oog plaats grepen vielen niet te ontkennen. Daar kon men hoogstens een valse verklaring aan trachten te geven. Maar deze pretentie, waaraan geen profeet ooit had gedacht: zonden te willen vergeven! Dat kon God alleen. En daarom staat er: „enkele schriftgeleerden dachten bij zichzelf: „Deze man lastert God” ” . Maar Jezus doorzag hun gedachten. En Hij geeft nu aan zijn daad van barmhartigheid jegens de ongelukkige invalide uitdrukkelijk een hogere zin: het wonder moet voor die onwilligen bewijzen dat Hij wel degelijk als door God gezonden messias „op aarde” de macht bezit de zonden te vergeven. Het was op zichzelf genomen even gemakkelijk (of moeilijk) te zeggen: „Uw zonden zijn u vergeven” , als: „Sta op en wandel” . Maar wie het laatste zei kon niet bedriegen, daar eenieder kon constateren of hij met macht en recht zo had gesproken. „En Hij zei tot de lamme: „Sta op, neem zelf dat bed op een _loop_ naar je huis.” En hij stond op en liep naar huis. Toen de mensen dit zagen, kwamen zij diep onder de indruk en zij verheerlijkten God die zulk een macht aan mensen had gegeven.”
+
+2\. Ook wij verheerlijken God vol ontzag in de liturgie van de kerk. Ook wij verheerlijken God allereerst en allermeest om zijn genade ons in Christus geschonken. Jezus openbaart zich in het evangelie aan ons als Degene die harten en nieren doorgrondt, die ons doorschouwt, die ons kent tot op de bodem van ons wezen. Hij ontmaskert de geheimste gedachten van zijn tegenstanders. En wederom geeft Hij zich te kennen als Degene die souverein heerst over de krachten van de natuur en van het leven. Hij geneest door zijn woord alleen, in één ogenblik herstelt Hij het lichaam in zijn oorspronkelijke ongeschondenheid. En bovenal bewijst Hij aan wie hun hart niet voor de openbaring sluiten, dat Hij de macht bezit die beschikt over het _eeuwige_ leven. Door de vergiffenis der zonden te schenken toont Hij ons dat al de wonderen van genezing en opwekking ten leven die het evangelie verhaalt eigenlijk slechts zinnebeelden zijn van de oneindig hogere macht die in waarheid aan God alleen toekomt.
+
+3\. Wat wordt ons hier gevraagd? Niets dan dat ook wij „vertrouwen en geloven” . Ook wij komen bij Christus met zonden beladen en met onedele gedachten vervuld. Ook aan ons hart knaagt afgunst. Ook ons verlamt wantrouwen en kleinmoedigheid. Jezus die de harten doorgrondt moet ook bij ons geloof kunnen zien. Dan spreekt Hij ook tot mij: „Schep moed, kind, je zonden zijn vergeven” . _Geloof_ wordt van ons gevraagd. Denk niet dat het weinig is. Denk niet dat vertrouwen gemakkelijk is of onbelangrijk, omdat wij menen door gebrek aan vertrouwen niet licht een grote zonde te bedrijven. Men kan zeggen: gebrek aan vertrouwen is onze enige zonde tegen Jezus. Voor al het andere geldt: Schep moed, kind. Maar voor dit kwaad is geen kruid gewassen.
+
+Bidden wij om geloof in de Heer voor onszelf en voor allen die staan in een wereld, die van God verlaten schijnt, die zelf de natuur meent te beheersen, die de zonde niet telt en voor wie de macht om haar te vergeven een volkomen zinloze formule is geworden.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

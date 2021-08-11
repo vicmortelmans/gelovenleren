@@ -1,0 +1,46 @@
+---
+title: "“Zorg dat u niet meer zondigt, anders zou u nog iets ergers kunnen overkomen!” (Joh 5,14)"
+date: "2010-11-07"
+categories: 
+  - "blog"
+tags: 
+  - "ethiek"
+---
+
+## Denkvermogen
+
+Er zijn de laatste week tientallen bijdrages verschenen in kranten en blogs over de citaten uit mgr. Léonards boek _["Monseigneur Léonard - gesprekken"](http://www.boek.be/boek/mgr-leonard)_. Meestal waren die zo emotioneel dat ze elke overtuigingskracht ontbraken en mij rillingen bezorgden, vaststellend hoe beperkt het denkvermogen in het publieke debat nog is. Er is maar één artikel dat mij heeft kunnen doen twijfelen mijn steun voor de aartsbisschop te doen opgeven, en wel dat van Mark van de Voorde. Hij raakt de kern van de tweespalt die er bestaat tussen een bepaald mondig binnen-kerkelijk publiek enerzijds en anderzijds het deel van het kerkelijk gezag dat de kerkelijke leer nog wil vertegenwoordigen.
+
+## Natuurwet
+
+VDV doet moeite om Léonards stelling te begrijpen, maar -naar hij rapporteert- lukte hem dat niet. In het betoog van de aartsbisschop meent hij een tegenstelling te ontmaskeren. Léonard valt impliciet terug op het concept van de natuurwet. Maar de natuurwet is een zedelijke wet, en niet te verwarren met onze biologische natuur, die ook zijn wetmatigheden heeft, waarvan bijvoorbeeld ziektes en seksuele driften onderdeel uitmaken. De natuurwet -volgens VDV een deel van onze cultuur, zoals hij vroeger reeds betoogde, maar volgens de kerk een deel van ons bewustzijn dat direct relateert naar de wijsheid van de scheppende God-, is juist een rem op onze biologische reacties.
+
+De fysieke natuur, waartoe een ziekte behoort, is niet rechtvaardig, merkt VDV terecht op, het is een proces van oorzaken en gevolgen, en die zijn -naar christelijke normen- meestal juist heel onrechtvaardig. VDV meent dus dat Léonard de gerechtigheid toewijst aan het proces dat zich in de fysieke (biologische) natuur van de mens afspeelt, en toont vanuit die veronderstelling aan dat er van gerechtigheid geen sprake kan zijn. De natuurwet in de werkelijke betekenis, heeft VDV echter gemakkelijkheidshalve, maar onterecht aan de kant gezet en daarmee creëert hijzelf de tegenstrijdigheid die hij Léonard verwijt.
+
+Het fysisch proces van oorzaak en gevolg voltrekt zich deels volgens toeval en buiten onze wil om (dus zonder schuld), deels veroorzaakt door ons collectief handelen (dus met een soort van gedeelde schuld), deels veroorzaakt door ons individueel handelen (dus met een duidelijke persoonlijke schuld). De overdracht van AIDS als gevolg van promiscuiteit valt onder laatste categerie, maar dat betekent -volgens VDV, die wel de schuld erkent- niet dat de verhouding tussen oorzaak en gevolg ‘rechtvaardig’ is. Of dat het het gevolgd derhalve een ‘straf’ zou zijn.
+
+## Een nieuwe verklaring
+
+Het begrip ‘immanente rechtvaardigheid’ is ondertussen al op tal van manieren verklaard en geinterpreteerd, maar persoonlijk hou ik eraan mgr. Léonard recht te doen in zijn eerlijke mening, en een nieuwe verklaring te lanceren die m.i. nauw aansluit bij wat het begrip werkelijk inhoudt, en hoe het ook inpasbaar is een (christelijk) ethisch discours, zelfs voor wie het personalisme boven de natuurwet stelt.
+
+Wie de natuurlijke zedenwet overtreedt en als gevolg daarvan ziek wordt, roept op het ogenblik van de overtreding reeds de straf af over zichzelf. Het oordeel wordt niet door mens of God uitgesproken, maar door de zondaar zelf. Het is deze ‘immanentie’ die de ‘rechtvaardigheid’ beperkt tot de persoon en tot de relatie van zijn vrije wil tot het causale proces dat zich afspeelt in zijn fysieke natuur. Zonde en straf, in combinatie ‘rechtvaardigheid’ geheten, worden ‘immanent’ aan mekaar. Die beperking, de ‘immanentie’, impliceert meteen dat God (of de kerk) niet in dit oordeel betrokken wordt, maar Zijn (of haar) rol ten volle mag (en moet) spelen, die bestaat uit genade en naastenliefde.
+
+## Ziekte en zonde bij Jezus
+
+Christus heeft indertijd een aantal lammen genezen. Lucas verhaalt ([Lc 5,17-26](http://www.willibrordbijbel.nl/?p=page&i=65957%2C65966&wbv=on)) hoe voor Christus’ voeten een lamme werd neergelaten. Hij vergaf eerst de zieke zijn zonden, en nadien pas liet Hij de zieke opstaan. Het was een retorische truuk om de aanwezige farizeeërs te laten zien dat het mogelijk was dat iemands zonden op aarde vergeven worden. Als hij, de Mensenzoon, immers zieken kon genezen, dan kon hij toch zeker iemands zonden vergeven? Johannes vertelt ([Joh 5,1-18](http://www.willibrordbijbel.nl/?p=page&i=67045%2C67062&wbv=on)) wat Jezus nog aan de zieke te vertellen had, nadat hij hem had genezen: “U bent nu gezond, zorg dat u niet meer zondigt, anders zou u nog iets ergers kunnen overkomen!”. Jezus genas niet zomaar, om te genezen. Jezus genas om de zonde weg te nemen. In Jezus’ optreden zelf, is de ziekte een verzinnebeelding van de zonde. Jezus focust niet op de ziekte, maar op de zonde die de zieke bedreven had. Maar langs de andere kant is het wel de ziekte die tot geloof, het vertrouwen in Jezus, heeft gevoerd, en dus ook tot de genade!
+
+## Waarheid
+
+Naar mijn mening zit er daarom een cruciale leemte in het godsbeeld van Van de Voorde (en met hem de goegemeente van de Vlaamse kerk). Rond Christus’ heilsmysterie heerst een drammerige theologische retoriek die volgens het mechanisme van de self-fulfulling prophecy, de zonde onderdompelt in een poel van barmhartigheid (lees: relativisme) en de facto afschaft. Zij vergeten dat men moet barmhartig zijn jegens de zondaar, niet jegens de zonde! Het eerste slachtoffer is de waarheid. Een van de symptomen daarvan is het verschijnsel dat in het publieke debat niet langer met rationele argumenten wordt gestreden en men niet oprecht naar waarheid op zoek is, maar dat alle retoriek zich ontspint rond gevoelens en emoties. Het komt er in de publieke opinie vandaag op aan wie zich ‘beledigd’ voelt, wie ‘geschokt’ is, wie zich ‘veroordeeld’ voelt door andermans uitspraken, etc... Als illustratie mag het debat gelden dat aanleiding geeft aan dit artikel. Of iets al dan niet waar is, wordt daardoor irrelevant.
+
+## Naturalisme voorbijgestreefd
+
+VDV en met hem de meesten van Léonards kritikasters, weten geen weg met de natuurwet, die als algemeen geldende waarheid het fundament vormt van het ethische discours van de katholieke kerk. Hetzelfde kon worden waargenomen bij het recente IVF-debat, waarvan de ethische fundamenten ook in de natuurwet liggen. Ze voeren het begrip natuurwet echter af als ‘wetenschappelijk voorbijgestreefd’. Is het concept ‘natuurwet’ dan echt dood en begraven? In de katechismus, naar ik mag hopen toch een wetenschappelijk onderbouwd werk, is er een hoofdstuk “Het heil van God: Wet en genade” dat uitvoerig over de natuurwet handelt. Ook voor onze paus, toch niet de minste onder de theologen, is de natuurwet een levend begrip. In zijn [toespraak](http://www.medische-ethiek.nl/modules/news/article.php?storyid=996) tot de Pauselijke Academie voor het Leven eerder dit jaar, merkt Benedictus XVI op dat de natuurwet een noodzakelijk beginsel is om ueberhaupt over ethische rechtvaardigheid te kunnen spreken.
+
+Het lijkt me dan ook onjuist te stellen dat nieuwe inzichten in het ethisch discours, zoals het personalisme, een einde gemaakt hebben aan de waarheid van de natuurwet. Het is een bekend, maar intellectueel oneerlijk gebruik, telkenmale de schepen achter zich te verbranden, wanneer nieuwe inzichten zich aandienen. Het is veel waardevoller te trachten het oude met het nieuwe te verzoenen, zoals paus Johannes-Paulus II heeft gepoogd het personalisme met de natuurwet te verzoenen in [Veritatis Splendor](http://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=83&id=2503), mooi geïllustreerd door het antwoord van Jezus op de vraag van de jonge rijke, eerst de geboden te onderhouden, dan alles achter te laten en Hem te volgen ([Mt. 19,16-21](http://www.willibrordbijbel.nl/?p=page&i=64611%2C64628&wbv=on)). Wanneer theologische inzichten evolueren, is het meestal zo dat noch het oude inzicht, noch het nieuwe inzicht, afzonderlijk een volmaakt beeld van Christus’ boodschap bieden, maar dat slechts de verzoening van het oude met het nieuwe inzicht een meer volmaakt beeld kunnen scheppen. De verwerping van het oude ten gunste van het nieuwe is een achteruitgang, geen vooruitgang.
+
+## Besluit
+
+Als Jezus keer op keer spreekt over de zonde, wie zijn wij dat we menen erover te mogen zwijgen? De mensen van Jezus’ tijd stonden versteld als een zieke genas. Voor hen was de ziekte normaler dan de genezing. Vandaag is het omgekeerd. Is het daarom dat Jezus’ retoriek vandaag geen vat meer op ons lijkt te hebben? Samen met de ernst van ziek-zijn, is de ernst van zondig-zijn gedevalueerd... Zorgen voor zieken, dat is naastenliefde, dus vanzelfsprekend een taak waarvoor de Heer ons geroepen heeft, maar evenzo roept hij ons de zonde te erkennen. Hij vaardigde immers een nieuwe wet uit, onze naasten lief te hebben zoals Hij ons heeft liefgehad. En hoe heeft Jezus ons lief? Eerst maakt hij ons ervan bewust hoe we door onze zonden afgekeerd zijn van God en Zijn wet. Als we geloven in de kracht van Zijn genade, ontvangen we de vergiffenis, die nodig is om ons leven opnieuw naar God te richten. 
+
+_Dit artikel verscheen ook in Catholica._

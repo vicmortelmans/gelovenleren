@@ -1,0 +1,22 @@
+---
+title: "De navolging van Christus V Versterving"
+date: "2015-07-06"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [245\. Maandag na de Zesde Zondag na Pinksteren](http://ift.tt/1ReIRQn)
+
+In het diepzinnig epistel van de Zondag lezen wij de volgende woorden: „Wij allen die gedoopt zijn tot de gemeenschap met Christus Jezus, zijn gedoopt tot de gemeenschap met zijn dood … Dit weten wij: onze oude mens is gekruisigd met Hem opdat het lichaam der zonde ten onder zou worden gebracht en wij niet langer slaven der zonde zouden zijn” ( Rom. 6, 3. 6 ).
+
+1\. Het woord versterving heeft een onaangename klank. De ongelovige mens vindt dit begrip zonder meer onzinnig en de natuur van _elke_ mens komt in opstand tegen datgene wat zij terecht beschouwt als een aanslag op haar ongeremde ontplooiing. Het is daarom in de eerste plaats noodzakelijk zich een juist begrip van de versterving te vormen. Zij bestaat niet in een doding van de natuur, zelfs niet in een bestrijding van de natuur zonder meer, doch alleen in een standvastig pogen onze door de erfzonde gewonde natuur met haar neiging tot excessen te matigen en te regelen. Zij bestaat, eenvoudig gesproken, in de bestrijding der zelfzucht. Omdat haar beoefening ons zwaar valt, is het vervolgens nodig de overtuiging omtrent de onmisbaarheid der christelijke versterving te vestigen op de deugdelijkste gronden; het zijn juist de motieven, die haar een christelijk karakter verlenen. Een hiervan vinden wij aangegeven in het epistel van heden. Het is alleen jammer dat deze verheven leer van de brief aan de Romeinen in een taal staat uitgedrukt die de moderne christen moeilijk verstaat. Wat de apostel bedoelt, komt hierop neer. Aan het begin van het christelijk leven staat het doopsel. Dit schenkt de mens een gelijkenis met Christus. (Deze gelijkenis is om zo te zeggen de christelijke natuur. Jezus is de enige bron van alle bovennatuurlijk leven. Slechts in zover de mens met Christus verenigd op Hem gelijkt, is hij christen.) Deze gelijkenis ontvangt de mens om niet, als loutere gave van God. Maar zij is slechts een begin, een aanleg. De taak van de christen, waartoe alleen Gods genade hem in staat stelt, is juist geen andere dan dat hij deze gelijkenis met Christus voortzet en sterker maakt en uitbouwt in heel zijn leven, haar het ideale beeld, de „mannenmaat van de volwassen Christus” , nabijbrengt. God voltooit het werk door de christelijke dood, de hemelse glorie en de verrijzenis. Het ideale beeld van de Heer, waartoe hij de aanleg in het doopsel ingeprent ontvangt, moet de christen steeds voor ogen zweven als het doel waarnaar geheel zijn leven streeft.
+
+Het is ermee als wanneer men zaad in de grond stopt. Na lange tijd schiet er een plantje op. De plant groeit en zet knoppen. Uit de knop breekt een kleurige bloem. Om die bloem was het begonnen. Welk een verschil tussen het onooglijke zaad en de stralende bloem! Toch werkt in beide hetzelfde leven. Zo ontvangt de mens de doopgenade als een zaad. Maar er is een verschil: het zaad ontwikkelt zich vanzelf, de genade niet. De genade is een gave Gods en tegelijk een opgave, een taak waaraan de mens uit alle kracht moet werken. De mens is vrij en geen ding van de natuur. Het zaad kan mislukken door duizend oorzaken van buiten, de christen alleen door het misbruik van zijn eigen vrijheid.
+
+2\. Wat heeft dit alles met de versterving te maken? Die gelijkenis met Jezus, zegt Sint Paulus , is dubbel: het doopsel geeft een gemeenschap met zijn dood en met zijn leven. In het doopsel sterft de zonde op mystieke wijze. Maar op werkelijke wijze sterft het egoïsme slechts langzaam en geleidelijk in heel ons leven tot en met onze lichamelijke dood. Dit doodhouden van de zonde, dit doodmaken van de zondige neigingen, is de versterving. Zij schenkt een mystieke gelijkenis met de beminde Heer. „Eén is gestorven, dus zijn allen gestorven” ( 2 Kor. 5, 14 ). En het inwendige en lichamelijke lijden maakt haar sterk en diep, zo wij het sterven van Jezus ronddragen in ons vlees ( 2 Kor. 4, 10 ).
+
+Liefde gaat rechtstreeks op dit doel af. Zij heeft geen bespiegelingen van node, geen andere dan het aanschouwen van het kruis. Zij ziet haar Meester lijden en sterven en wil Hem gelijken. Christelijk zijn werkt hier spontaan en getrouw aan christen aard, want „wij allen die gedoopt zijn tot de gemeenschap met Christus, zijn gedoopt tot de gemeenschap met zijn dood” .
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

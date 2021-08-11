@@ -1,0 +1,18 @@
+---
+title: "De nieuwe geest"
+date: "2015-03-18"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [135\. Woensdag na de Vierde Zondag van de vasten](http://ift.tt/1MLoKl6)
+
+De mis van vandaag is weer geheel vervuld van de gedachten en beelden der doop-symboliek. De blinde van het evangelie, die op Christus' woord het slijk van zijn ogen wegwast in het bad Siloë ( „dat is: Gezondene” ) en zo van zijn blindheid wordt genezen, is de catechumeen die na gezalfd te zijn ( vgl. de homilie van Sint Augustinus ) in het doopsel wordt „verlicht” , met het licht Gods wordt overgoten. Het bad Siloë verzinnebeeldt het doopsel en tegelijk Christus, de Gezondene. Het reinigt en verlicht tevens. En juist deze dubbele werking van het eerste sacrament leefde sterk in het besef der christelijke oudheid: het doopsel reinigt de ziel van de besmetting der zonde en overstroomt haar met Christus' licht. Wat ook de nadelen zijn geweest van de lang uitgestelde doop der volwassenen (en zij waren zo groot dat de Kerk deze praktijk heeft afgeschaft), winst was de bewustheid en vrijheid waarmee men christen werd en de ervaring der verlossing na de ervaring der zonde. En voor ons die het geluk smaakten van jongs af op te groeien in de zegeningen der Moederkerk, blijft het dure christenplicht ons altijd opnieuw te bezinnen op de betekenis van het doopsel. De introitus en de lessen leggen in schone profetische teksten de nadruk op de reiniging der ziel. „Ik zal zuiver water over u uitgieten en gij zult gereinigd worden van al uw besmetting” ( Ez. 36, 25 ). „Wast u, reinigt u!” ( Is. 1, 16 ).
+
+En tevens geeft de eerste les, een van Ezekiël s diepste woorden, het positieve element aan van het christelijk heil, „het nieuwe hart en de nieuwe geest” , die in de plaats van het oude komen. „Ik zal het stenen hart uit uw lijf nemen en u een hart van vlees geven.” Christus verlicht de mens in het doopsel, de Geest schenkt de mens het licht Gods, want „de Heer is de Geest” ( 2 Kor. 3, 17 ): de verheerlijkte Zaligmaker, van de Heilige Geest vervuld, schenkt de Geest aan de zijnen. En de Geest van Jezus is geen uitwendige gave, geen cadeau dat men in de hand ontvangt. Hij komt in ons en wil samensmelten met onze geest tot een „nieuw hart en een nieuwe geest” . „ „Dan behoeven zij elkander niet meer te leren, de een tot de ander niet meer te zeggen: „Leert de Heer kennen.” Neen, dan zullen zij allen Mij kennen, kleinen en groten” , zegt de Heer” ( Jer. 31, 34 ). „Allen zullen leerlingen van God zelf zijn” ( Joh. 6, 45 ).
+
+Moet deze volheid en vrijheid des geestes, dit innerlijke licht Gods, door de profeten als het grote kenmerk der messiaanse tijden voorspeld, een droom, een utopie blijven? Keren wij ons, als de genezen blinde, met nederig geloof en vertrouwvolle overgave, tot Jezus, het Licht der wereld. Want de onuitsprekelijke gave Gods komt tot ons in het doopsel niet als een gift, kant en klaar en afgesloten, maar als een zaad dat ontkiemen en rijpen moet, als een levensbeginsel dat groeien wil, als een bron die opborrelt ten eeuwigen leven. Het nieuwe hart en de nieuwe geest moeten werkelijk worden geest en hart van al onze daden en de bezielende kern van heel ons leven. Gods genade doet een beroep op onze vrijheid die zij respecteert: de uitnodiging der goddelijke liefde in Christus tot ons gericht, de stem van de Geest die spreekt tot ons hart, opdat wij zijn roeping beantwoorden zouden en Hem beminnen uit geheel onze ziel en al onze krachten. Dan eerst wordt ons ten volle de nieuwe geest geschonken.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

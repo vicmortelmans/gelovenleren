@@ -1,0 +1,22 @@
+---
+title: "Het gezin van God"
+date: "2015-10-23"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 354\. Vrijdag na de een en twintigste Zondag na Pinksteren
+
+In de oratie van de Zondag bidden wij: „Behoed uw gezin, o Heer, in uw nooit aflatende liefde. Dan zal het door uw bescherming voor alle tegenspoed gevrijwaard blijven en zich geheel aan goede werken kunnen wijden, ter ere van uw naam.” .
+
+1\. Wanneer wij, onze gewoonte getrouw, ook dit gebed van het missaal in onze overwegingen betrekken, dan is het eerste wat ons opvalt het eerste woord _familiam tuam_ . De Kerk noemt zich Gods gezin. Zij bedoelt dan met _familia_ , in de zin der Oudheid, allen die tot één huishouding behoren en onder één heer staan, zowel slaven als vrijen. Op het gezag van de huisvader, die tegelijkertijd de meester van allen is, is de saamhorigheid gegrondvest. Vooral bij de Romeinen was de autoriteit van de _pater familias_ of heer des huizes zeer groot. God is de Vader en Heer van het éne grote gezin dat de Kerk is, samengesteld uit verscheidenheid van rangen en volken. Met dit spraakgebruik bevindt de liturgie zich op bijbelse bodem. Christus zelf spreekt in meerdere gelijkenissen van de huisheer en zijn dienaren. En Sint Paulus schrijft aan de Ephesiërs die van het heidendom tot de Kerk waren gekomen: „Gij zijt dus niet langer vreemdelingen en bijwoners, maar medeburgers der heiligen en huisgenoten van God” ( 2, 19 ). De eerste conclusie hieruit is eenvoudig deze: een sterk gevoel van saamhorigheid moet de leden der Kerk bezielen. Deze solidariteit is iets anders en hogers dan die door gelijkheid van ras, staat, taal en zeden. Zij kan er gedeeltelijk mee samengaan, maar is in wezen van natuurlijke banden onafhankelijk.
+
+2\. En daarom kan het hart van een katholiek door deernis bewogen zijn om mensen die hij nooit heeft gezien en hier op aarde nooit zal ontmoeten.
+
+Als wij bidden dat Gods bescherming zijn gezin voor alle tegenspoed mag vrijwaren, denken wij aan de vervolgingen waaraan Christus' lichaam op aarde blootstaat, altijd wel ergens en soms op vele plaatsen tegelijk. Het lot van onze medechristenen mag ons niet onverschillig laten, ook al wonen zij ver weg en dragen zij vreemde namen. Wij smeken om een ogenblik van verademing voor hen die bijna zonder ophouden worden gekweld, indachtig dat ook wijzelf voor de hoogste beproeving van onze trouw aan Christus gesteld kunnen worden. „Lever niet aan de wilde dieren de ziel van uw duifje, vergeet niet voor immer het leven van uw ellendigen” ( Ps.73, 19 ). Als gij u beklaagt over lauwheid in gebed, denk dan aan het lijden van Jezus' ledematen. Stel u dan levendig de angst der opgejaagden en de martelingen der gevangenen voor de geest, van hen die zo goed als eertijds de apostel Johannes in kampen en dwangarbeid wegkwijnen „om het woord van God en de getuigenis van Jezus” ( Openb.1, 9 ).
+
+3\. Het bewustzijn van de Kerk dat zij in Christus één gezin vormt spreekt het duidelijkst in de gebeden die het misoffer begeleiden. Altijd kunnen wij daar haar geest het zuiverst ontdekken. In de gebeden van de canon krijgen de priester en de gelovigen gelegenheid hun dierbaren, levenden en doden, te gedenken. Maar telkens weer treedt de gemeenschap als zodanig op, allen tezamen staan wij aan het altaar voor God: „Daarom, Heer, zijn wij, uw dienaren maar ook uw heilig volk, het zalige lijden van Christus indachtig…” Bij de offerande bidt de priester: „Aanvaardt, heilige Vader, almachtige eeuwige God, dit onbevlekte offer dat ik U opdraag … voor mijn zonden… en voor alle omstaanders, maar ook voor alle christengelovigen, hetzij levenden hetzij overledenen.” En zo voortdurend. Wij bidden als leden van Gods gezin tot _onze_ Vader, wij lijden en verheugen ons met elkaar, wij zijn voor elkander verantwoordelijk. De christen is geen afgezonderde, geen eenzame. In de gemeenschap van Christus wordt hij geheiligd en is hij sterk. Elke goede daad die ik in die gemeenschap verricht, verheerlijkt de naam van Christus en komt aan allen ten goede. De Kerk is gezin van God, zijn volk, zijn stad en tempel, zijn kinderen en huisgenoten, levende stenen die tezamen rusten op de hoeksteen Christus. Wij staan nooit alleen. Wij mogen ook nooit denken alleen te staan noch onze broeders en zusters door onze schuld in die waan laten.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

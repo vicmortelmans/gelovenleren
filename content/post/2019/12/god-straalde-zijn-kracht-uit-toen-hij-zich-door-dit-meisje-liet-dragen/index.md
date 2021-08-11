@@ -1,0 +1,11 @@
+---
+title: "God straalde zijn kracht uit, toen Hij zich door dit meisje liet dragen"
+date: "2019-12-21"
+categories: 
+  - "gouden-boek"
+coverImage: "unnamed-file-25.jpeg"
+---
+
+God, de Zoon is in haar maagdelijke schoot neergedaald als de nieuwe Adam in zijn aards paradijs: Hij wilde er zich vreugdevol vermeien en in verborgenheid wonderen van genade verrichten. De mensgeworden God beleefde zijn vrijheid, terwijl Hij zich gevangen wist in Maria’s schoot; en Hij straalde zijn kracht uit, toen Hij zich door dit meisje liet dragen. Zijn eigen glorie en die van de Vader wist Hij te verwezenlijken door zijn heerlijkheid voor alle schepselen te verbergen en alleen te openbaren aan Maria. Op glorievolle wijze bewees Hij zijn onafhankelijkheid en majesteit door bij zijn ontvangenis, geboorte, opdracht in de tempel, tijdens zijn dertigjarig verborgen leven en tot het ogenblik van zijn sterven afhankelijk te zijn van deze liefdevolle Maagd. Inderdaad, tot het ogenblik van zijn sterven; want zij moest daarbij tegenwoordig zijn, opdat zijn offer één geheel zou vormen met het hare. Hij wilde aan de eeuwige Vader geslachtofferd worden met haar toestemming, zoals eens Isaak opgedragen werd aan de wil van God door de toestemming van Abraham. Zij heeft Hem gezoogd, zij heeft voor zijn voedsel en onderhoud gezorgd, zij bracht Hem groot en offerde Hem voor ons. Deze afhankelijkheid van God is wel zo wonderbaar en onbegrijpelijk, dat de heilige Geest – om de waarde en oneindige glorie ervan te openbaren – er in het evangelie niet over heeft kunnen zwijgen, ofschoon Hij bijna alle wonderen door de mensgeworden Wijsheid gedaan tijdens haar verborgen leven, verzwegen heeft. Jezus Christus heeft meer glorie aan God zijn Vader gegeven door zich gedurende dertig jaar aan zijn moeder te onderwerpen, dan wanneer Hij door het verrichten van de grootste wonderen de hele wereld had bekeerd. Wat een hoge eer bewijzen we dus aan God als we ons, om Hem te behagen afhankelijk maken van Maria. We handelen dan immers in navolging van Jezus Christus, ons enig toonbeeld.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

@@ -1,0 +1,10 @@
+---
+title: "Die mensen hebben hun krachten overschat en dachten, dat ze in staat waren zelf hun schat te behoeden"
+date: "2020-03-10"
+categories: 
+  - "gouden-boek"
+---
+
+Ten tweede. De duivels, geslepen dieven als zij zijn, proberen ons onverwachts te overvallen, te bestelen en uit te plunderen. Dag en nacht loeren zij op een gunstig ogenblik. Voortdurend gaan ze rond om ons te verslinden en in één moment, door één zonde alles te ontnemen wat wij in vele jaren aan genaden en verdiensten hebben kunnen verwerven. En dit gevaar is werkelijk te vrezen, indien wij hun boosheid en doortraptheid in aanmerking nemen, hun listen en groot aantal. Zie maar eens hoevelen er niet overrompeld, bestolen, uitgeplunderd zijn, die meer begenadigd waren dan wij, deugdzamer, ervarener en verder gevorderd in heiligheid. Hoeveel ceders van de Libanon, hoeveel sterren van het firmament heeft men niet jammerlijk zien neerstorten en in korte tijd alle grootheid en glans verliezen. Vanwaar die onverklaarbare catastrofen? De genade heeft niet ontbroken, want die krijgt iedereen genoeg, maar wel de nederigheid. Die mensen hebben hun krachten overschat. Ze dachten, dat ze in staat waren zelf hun schat te behoeden. In hun zelfvertrouwen steunden zij te veel op zichzelf en meenden, dat hun huis veilig genoeg, hun brandkast sterk genoeg was, om het kostbaar kleinood van de genade te bewaren. Maar juist om dit onmerkbaar zelfvertrouwen, al dachten ze ook alleen op de genade te steunen, liet Gods rechtvaardigheid hen aan hun eigen lot over en belette niet, dat ze bestolen werden. Hadden ze maar de bewonderenswaardige devotie gekend, die ik later zal uitleggen, dan zouden ze hun schat aan een machtige en getrouwe Maagd hebben toevertrouwd. Zij zou het als een plicht van rechtvaardigheid beschouwd hebben, die schat als haar eigen bezit voor hen te bewaren.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

@@ -1,0 +1,20 @@
+---
+title: "Levende godsdienst"
+date: "2015-10-21"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 352\. Woensdag na de een en twintigste Zondag na Pinksteren
+
+„In salutari tuo anima mea” , zo vangt de communiezang van de Zondag aan: „in uw heil mijn ziel” . Het klinkt als het gestamel van godsverlangen, samengedrongen in een zo kort mogelijke, bijna onbeholpen formule. De oorspronkelijke tekst luidt: „Mijn ziel smacht naar uw heil. Ik verbeid uw woord” ( Ps.118, 81 ). De psalmist vat heel zijn innerlijk streven samen en legt het neer voor Gods aanschijn. „Mijn ogen smachten naar uw belofte. Wanneer zult Gij mij vertroosten?” ( Ps.118, 82 ).
+
+1\. Wat ons altijd weer treft in de psalmen en wat deze oude liederen over zoveel eeuwen heen verbindt met de vroomheid der christenen, is hun levende, waarachtige godsdienst. Voor de zangers van Israël geldt evenzeer als voor de heiligen van het Nieuw Verbond : de verhouding van de mens tot God is de hoogste werkelijkheid waarbij vergeleken alle andere dingen hun belangrijkheid verliezen. Het is waar dat wij in de psalmen niet zelden gebeden en zorgen van tijdelijke aard ontmoeten en zelfs vervloekingen van de vijanden. Maar als wij nauwlettend toezien, zullen wij meestal vaststellen dat alles, ziekte, vervolging, dood toch alleen daarom als kwaad wordt beschouwd, omdat het, naar de nog onvolmaakte opvattingen dier tijden, een mens belet God te dienen of als een uitvloeisel en teken van de toorn des Heren wordt gedacht. Waar het op aankomt, is altijd: de levende gemeenschap met God. „Gods nabijheid is mijn geluk” ( 72, 28 ). „Behoed mij, o God, want ik vlucht tot U. Ik zeide tot de Heer: „Gij zijt mijn geluk” ” ( 15, 1 ). „Tot U, Heer verhef ik mijn ziel. Mijn God, op U vertrouw ik” ( 24, 1. 2 ). „De Heer is mijn licht en mijn heil. Wie zou ik vrezen?” ( 26, 1 ). En zo gaat het verder, door heel het psalterium heen, één thema in alle toonaarden en variaties.
+
+2\. God kennen en beminnen, naar Hem verlangen en op Hem vertrouwen, Hem loven en aanroepen is het leven der ziel. En deze vrede is elk ogenblik mogelijk voor de mensen van goede wil. Dit essentiële geluk staat altijd binnen ons bereik. Want zoudt gij willen opwerpen dat drukke bezigheden u dit beletten, dan antwoord ik: zie naar vele heiligen die oneindig meer presteerden dan gij! Werk vormt geen hinderpaal (eer het tegendeel), maar uw eigen wil, die zich niet voldoende heeft geoefend om God te vinden ook bij uw arbeid, en uw geest, die nog niet vergeestelijkt genoeg is om zich zijn diepste Grond bewust te worden, gemakkelijk en vlug, in het ondeelbare ogenblik waarmee de beweging der liefde volstaat. En indien gij zegt: „ik ben verbitterd” , of: „ik voel mij troosteloos en verlaten” , of: „ik ben niet bereid God te geven wat hij vraagt” , — wat belet u _met deze nood_ voor zijn aanschijn te treden? God verlangt naar u _zoals gij zijt_ om van u te maken wat gij nog niet zijt, maar door zijn immer werkende liefde worden zult, zo gij slechts in die liefde wilt geloven. „Tot U, o Heer, verhef ik mijn ziel.” Mijn ziel smacht naar uw heil. God vraagt niet meer dan een _oprecht_ verlangen. Hij eist niet van ons dat wij acht uur per dag bidden zoals Franciscus Borgias (Hij verwacht zeker niet dat wij daarmee beginnen en waarschijnlijk evenmin dat wij aldus eindigen). Wat Hij wel vraagt, van ieder van ons, is: levende godsdienst, de voortdurende strijd om een eerlijke en innige verhouding tot Hem. Iets wat leeft in ons innerlijk, wat echt is en oprecht, wat groeit en zich uit en de kern uitmaakt van ons leven. Wat in de grond _zeer eenvoudig_ is (al kost het ongekende moeite) en waarvan geen gewoonte en gehechtheid, geen vrees en bedenkingen ons mogen afhouden. „Bij U is de bron des levens” ( Ps.35, 10 ).
+
+Mogen wij, o zoete Moeder, gestorven aan de zonde voor God leven in Christus Jezus.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

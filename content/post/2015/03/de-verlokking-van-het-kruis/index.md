@@ -1,0 +1,22 @@
+---
+title: "De verlokking van het kruis"
+date: "2015-03-28"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [145\. Zaterdag na Passiezondag](http://ift.tt/1EdZjcA)
+
+Deze dag voert ons tot de drempel van Jezus' Passie. Dringender dan ooit klagen de gezangen ( introitus , graduale , communio ) over de bittere haat en de trouweloosheid van de vijanden die de Heer ten dode toe vervolgen. „Lever mij niet uit aan het begeren mijner kwellers, want valse getuigen zijn tegen mij opgestaan en de ongerechtigheid heeft tegen zichzelf gelogen” ( Ps. 26, 12 ). In de les, genomen uit Jeremias , verschijnt de profeet die van alle heiligen uit het Oude Verbond in zijn lot en leven op de treffendste wijze het lijden van de Zaligmaker heeft voorafgebeeld. „Heer, sla geen acht op mij en luister naar het roepen van mijn vijanden. Mogen zij goed en kwaad vergelden, dat ze mij een kuil graven? Gedenk hoe ik voor uw aanschijn stond en pleitte om uw gramschap van hen af te wenden” ( Jer. 18, 19. 20 ).
+
+1\. Maar in het evangelie spreekt de Heer zelf over het mysterie van zijn lijden, met de rust en de verheven wijsheid die het goddelijk Woord toekomen. Staande vlak voor zijn dood overwint Hij alle menselijke ontroering en Hij schouwt reeds de heerlijkheid die de schande van het kruis omstraalt: de glorie van de Vader, de verlossing van de mensheid, de bekering van de heidenen, de overwinning op de satan. „Het uur is gekomen dat de Zoon des mensen gaat verheerlijkt worden. Voorwaar, voorwaar, Ik zeg u: als de graankorrel niet in de aarde valt en sterft, blijft zij alleen. Maar zo zij sterft brengt ze rijke vruchten voort … Nu wordt het oordeel over deze wereld voltrokken. Nu zal de Vorst dezer wereld worden buitengeworpen. En wanneer Ik van de aarde omhoog ben geheven, zal Ik alleen tot Mij trekken” ( Joh. 12, 23. 24. 31. 32 ).
+
+2\. En wij vragen: Hoe kunt Gij zeggen dat Gij eenmaal verheven, allen tot u trekt? Hoevelen geven zich gewonnen aan de aantrekking die er uitgaat van uw kruis en uw verheerlijking? Hoevelen vervullen de eisen van uw verlossende liefde? Gij bezit de macht om allen voor U te winnen en de overvloed van leven die de gehele mensheid gelukkig kan maken. Vrienden en minnaars vindt Gij in alle tijden en onder alle soorten van mensen, maar _allen_ … Hoe ver lijkt de mensheid afgedwaald van uw kruis, hoe gering komt ons het getal voor van hen die U kennen en volgen …
+
+3\. Geven wij ons over aan de aantrekking van 's Heren liefde die als een machtige magneet de harten wil aanzuigen vanaf zijn kruis en tot zijn kruis. Laten wij gelijken op de gierigaard, die een geheime schat angstvallig bewaart en bestendig vermeerdert. Want de verlokking der goddelijke liefde is de schat die wij dragen in lemen vaten, die wij bewaren en koesteren willen in de wankele broosheid van ons hart. In het begin wordt zij nauwelijks door ons opgemerkt, omdat wij leven aan de buitenkant van ons bestaan, omdat wij het orgaan nog missen om haar waar te nemen en gelukkig te ondergaan in het diepst van onze ziel … maar zo de Heer onze zwakheid genadig is en wij eerlijk er naar streven geestelijke stilte te scheppen, wordt zij een drang zo sterk, dat _alles_ bezwijkt voor haar zegevierende kracht. Als wij ons steeds opnieuw gewonnen geven aan de bekoring van Gods liefde, worden wij vervoerd tot een zalige onmacht, tot een zoete gevangenschap die ons dierbaarder is dan alle dingen in hemel en op aarde en waaraan wij nooit meer wensen te ontkomen. „Wat begeer ik in de hemel en wat verlang ik op aarde buiten U? Mijn vlees en mijn hart bezwijken, mijns harten God en deel zijt Gij, o God, voor eeuwig” ( Ps. 72, 25. 26 ). „Leg mij op uw hart als een zegel, als een band om uw arm” ( Hooglied 8, 6 ).
+
+De ziel moet in beschouwing en onthechting attent worden voor de werking van Gods Geest. De aantrekking van Jezus' liefde geschiedt in de stilte en in het verborgen. Een mens die zichzelf bemint en de verstrooiing, die niet geleerd heeft in te keren tot zichzelf om daar God te zoeken, wordt haar nauwelijks gewaar. Niets is gemakkelijker dan de stem van God te overstemmen en niets op aarde is tragischer dan deze verwerping van zijn gave. Maar indien wij acht geven op onze Heer, zullen wij de stem van de Bruidegom vernemen en zalig zijn door de binding van de duizend koorden waarmee zijn liefde ons weet te omsnoeren. ( Os. 11, 4 ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

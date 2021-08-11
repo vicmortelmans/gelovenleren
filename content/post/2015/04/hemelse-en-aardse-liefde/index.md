@@ -1,0 +1,20 @@
+---
+title: "Hemelse en aardse liefde"
+date: "2015-04-27"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [175\. Maandag na de Derde Zondag na Pasen](http://ift.tt/1OWfETF)
+
+„Heer, mogen deze mysteriën ons de kracht verlenen om de aardse verlangens te matigen en de hemelse te leren liefhebben” , zo smeekt de Kerk in de secreta van de Zondag, — een zeer kort gebed maar dat in de Nederlandse vertaling nog altijd acht woorden méér telt dan in het oorspronkelijke Latijn. In haar oudste en beste gebeden streeft de liturgie er naar de dingen zo kort mogelijk te zeggen, en zo krachtig mogelijk. Zij versmaadt sentiment en oratorische zwier, ook als zij bidt, is het bijna met een gedrongen zakelijkheid waaronder echter een ingehouden vurigheid gloeit.
+
+1\. Hoe volmaakt stemt deze secreta overeen met het evangelie van de korte tijd en de vreugde van het weerzien! Wij bidden dat het mysterie van Christus' offer in ons zulke gesteltenis teweegbrengt als past aan leerlingen des Heren die nu, in dit kortstondige _modicum_ , wel bedroefd zijn, terwijl de wereld zich verblijdt, maar die weten dat het uur naderbijkomt van de vreugde welke „niemand hun zal ontnemen” . Zo zijn alle christenen gestemd, indien zij leven op de hoogte van hun roeping, indien zij „echt” zijn en waarachtig. Zij verlangen er naar bij hun Heer te zijn. Zij aanschouwen Hem in de duisternis van het geloof, een duisternis die hen niet belet (die zelfs daartoe de enige mogelijkheid biedt) Hem te kennen zoals Hij op aarde alleen gekend moet worden, en die hun somtijds een vermoeden schenkt van de oneindige glorie die Hij bezit bij zijn Vader in de eeuwigheid. „In het voorbijgaan wordt de Heer aanschouwd (zoals Zacheüs Hem zag uit de vijgeboom). Want door deze wijze dwaasheid (van het kruis) zien wij de goddelijke Wijsheid nog niet blijvend, zoals Zij is, maar als in het voorbijgaan en vluchtig, in het licht der beschouwing” Hierdoor wordt het verlangen van deze mensen naar de vereniging met God nog sterk aangewakkerd, want zij hebben de wereld voor Hem prijsgegeven en zij gelijken de bruid van het Hooglied : „Ik wil opstaan en rondgaan door de stad, mijn beminde zoeken op straten en pleinen. Ik zocht hem maar ik vond hem niet” ( Hoogl. 3, 2 ). Zij zoeken God alleen en _niets_ op aarde kan hen bevredigen dan de liefde die hen doet geven en lijden voor de Heer en voor allen die Hij liefheeft.
+
+2\. De Kerk bidt namens al haar kinderen en zij weet dat de meesten ver van zulk een ideaal verwijderd blijven. Maar haar gebeden zijn toch zó gesteld dat zij, in hun volle en diepe zin verstaan, dat ideaal van de volmaakte liefde telkens weer voor ons oproepen. Zij weet dat de „aardse begeerten” het grote beletsel vormen voor de „hemelse verlangens” . Deze komen niet vrij, omdat ons bewustzijn in beslag wordt genomen door al die bewegingen van vrees en hoop, van verlangen en haat en liefde, — waarvoor?
+
+Voor al de dingen waarvoor wij niet gemaakt zijn noch bestemd door de oneindige liefde van Christus die ons een hoger doel heeft gesteld. Daarom bidden wij om „matiging” van deze begeerten, om een afkoeling van die koorts, opdat er een begin van rust ontstaat en wij in staat zullen zijn het verlangen naar God en zijn rijk te _leren_ liefhebben. Wij bidden dat wij onze passies en begeerten mogen „matigen” , inperken binnen de grenzen van Gods wet. Niet dat wij ze vernietigen of verdringen, want zij vormen de grondstof van ons leven en de mogelijkheid van al onze liefde. Dan kan Gods zaad in ons wortel schieten en ontkiemen. En het is reeds veel zo dit wordt bereikt, want de eerste stappen op de smalle weg kosten de meeste moeite (het lijden is later wel heviger, maar de ziel is krachtiger geworden). En de Kerk weet ook dat de „hemelse begeerten” zo zij zich eenmaal beginnen meester te maken van ons hart, een mens kunnen drijven tot al de uitzinnigheden der liefde. Moge de deelname aan het dagelijkse offer ons sterken tot zulk een loutering en tot zulk een overgave.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

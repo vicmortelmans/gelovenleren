@@ -1,0 +1,22 @@
+---
+title: "Mijn ziel verheft de Heer"
+date: "2015-07-02"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [386\. Onze Lieve Vrouw Visitatie 2 juli](http://ift.tt/1NxWfJ7)
+
+Na de ernstige verlossingsmysteries der laatste weken brengt deze dag een lichte verkwikking voor de ziel. Wat mag de reden zijn, dat er over dit feest een poëtische glans ligt gespreid?
+
+Is het de middeleeuwse oorsprong, het epistel: een lentelied van liefde, het evangelie: lieflijke scène van de eerste madonnaschilder, of de herinnering aan de traditionele plaats van de ontmoeting: Ain Karim, een nest van witte daken onder donkergroene cypressen tegen de berghelling gedrukt? Misschien is het alleen al het beeld dat de eerste regel van het evangelie ( Lk. 1, 39-46 ) oproept: „In die dagen ging Maria op weg en reisde met spoed naar het bergland.” Maria, prille en zedige maagd, begeeft zich haastig, met lichte voet, langs de wegen van het Palestijnse land, in God, haar heil, verzonken, draagster van het geheim, dat enkel nog maar begenadiging is en geen kruis, louter blijde verwachting in de hoogste zin van het woord. Het geheim tussen God en haar waarvan geen mens weet, tenzij de Geest het openbaart. Door die Geest verlicht begroet Elisabeth haar als de gezegende moeder van haar Heer. En Maria sprak: „Mijn ziel verheft de Heer en mijn geest jubelt om God, mijn redder” . Het is of zij sinds haar _fiat_ heeft gezwegen en nu eerst de mond opent om God te prijzen, om te uiten wat in haar leefde al die dagen. Met heldere stem zingt Maria haar magnificat , voorzangster in het koor der eeuwen dat nimmermeer verstommen zal. En drie maanden verblijft zij in dat zalig huis voor haar nederig dienstwerk.
+
+1\. Het doet bijna oneerbiedig aan over dit tafereel te willen moraliseren. Alles is zo helder en licht als een paneel van Fra Angelico , feestelijke kleuren, geen schaduw en veel goud. God zegeviert hier zonder strijd: de beide begenadigde vrouwen, de Geest die werkt in de moeder en haar kind. Maria sprekend over zichzelf door God te loven. Het volmaakte koninkrijk Gods voorafgebeeld. Een plekje hemel op aarde. Nederigheid, dank en jubel. Ons drukt bijna zonder onderbreking de strijd en de zorg. Voor ons geldt het woord des Heren: „Marta, Marta, gij maakt u bezorgd en druk over vele dingen, maar weinige zijn nodig of slechts één” ( Lk. 10, 41 ). Zo zelden triomfeert Gods heerschappij ongebroken in ons. Het zijn niet alleen de zonde en de zelfzucht, die ons beletten onverdeeld God toe te behoren, doch ook de duizenderlei vormen waarin aardse beslommeringen onze geest vullen. Hierom schreef Sint Paulus in zijn aanprijzing der maagdelijkheid: „De ongehuwde is bezorgd over de dingen des Heren, hoe hij behagen zal aan de Heer; maar de gehuwde is bezorgd over de dingen der wereld, hoe hij behagen zal aan zijn vrouw en hij is verdeeld” ( 1 Kor. 7, 32-34 ). Laat ons de bindingen aan het tijdelijke beperken tot de waarlijk nodige.
+
+2\. Wat brengt Maria aan Elisabet? Eigenlijk niet zichzelf noch haar materiële hulp, maar Jezus en de Geest van Jezus. „Toen Elisabet de groet van Maria hoorde, geschiedde het dat het kind opsprong in haar schoot en Elisabet werd vervuld met de heilige Geest.” (En zo blijft het immer: Maria bestaat niet voor zichzelf, zij is alleen maar Moeder des Heren, een verhouding tot Jezus, – zo als Jezus enkel is: tot de Vader. Dat is ook de diepste zin van haar leven in de Kerk en van de verering der gelovigen; zij blijft de moeder des Heren, die zij baren wil in onze zielen.)
+
+Dit geldt, wanneer wij de noodzakelijke verhoudingen in acht nemen, ook voor ons, en allermeest als wij priesters of religieuzen zijn. Ook de christen moet zo volmaakt mogelijk strekken tot de eer van God en de verbreiding van Christus' rijk, en dat niet alleen of voornamelijk door vrome woorden en stichtelijke vermaningen, maar veeleer door heel zijn leven en doen. Hij moet niet zichzelf zoeken noch op de voorgrond plaatsen, hij moet niet enkel zichzelf brengen tot de mensen. Zij moeten in hem Christus kunnen herkennen en van het contact met hem beter en gelukkiger worden. Daar mag geen ergernis achterblijven, geen teleurstelling dat christenen (priesters, kloosterlingen) even liefdeloos en egoïstisch zijn als alle anderen. Het gaat nooit om ons, maar altijd om Jezus.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

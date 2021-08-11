@@ -1,0 +1,20 @@
+---
+title: "Op aarde zoals in de hemel"
+date: "2015-05-29"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [207\. Quatertempervrijdag van de Pinksterweek](http://ift.tt/1JXY9mM)
+
+In deze dagen van genade willen wij de Heilige Geest smeken om het inzicht dat aan het koninkrijk Gods de volstrekte voorrang toekomt boven alle tijdelijke belangen en alle aardse verlangens. Een mens die geestelijk wil leven moet van dit besef diep doordrongen zijn. Terecht vereren wij de zachtmoedigheid en de nederigheid van onze Zaligmaker. Sint Paulus spreekt over Jezus' mildheid en matiging ( 2 Kor. 10, 1 ). De Heer heeft voor zijn eigen belang geen vinger verroerd. Hij heeft zonder één klacht geleden en de dood voor ons ondergaan. Maar wij zouden zijn geest slecht begrijpen, zo wij niet de onverbiddelijke ernst, de bovenaardse hardheid bijna, erkenden waarmee Hij de absolute heerschappij Gods, het koninkrijk van zijn Vader, op aarde verkondigde en stichtte. Jezus was geheel vervuld van de glorie van God. De alles overtreffende werkelijkheid Gods stond Hem steeds voor de geest, dáárin leefde Hij en Hij kon niet anders. Deze ijver voor Gods eer, deze passie voor zijn wil, dit geheel vervuld zijn van zijn majesteit en liefde wilde Hij ons meedelen door zijn Geest. Daardoor gelijken wij op Hem als waarachtige kinderen van onze hemelse Vader. Geduld en zachtmoedigheid jegens de mensen, maar een heilige onverdraagzaamheid ten aanzien van Gods eer en een onvermoeibare ijver voor de uitbreiding van zijn rijk moeten de leerlingen van Jezus kenmerken.
+
+2\. Denken wij slechts aan enkele van de vele woorden waarin Jezus de onaantastbare hoogheid van zijn ideaal heeft uitgesproken. Wij bidden zeer dikwijls het Onze Vader , ons door de Meester geleerd, maar zeer zelden reflecteren wij op de toevoeging: „Uw wil geschiede _op aarde zoals in de hemel_ ” . Vele bijbelverklaarders menen dat deze woorden ook bij de eerste twee beden moeten worden gedacht: „Uw naam worde geheiligd, uw rijk kome” . Hoe dit ook zij, zij betekenen in elk geval dat wij bidden moeten om een zo volmaakte vervulling van de goddelijke wil door ons, zwakke mensen, dat zij vergeleken kan worden met de hemelse spontaneïteit waarmee de engelen en de zaligen Gods welbehagen aanbidden en omhelzen, Jezus wil dat zijn rijk op aarde een zo volkomen mogelijke afbeelding vormt van het paradijs. Jezus wil dat zijn leerlingen een _volstrekt_ ideaal nastreven. „Zalig die hongeren en dorsten naar de gerechtigheid.” „Zoekt eerst het rijk Gods.” „Wij zijn vader of moeder meer bemint dan Mij, is Mijner niet waardig.” „Wij zijn kruis niet opneemt en Mij niet volgt, is Mijner niet waardig.” Zo spreekt dezelfde Meester die voor de zondaars zijn voorkeur toonde en jegens de zwakheid van de mens eindeloze erbarming aan den dag legde. Maar in dit punt weet Hij van geen wijken …
+
+3\. Wij zingen heden in de introitus : „Mijn mond zij van uw lof vervuld, alleluja! Dat ik zingen moge, alleluja! Mijn lippen zullen jubelen als ik speel voor U, alleluja” ( Ps. 70, 8. 23 ). De Kerk vervult in haar liturgie de heiliging van Gods naam op aarde zoals in de hemel. Laten wij bedenken hoezeer voor ons, door de Heer uitverkorenen, zijn woorden allereerst gelden. Hij verwacht dat _wij_ althans zijn geest zullen verstaan en Hem volgen in dat innerlijkste leven van zijn ziel: de volstrekte gerichtheid op God. Wij kunnen daartoe niet geraken tenzij door een grenzenloze verdieping van ons geloof welke de Heilige Geest ons schenken zal, zo wij ons standvastig toeleggen op gebed en beschouwing. Dit blijft altijd de kern van het geestelijke leven. Willen onze dagen een bepaalde en constante richting verkrijgen, dan kan dit alleen geschieden door een bepaalde visie van onze geest op de werkelijkheid. Dit zien gaat aan het doen vooraf en richt het. Liefde ontstaat door visie en liefde regeert ons leven.
+
+„Hoe goed en zacht is uw Geest, Heer, in ons!” ( Sap. 12, 1 ; allelujavers). Hoe goed is uw Geest en hoe machtig.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

@@ -1,0 +1,20 @@
+---
+title: "De Mis I. Den gedachtenis aan zijn dood"
+date: "2015-07-29"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 268\. Woensdag na de Negende Zondag na Pinksteren
+
+Enkele dagen voor zijn dood, in de laatste brief aan zijn geestelijkheid, schreef kardinaal Mercier : „Het is het priesterschap dat ik in u zie. Niet meer in staat zelf de mis te lezen, heb ik mij, de ganse dag door, verenigd met het misoffer dat onze hogepriester Jezus Christus elk ogenblik opdraagt door de bediening van zijn priesters, op alle altaren ter wereld. De mis kreeg in mijn ogen het karakter van een buitengewoon aangrijpende werkelijkheid, omdat het offer van Calvarie dat zij in herinnering roept, mij aldus als het ware tastbare werd en wijl God mij vergunde mij hiermede daadwerkelijker en onmiddellijker te verenigen dan gewoonlijk.”
+
+1\. Er zijn twee dingen die ons opvallen in de woorden van de grote kardinaal. Daar is vooreerst het _werkelijkheidskarakter_ der mis. Zij is tegelijk een symbool en een realiteit, zinnebeeld en verzinnebeelde werkelijkheid. In tekenen herinnert zij aan wat de Heer deed bij het laatste avondmaal, in tekenen beeldt zij zijn zalig lijden en dood uit. Maar tegelijkertijd stellen die tekenen de werkelijkheid van Jezus' kruisoffer tegenwoordig. Wanneer ik een goede foto bezit van mijn overleden ouders, is dat een mooie herinnering aan mijn dierbaren, een teken, maar ook niet meer dan dat. Zulk een souvenir kan helaas de werkelijkheid niet vervangen, het heeft enkel een psychologische waarde. Maar de mis is het door Christus ingestelde teken, dat de realiteit, de Heer zelf en zijn enig offer, bevat op volkomen, waarachtige wijze. De Romeinse liturgie drukt die waarheid op haar kernachtige wijze uit: „Telkens als dit herdenkingsoffer wordt gevierd, wordt het werk onzer verlossing voltrokken” (offergebed van de Zondag). Het werk der goddelijke verlossing, begonnen met Jezus' menswording en kruisdood, wordt in ons slechts geleidelijk verwezenlijkt. De mis stelt telkens opnieuw deze goddelijke werkelijkheid, waaraan wij steeds inniger willen deelnemen, tegenwoordig: het bloed van het Lam, de verlossende liefde van zijn Hart, de schatten van zijn genade, de Geest die Hij verdiende en die Hij, verheerlijkt, zendt.
+
+Maar deze werkelijkheid ligt in de mis nog _verborgen_ onder diezelfde tekenen die haar bevatten; een sluier ligt over de goddelijke heerlijkheid, een sluier die het zien belet en waardoor slechts het _geloof_ heendringt, zonder te zien. Wederom het geloof! Ach, mochten wij geloven, Heer. Hoe zouden wij de armzalige spijs die onze zinnen vinden in dat half uur van gebaren en woorden, verslinden met vurig hart, wetend, dat _alle_ heil en alle heerlijkheid die Gij voor ons hebt bestemd, dáár schittert met een donkere en onzichtbare gloed! O aangrijpende Werkelijkheid, Jezus, Offer, priesterlijke Liefde ( _amor sacerdos_ ), mochten onze zielen door U gegrepen zijn!
+
+2\. Wat ons ook treft in de woorden van kardinaal Mercier , is zijn getuigenis omtrent de _ononderbroken vereniging_ met het altijddurende offer. Het offer van Jezus, dat het offer der Kerk en het onze in zich sluit, is één, immer werkzaam en als alomtegenwoordig. De talloze missen, die overal ter wereld en elk ogenblik van de dag worden opgedragen, zijn slechts één offer, dat van Christus. „Door één enkele offerande immers heeft Hij voor eeuwig de geheiligden tot volmaaktheid gebracht” ( Hebr.10, 14 ). Het offer is zijn lichaam en bloed, immer de Vader aangeboden door zijn godmenselijke liefde als losprijs voor onze zonden en telkens weer ons geschonken in het heilig gastmaal als onderpand der eeuwige glorie. En daarom mag ons meeleven met dit offer niet beperkt blijven tot die korte ogenblikken in de morgen. De minnende ziel zal de gehele dag heiligen met de innige herdenking van zijn dood, met de snelle en vurige vlucht der liefde tot haar Heer, tot het Lam, dat offer is en priesterlijke middelaar.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

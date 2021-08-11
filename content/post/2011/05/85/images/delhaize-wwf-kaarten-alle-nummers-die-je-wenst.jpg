@@ -1,0 +1,425 @@
+<!doctype html>
+<html>
+<head>
+
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1">
+<title>Tweedehands allerlei - Zoekertjes.net</title>
+
+<!-- Begin Inspectlet Embed Code -->
+<script type="text/javascript" id="inspectletjs">
+window.__insp = window.__insp || [];
+__insp.push(['wid', 193029444]);
+(function() {
+function ldinsp(){if(typeof window.__inspld != "undefined") return; window.__inspld = 1; var insp = document.createElement('script'); insp.type = 'text/javascript'; insp.async = true; insp.id = "inspsync"; insp.src = ('https:' == document.location.protocol ? 'https' : 'http') + '://cdn.inspectlet.com/inspectlet.js'; var x = document.getElementsByTagName('script')[0]; x.parentNode.insertBefore(insp, x); };
+setTimeout(ldinsp, 500); document.readyState != "complete" ? (window.attachEvent ? window.attachEvent('onload', ldinsp) : window.addEventListener('load', ldinsp, false)) : ldinsp();
+})();
+</script>
+<!-- End Inspectlet Embed Code -->
+
+<link href="https://fonts.googleapis.com/css?family=Roboto:700,500,400,300,100" rel="stylesheet" type="text/css">
+<link href="https://www.zoekertjes.net/templates/lang/nl_NL/css/font-awesome.css" rel="stylesheet" type="text/css">
+<link href="https://www.zoekertjes.net/templates/lang/nl_NL/css/style.css" rel="stylesheet" type="text/css">
+
+<!-- /css -->
+
+<!-- shortcut icon -->
+<link rel="shortcut icon" href="/templates/lang/nl_NL/images/layout/favicon.ico">
+<!-- /shortcut icon -->
+
+<!-- javascript -->
+<script src="https://ajax.googleapis.com/ajax/libs/jquery/1.9.1/jquery.min.js" type="text/javascript"></script>
+<!-- /javascript -->
+
+<!--[if lt IE 9]>
+<script src="//html5shiv.googlecode.com/svn/trunk/html5.js?v=120411za"></script>
+<![endif]-->
+
+<!--[if (gte IE 6)&(lte IE 8)]>
+<script src="/templates/lang/nl_NL/js/selectivizr-min.js" type="text/javascript"></script>
+<![endif]-->
+<script>
+  (function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
+  (i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
+  m=s.getElementsByTagName(o)[0];a.async=1;a.src=g;m.parentNode.insertBefore(a,m)
+  })(window,document,'script','https://www.google-analytics.com/analytics.js','ga');
+
+  ga('create', 'UA-464298-1', 'auto');
+  ga('send', 'pageview');
+
+</script>
+
+</head>
+<body>
+<!-- header -->
+<header role="banner">
+
+	
+          
+	<!-- top -->
+    <div class="top">
+    
+        <!-- container -->
+        <div class="container">
+        
+        	<a href="https://www.zoekertjes.net" title="zoekertjes.net" class="logo">
+                <span class="img"></span>
+                <span class="txt">Zoekertjes.net</span>
+            </a>
+            
+                    
+            <!-- navigation -->
+            <nav role="navigation">
+                <ul class="top-nav">
+                    <li><a href="https://www.zoekertjes.net" title="home">Home</a></li>
+                    <li><a href="https://www.zoekertjes.net/winkels/" title="winkels">Winkels</a></li>
+                    <!-- <li><a href="https://www.zoekertjes.net/blog/" title="blog">Blog</a></li> -->
+                    <!--<li><a href="https://www.zoekertjes.net/sitemap/" title="sitemap">Sitemap</a></li>-->
+                    <li><a href="https://www.zoekertjes.net/help/" title="help">Help</a></li>
+                    
+                    
+                    <!-- ingelogd -->
+                    <li class="dropdown">
+                    	<a data-toggle="dropdown" href="#" title="inloggen" class="inloggen dropdown-toggle">Mijn Advertenties<i class="fa fa-caret-down"></i></a>
+                        <div class="dropdown-menu">
+                        
+                        	<ul class="user-nav">
+                            	<li><a href="https://www.zoekertjes.net/mijnaanbod/" title="Mijn Advertenties"><span>Advertenties</span></a></li>
+                                <li><a href="https://www.zoekertjes.net/berichten/" title="Mijn Berichten"><span>Berichten</span></a></li>
+                                <li><a href="https://www.zoekertjes.net/biedingen/" title="Mijn Biedingen"><span>Biedingen</span></a></li>
+                                <li><a href="https://www.zoekertjes.net/mijngegevens/" title="Mijn Gegevens"><span>Gegevens</span></a></li>
+                                <li><a href="https://www.zoekertjes.net/logout/" title="Uitloggen"><span>Uitloggen</span></a></li>
+                            </ul>
+
+                        </div>
+                    </li>
+                    <!-- /ingelogd -->
+
+                </ul>
+                <div class="clearfix"></div>
+            </nav>
+            <!-- /navigation -->
+            
+            <!-- mobile trigger -->
+            <button id="mobile-trigger">
+                <span class="bar"></span>
+                <span class="bar"></span>
+                <span class="bar"></span>
+            </button>
+            <!-- /mobile trigger -->
+        
+        </div>
+        <!-- /container -->
+    
+    </div>
+    <!-- /top-->
+
+
+    <!-- bottom -->
+    <div class="bottom">
+    
+        <!-- container -->
+        <div class="container">
+            
+            <!-- search -->
+            <div class="search" role="search">
+                <form name="search" method="get" action="https://www.zoekertjes.net/zoeken/">
+                    <div class="form-group">
+                        <div class="col-xs-9">
+                        	<input type="text" name="z_crit" id="z_crit" value="" placeholder="Zoeken naar een product (bv. lampen, autos)" class="form-control">
+                        </div>
+                        <div class="col-xs-3">
+                        	<button type="submit" class="btn btn-sm btn-info btn-block">Zoek</button>
+                        </div>
+                        <div class="clearfix"></div>
+                    </div>
+                </form>
+            </div>
+            <!-- /search -->
+            
+            <div class="place-ad">
+            	<a href="https://www.zoekertjes.net/gratis-zoekertje-plaatsen/" class="btn btn-sm btn-primary btn-block">Plaats <u>gratis</u> een zoekertje</a>
+                <div class="clearfix"></div>
+            </div>
+            
+        </div>
+        <!-- /container -->
+    
+    </div>
+    <!-- /bottom -->
+
+
+</header>
+<!-- /header -->
+<!-- main -->
+<main role="main">
+
+	<!-- container -->
+	<div class="container">
+		
+		<!-- breadcrumbs -->
+		<div class="breadcrumbs">
+		  <ul>
+			<li itemscope itemtype="https://data-vocabulary.org/Breadcrumb">
+				<a href="https://www.zoekertjes.net" itemprop="url"><span itemprop="title">Home</span></a>
+			</li>
+			<li itemscope itemtype="https://data-vocabulary.org/Breadcrumb">
+				<a href="https://www.zoekertjes.net/404.html/" itemprop="url"><span itemprop="title"><strong>404 Niet gevonden</strong></span></a>
+			</li>
+		  </ul>
+		  <div class="clearfix"></div>
+		</div>
+		<!-- /breadcrumbs -->
+
+
+		
+		<!-- wrapper -->
+		<div class="container">
+			<div class="box">
+				<div class="top shadow title-yellow">
+					<h1 class="title">De pagina die u zoekt is helaas niet gevonden</h1>
+				</div>
+				
+				
+				<div class="middle gray">
+					<p></p>
+					<p>De pagina die u zoekt is helaas niet (meer) beschikbaar. Kijk gerust verder op onze site tussen duizenden gratis zoekertjes.</p>
+					<p></p>
+					<p>
+						<a href="https://www.zoekertjes.net/gratis-zoekertje-plaatsen/" title="plaats zoekertje" class="cta">Heb je zelf iets te koop of te huur? Of zoek je iets? Klik dan hier om een gratis zoekertje te plaatsen!</a>
+					</p>
+				</div>
+                
+                
+				<div class="clearfix"></div>
+			</div>
+            
+            
+            
+            <div class="box">
+            	<div class="top shadow title-yellow">
+					<h2 class="title">Alle rubrieken</h2>
+				</div>
+                
+                <div class="middle bot-nav">
+                    <ul class="left-nav">
+                        <li class=""><a href="https://www.zoekertjes.net/allerlei/"><span>allerlei</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/antiek/"><span>antiek</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/audio/"><span>audio</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/auto-onderdelen/"><span>auto onderdelen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/autos/"><span>autos</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/baby-en-kind/"><span>baby en kind</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/boeken/"><span>boeken</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/bouw/"><span>bouw</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/caravans-en-kamperen/"><span>caravans en kamperen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/computers/"><span>computers</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/diensten/"><span>diensten</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/dieren/"><span>dieren</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/elektrische-toestellen/"><span>elektrische toestellen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/erotiek/"><span>erotiek</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/fietsen/"><span>fietsen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/fotografie/"><span>fotografie</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/gereedschap/"><span>gereedschap</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/gratis/"><span>gratis</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/huisraad/"><span>huisraad</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/jobs/"><span>jobs</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/kantoor/"><span>kantoor</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/kleding/"><span>kleding</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/kunst/"><span>kunst</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/meubelen/"><span>meubelen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/motos/"><span>motos</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/sieraden-en-horloges/"><span>sieraden en horloges</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/sport/"><span>sport</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/studie/"><span>studie</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/telecom/"><span>telecom</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/tuin-en-tuinmachines/"><span>tuin en tuinmachines</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/vakantiewoningen/"><span>vakantiewoningen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/vastgoed/"><span>vastgoed</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/verzamelen/"><span>verzamelen</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/verzorging/"><span>verzorging</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/video-en-dvd/"><span>video en dvd</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/watersport-en-boten/"><span>watersport en boten</span></a></li>
+						<li class=""><a href="https://www.zoekertjes.net/zaken-en-transacties/"><span>zaken en transacties</span></a></li>
+                    </ul>
+                </div>
+            </div>
+            <div class="clearfix"></div>
+            <p></p>
+            <p><a href="https://www.zoekertjes.net/gratis-zoekertje-plaatsen/" title="plaats zoekertje" class="cta special btn btn-primary btn-sm btn-block">Plaats GRATIS een zoekertje</a></p>
+            
+            <div class="clearfix"></div>
+		
+			<!-- promo image -->
+			<div class="promo-image-large">
+				<a href="https://www.zoekertjes.net/gratis-zoekertje-plaatsen/"><img src="/templates/lang/nl_NL/images/layout/plaats-adv-breed.jpg" alt="plaats zoekertje"></a>
+			</div>
+			<!-- /promo image -->
+			
+		</div>
+		<!-- /container -->
+		
+		
+	
+	</div>
+	<!-- /container -->
+
+	<div class="clearfix"></div>
+</main>
+<!-- /main --><!-- footer -->
+<footer role="contentinfo">
+    
+    <!-- container -->
+    <div class="container">
+    
+        <!-- top -->
+        <div class="top">
+            <div class="col-xs-3">
+                <h3 class="title">Zoekertjes</h3>
+                <ul>
+                    <li><a href="https://www.zoekertjes.net/plaatsadvertentie/">Gratis zoekertje plaatsen</a></li>
+                    <li><a href="https://www.zoekertjes.net/mijnaanbod/">Zoekertjes beheren</a></li>
+<!--                    <li><a href="#">Zoekertjes per regio</a></li>
+                    <li><a href="#">Zoekertjes per sleutelwoord</a></li>
+-->
+                    <li><a href="https://www.zoekertjes.net/winkels/">Gratis webwinkel</a></li>
+                    <li><a href="https://www.zoekertjes.net/faq/">Veelgestelde vragen</a></li>
+                    <li><a href="https://www.zoekertjes.net/sitemap/">Sitemap</a></li>
+                </ul>
+                <div class="clearfix"></div>
+            </div>
+            
+            <div class="col-xs-6">
+                <h3 class="title">Populaire Zoekertjes</h3>
+                <ul>
+                    <li><a href="https://www.zoekertjes.net/autos/">autos</a></li>
+                    <li><a href="https://www.zoekertjes.net/dieren/">dieren</a></li>
+                    <li><a href="https://www.zoekertjes.net/boeken/">boeken</a></li>
+                    <li><a href="https://www.zoekertjes.net/meubelen/">meubelen</a></li>
+                    <li><a href="https://www.zoekertjes.net/allerlei/">allerlei</a></li>
+                    <li><a href="https://www.zoekertjes.net/baby-en-kind/">baby en kind</a></li>
+                    <li><a href="https://www.zoekertjes.net/bouw/">bouw</a></li>
+                    <li><a href="https://www.zoekertjes.net/kleding/">kleding</a></li>
+                    <li><a href="https://www.zoekertjes.net/vakantiewoningen/">vakantiewoningen</a></li>
+                    <li><a href="https://www.zoekertjes.net/verzamelen/">verzamelen</a></li>
+                    <li><a href="https://www.zoekertjes.net/tuin-en-tuinmachines/">tuin en tuinmachines</a></li>
+                    <li><a href="https://www.zoekertjes.net/auto-onderdelen/">auto onderdelen</a></li>
+                    <li><a href="https://www.zoekertjes.net/jobs/">jobs</a></li>
+                    <li><a href="https://www.zoekertjes.net/computers/">computers</a></li>
+                </ul>
+                <div class="clearfix"></div>
+            </div>
+            
+            <div class="col-xs-3">
+                <h3 class="title">Zoekertjes.net</h3>
+                <ul>
+                    <li><a href="https://www.zoekertjes.net/overons/">Over ons</a></li>
+                    <li><a href="https://www.zoekertjes.net/promotie/">Promotiemateriaal</a></li>
+                    <li><a href="https://www.zoekertjes.net/contact/">Misbruik melden</a></li>
+                    <li><a href="https://www.zoekertjes.net/algemenevoorwaarden/">Gebruikersvoorwaarden</a></li>
+                    <li><a href="https://www.zoekertjes.net/privacy/">Privacy</a></li>
+                    <li><a href="https://www.zoekertjes.net/help/">Help</a></li>
+                    <li><a href="https://www.zoekertjes.net/contact/">Contacteer ons</a></li>
+                </ul>
+                <div class="clearfix"></div>
+            </div>
+            <div class="clearfix"></div>
+        </div>
+        <!-- /top -->
+        
+        <!-- bottom -->
+        <div class="bottom">
+            <div class="pull-left">
+                Copyright &copy; 2017 <a href=""><!--Zoekertjes.net-->Zoekertjes.net</a>
+                <div class="clearfix"></div>
+            </div>
+            
+            <div class="socialmedia">
+                <a href="#" title="facebook" class="facebook"></a>
+                <a href="#" title="twitter" class="twitter"></a>
+                <a href="#" title="google plus" class="google"></a>
+                <div class="clearfix"></div>
+            </div>
+            <div class="clearfix"></div>
+        </div>
+        <!-- /bottom -->
+        
+    </div>
+    <!-- /container -->
+	
+</footer>
+<!-- /footer -->
+
+<!-- mobile nav -->
+<div class="sliding-panel-content"> 
+    <nav>
+        <ul>
+            <li><a href="plaatsadvertentie" title="plaats advertentie" class="btn btn-primary btn-sm btn-block">Plaats advertentie</a></li>
+            <li><a href="https://www.zoekertjes.net" title="home">Home</a></li>
+            <li><a href="https://www.zoekertjes.net/winkels/" title="winkels">Winkels</a></li>
+            <li style="margin-bottom:20px;"><a href="https://www.zoekertjes.net/help/" title="help">Help</a></li>
+            
+            
+            <!-- ingelogd -->
+            <li><a href="https://www.zoekertjes.net/mijnaanbod/" title="Mijn Advertenties"><span>Advertenties</span></a></li>
+            <li><a href="https://www.zoekertjes.net/berichten/" title="Mijn Berichten"><span>Berichten</span></a></li>
+            <li><a href="https://www.zoekertjes.net/biedingen/" title="Mijn Biedingen"><span>Biedingen</span></a></li>
+            <li><a href="https://www.zoekertjes.net/mijngegevens/" title="Mijn Gegevens"><span>Gegevens</span></a></li>
+            <li><a href="https://www.zoekertjes.net/logout/" title="Uitloggen"><span>Uitloggen</span></a></li>
+            <!-- /ingelogd -->
+            
+        </ul>
+    </nav>
+</div>
+<div class="sliding-panel-fade-screen"></div>
+<!-- /mobile nav -->
+
+<!-- css -->
+<link href="https://netdna.bootstrapcdn.com/font-awesome/4.2.0/css/font-awesome.min.css" rel="stylesheet" type="text/css">
+<!-- /css -->
+
+<!-- javascript -->
+<script src="/templates/lang/nl_NL/js/selectivizr-min.js" type="text/javascript"></script>
+<script src="/templates/lang/nl_NL/js/main.js" type="text/javascript"></script>
+<script src="/templates/lang/nl_NL/js/bootstrap.min.js" type="text/javascript"></script>
+<script src="/templates/lang/nl_NL/js/customSelect.min.js" type="text/javascript"></script>
+
+<script>
+//flashing cta button > puts #b1 on body as css trigger
+function run(interval, frames) {
+    var int = 1;
+    
+    function func() {
+        document.body.id = "b"+int;
+        int++;
+        if(int === frames) { int = 1; }
+    }
+    
+    var swap = window.setInterval(func, interval);
+}
+run(1000, 3); //milliseconds, frames
+</script>
+
+
+<link href="/templates/lang/nl_NL/css/flexslider.css" rel="stylesheet" type="text/css">
+<script src="/templates/lang/nl_NL/js/flexslider.min.js"></script>
+<script type="text/javascript">
+$(window).load(function() {
+  // The slider being synced must be initialized first
+  $('#carousel').flexslider({
+    animation: "slide",
+    controlNav: false,
+    animationLoop: false,
+    slideshow: false,
+    itemWidth: 140,
+	itemMargin: 10,
+	prevText: "",
+	nextText: ""
+  });
+});
+</script>
+
+
+<!-- /javascript -->
+
+</body>
+</html>

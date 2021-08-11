@@ -1,0 +1,12 @@
+---
+title: "De Bijbel letterlijk"
+date: "2017-05-25"
+categories: "parels"
+coverImage: "plus-de-bijbel-letterlijk.pdf.png"
+---
+
+<!--more-->
+
+[![pdf](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](https://storage.googleapis.com/geloven-leren/printerboekjes/plus-de-bijbel-letterlijk.pdf)
+
+Lees het [artikel over het "Hoe waar is mijn geloof"](/post/2013/04/2013-04-09-hoe-waar-is-mijn-geloof/) op de blog.

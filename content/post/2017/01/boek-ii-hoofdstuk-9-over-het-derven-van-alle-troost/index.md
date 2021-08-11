@@ -1,0 +1,28 @@
+---
+title: "Boek II Hoofdstuk 9 Over het derven van alle troost"
+date: "2017-01-03"
+categories: 
+  - "navolging-van-christus"
+---
+
+Het is niet zwaar de menselijke troost te verachten, zolang de goddelijke troost ons bijblijft. Maar het is groot ja zeer groot, zowel de goddelijke als de menselijke troost te kunnen derven, en ter ere Gods gaarne de ballingschap des harten te willen verduren, en zichzelf in niets te zoeken of zijn eigen verdiensten niet te achten. Is het iets bijzonders dat gij vrolijk en godsdienstig zijt, als de genade in u komt? Die stond is begeerbaar voor allen. Hij reist zeer makkelijk, die de genade Gods voortdraagt. En het is ook geen wonder, dat hij geen last gevoelt, die door de Almogende gedragen wordt, en geleid door de opperste Leidsman.
+
+Wij hebben gaarne iets tot troost; en de mens ontdoet zich bezwaarlijk van zichzelf. De heilige martelaar Laurentius heeft de wereld overwonnen, alsmede de gehechtheid aan zijn opperpriester, omdat hij alles, wat in de wereld vermakelijk scheen, versmaad heeft; ja zelfs verdroeg hij gelaten, dat Gods opperpriester Sixtus, die hij zo beminde, van hem weggenomen werd. Hij heeft dan de liefde van de mens overwonnen door de liefde van de Schepper; en hij heeft de wil van God verkozen boven de menselijke troost. Leer dan ook een teerbeminde, een boezemvriend verlaten, om de liefde Gods. Bedroef u niet, wanneer gij door een vriend verlaten wordt, wel wetende dat wij ten laatste allen toch eens moeten scheiden.
+
+De mens moet veel en lang in zijn binnenste strijden, eer hij zich geheel kan overwinnen, en al zijn genegenheid tot God keren. Zolang de mens op zichzelf steunt, zo is hij licht tot menselijke troost geneigd. Maar de ware vriend van Christus, en de ijverige betrachter der deugd, acht geen vertroostingen en zoekt geen zinnelijke zoetigheden, maar veeleer zware oefeningen, en zware arbeid te lijden voor Christus.
+
+Als u dus geestelijke vertroosting door God gegeven wordt, neem die met dankbaarheid aan; maar bedenk, dat het Gods geschenk is, en niet uw verdienste. Wil er u niet om verheffen, of u er over verblijden, noch te veel laten voorstaan: maar verootmoedig u te meer over de gift, en wees omzichtiger, en behoedzamer in al uw werken; want dat uur zal voorbijgaan, en de bekoring zal volgen. Als u de vertroosting onttrokken wordt, wees daarom niet wanhopig; maar wacht met ootmoed en geduld het hemels bezoek af; want Hij is machtig om u nog groter vertroosting te hergeven. Dit is geen nieuws of niets vreemds voor hen, die in de weg des Heren ervaren zijn; de grootste Heiligen en de Profeten van het Oud Verbond hebben dikwijls deze afwisseling ondervonden.
+
+Daarom sprak een van hen, als hij de troost van de genade gevoelde: "In mijn overvloed heb ik gezegd: ik zal in eeuwigheid niet wankelen."(1) Maar wat hij in zich ondervond, als hem de genade onttrokken werd, laat hij volgen in deze woorden: "Gij hebt uw aanschijn van mij afgekeerd, en ik ben ontroerd geworden"(2). Hij is nochtans niet wanhopig te midden van deze ontsteltenis, maar hij bidt God des te vuriger, en zegt: "O Heer, tot U zal ik roepen, en ik zal mijn God smeken" (3). En ten laatste oogst hij de vrucht van zijn gebed, en getuigt dat hij verhoord werd, als hij zegt: "De Heer heeft geluisterd, en heeft medelijden met mij gehad; de Heer is mijn Helper geworden"(4). Maar waarin? "Gij hebt, zegt hij, mijn wenen in blijdschap veranderd, en mij met vreugde omringd" (5). Indien het met grote Heiligen aldus gegaan is, zo moeten wij, die krank en arm zijn, niet kleinmoedig worden, al is het dat wij nu eens vurig, en dan weder koud worden; want de geest Gods komt en gaat weg volgens het welbehagen van zijn wil. Daarom zegt de heilige man Job: "Gij bezoekt de mens van de dageraad af, en eensklaps beproeft Gij hem" (6).
+
+Waar mag ik dan mijn hoop in stellen, of waar mag ik mij dan op verlaten, tenzij alleen op de grote barmhartigheid Gods, en op de verwachting van de hemelse genade. Want er mogen al goede mensen zijn en godvruchtige medebroeders, en getrouwe vrienden, heilige boeken, schone verhandelingen of zoete gezangen, dat alles kan maar weinig helpen en bevallen, wanneer mij de genade verlaten heeft, en ik aan mijn eigen armoede ben overgelaten. Dus is er geen beter middel dan verduldig te zijn, en mijzelf aan de wil van God over te geven.
+
+Nooit heb ik iemand gevonden, zo godvruchtig en zo ijverig of somtijds ondervond hij onttrekking van genade, en gevoelde vermindering van vurigheid. Nooit is er een Heilige zo hoog opgetogen en verlicht geweest, of hij is vroeg of laat met kwelling beproefd geworden. Want hij is onwaardig hoog in beschouwing opgetogen te worden, die te voren om God niet is beproefd geweest door enig lijden en zwarigheid. Ook is de bekoring meestal een voorteken dat de troost volgen zal. Want de hemelse vertroosting wordt beloofd aan die door de bekoring beproefd zijn. "Wie overwint, zegt de Heer, zal Ik te eten geven van de boom des levens" (7).
+
+En de goddelijke troost wordt gegeven, opdat de mens sterker worde om alle zwarigheden te verdragen. En dan volgt weder de bekoring, opdat hij zich niet verheffe over het goed. De duivel slaapt niet, en ons vlees is ook niet verstorven: daarom houd niet op u tot de strijd te bereiden; want ter rechter en ter linkerzijde hebt gij vele vijanden, die nimmer rusten.
+
+(1) Ps. 29: 7 (2) Ps. 29: 8 (3) Ps. 29: 9 (4) Ps. 29: 11 (5) Ps. 29: 12 (6) Job 7: 18 (7) Apoc. 2: 7
+
+_Thomas a Kempis_
+
+[Over de Navolging van Christus](/blog/de-navolging-van-christus-in-de-sterke-tijden/) - [Abonneren per email (dagelijks van 27/11/2016 tot 16/06/2017 in de sterke tijden)](http://eepurl.com/cg9VGT)

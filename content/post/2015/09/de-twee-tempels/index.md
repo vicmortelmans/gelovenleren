@@ -1,0 +1,18 @@
+---
+title: "De twee tempels"
+date: "2015-09-02"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 303\. Woensdag na de Veertiende Zondag na Pinksteren
+
+„Hoe lieflijk zijn uw woonsteden, Heer der heirscharen! Mijn ziel versmacht van verlangen naar de voorhoven des Heren” ( Ps.83, 2. 3 ; introitus van de Zondag).
+
+1\. Dit psalmvers wil de Kerk ons vooral zo laten verstaan, dat het voor ons uitdrukt de heerlijkheid van de eredienst in het God toegewijde en geconsacreerde kerkgebouw. Deze cultus in de heilige ruimte, deze toegang tot het gebouw dat beeld is van de christenziel, van geheel het lichaam der Kerk en van de hemel, dat schoon en harmonisch moet zijn als een afspiegeling van de stad Gods, dat voor iedere gelovige elke dag openstaat om hem vanuit de vergankelijke onrust der wereld op te nemen in de onaardse sfeer van het heilige, — betekent een immense weldaad voor onze zielen. Hoe hoog de Kerk zelf deze lieflijkheid van Gods voorhoven acht, blijkt uit het _Kerkwijdingsfeest_ dat elk jaar terugkeert. In mis en officie van dat feest houdt zij ons hoofdzakelijk deze gedachten voor. De kerk is als woning Gods plaats van ontzagwekkende majesteit en heiligheid, _terribilis est locus iste_ ( introitus ). Zij is tevens de plaats waar de heilbrengende mysteriën worden gevierd: het is een onschatbare weldaad dat wij die zo maar jaar in jaar uit „ongedeerd” mogen meemaken (oratie). Zij is de plaats van gebed (oratie, communio ). Zij is voorportaal van de hemel, aardse afbeelding en verwerkelijking van het Jerusalem in den hoge ( introitus , epistel, hymnen). Al deze gedachten spreken voor zichzelf en geven stof voor overdenking; zij sporen ons aan tot verdieping van ons geloof en tot eerbied. Voor ons modernen lijkt mij bijzonder belangrijk dat wij de heiligheid van het kerkgebouw niet uitsluitend verbinden met de eucharistische tegenwoordigheid. Deze maakt ongetwijfeld voor ons alles zoveel inniger en persoonlijker. Doch de kerk als geheel is God gewijd, de plaats der heilige handelingen, „Gods woontent bij de mensen” , hemel op aarde. (Dat wij de heiligheid van het kerkgebouw enkel en alleen rond het tabernakel geconcentreerd achten en menen, zo ons Heer om een of andere reden daar niet aanwezig is, onze eerbied grotendeels te mogen afleggen, is een gevolg van onze alleen maar „realistische” en helemaal niet meer symbolische beschouwingswijze, docht strijdt met de geest der liturgie.)
+
+2\. Niet altijd kan de mens in de kerk zijn, maar hij kan altijd in God verblijven. Want daar is een andere tempel, die wij zelf zijn. God is in ons door de inwoning derH.Drieëenheid; en ook is waar (want God is oneindig): wij zijn in God. „Wij hebben deze liefderijke en allerbeminnelijkste God altijd bij ons; en altijd in ons. Waarom geven wij ons niet aan zijn omhelzingen over? Hij is een vuur dat altijd brandt; dit vuur bevindt zich in het middelpunt van onze ziel. Hoe komt het dat wij zo weinig van die vlammen gewaar worden? Omdat wij ons daaraan niet willen warmen, omdat wij _onze ziel niet thuis houden_ , vol aandacht voor de grote Gast, die verblijft in ons, maar haar voortdurend naar buiten laten uitzwerven op jacht naar ijdele en vergankelijke genoegens.” In deze cel des harten vermogen wij immer te beoefenen „het sterke verlangen naar God” , dat de kern is van alle godsdienst en gebed, of, zoals een ander geestelijk schrijver het uitdrukt (The Cloud of Unknowing), de innige beweging der liefde tot God om Hemzelfswille, de scherpe schicht der verlangende liefde.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

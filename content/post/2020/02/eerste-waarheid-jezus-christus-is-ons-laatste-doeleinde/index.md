@@ -1,0 +1,13 @@
+---
+title: "EERSTE WAARHEID: Jezus Christus is ons laatste doeleinde"
+date: "2020-02-08"
+categories: 
+  - "gouden-boek"
+coverImage: "unnamed-file-65.jpeg"
+---
+
+Tot nu toe hebben we gesproken over de noodzakelijkheid van de godsvrucht tot de allerheiligste Maagd. Met Gods hulp zal ik hierna het wezen ervan aangeven. Maar eerst behandel ik enige fundamentele waarheden; deze zullen het uitzicht openen op de gewichtige en degelijke devotievorm, die ik bekend wil maken.
+
+Jezus Christus, onze Verlosser, waarlijk God en waarlijk mens, moet het uiteindelijke doel zijn van al onze andere devoties, anders zijn ze onecht en misleidend. Jezus Christus is de alfa en de omega, het begin en het einde van alle dingen. Naar het woord van de apostel werken wij alleen maar om ieder mens tot de volmaaktheid te brengen in Christus Jezus. In Hem alleen immers woont de gehele volheid van de godheid en alle andere volheid van genaden, deugden en volmaaktheden. In Hem alleen worden wij gezegend met alle geestelijke zegeningen. Hij is de enige meester om ons te onderwijzen, de enige Heer om over ons te heersen, het enige hoofd waarmee wij verenigd moeten worden. Wij hebben geen ander voorbeeld om ons naar te richten, geen andere Geneesheer, die ons genezen, geen andere Herder, die ons voeden moet. Hij is de enige weg waarlangs wij dienen te gaan, de enige waarheid om te geloven, het enige leven, dat ons bezielen moet. Jezus Christus alleen is ons alles in alle dingen: Hij alleen moet ons genoeg zijn. Ér is onder de hemel geen andere naam gegeven waardoor wij moeten zalig worden dan de naam van Jezus. Geen ander fundament heeft God geplaatst voor onze redding, heiliging en glorie dan Jezus Christus. Elk gebouw dat niet op deze vaste rots is gefundeerd, staat op los zand en zal onvermijdelijk vroeg of laat instorten. Iedere gelovige, die niet met Hem verenigd is als de rank met de wijnstok, zal afvallen en verdorren, alleen maar goed om verbrand te worden. Maar als Jezus Christus leeft in ons en wij in Jezus Christus, dan behoeven wij niet bang te zijn voor de eeuwige dood. Noch engelen uit de hemel, noch mensen op aarde, noch duivels in de hel, noch enig ander schepsel kan ons schaden, omdat niets ons kan scheiden van de liefde van God, die in Jezus Christus is. Door Jezus Christus, met Jezus Christus en in Jezus Christus kunnen we alles, alle eer en glorie geven aan de Vader in de eenheid van de heilige Geest, heilig worden en voor onze medemens een levenwekkend aroom zijn.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

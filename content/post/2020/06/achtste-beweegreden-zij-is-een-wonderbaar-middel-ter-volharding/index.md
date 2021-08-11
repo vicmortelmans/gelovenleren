@@ -1,0 +1,11 @@
+---
+title: "ACHTSTE BEWEEGREDEN: Zij is een wonderbaar middel ter volharding"
+date: "2020-06-13"
+categories: 
+  - "gouden-boek"
+coverImage: "unnamed-file-167.jpeg"
+---
+
+Wat ons tenslotte in zekere zin nog krachtiger moet aanzetten om deze devotie tot de allerheiligste Maagd te aanvaarden, is, dat ze een buitengewoon middel is om in de deugd te volharden en trouw te blijven. Hoe komt het immers, dat zoveel bekeringen geen stand houden, dat men zo gemakkelijk in de zonde terugvalt? In plaats van vooruit te gaan en nieuwe genaden te verwerven, verliezen de meeste rechtvaardigen dikwijls nog het weinige, dat ze aan deugden en genaden bezitten. Hoe komt dat? Het antwoord op deze vragen heb ik reeds vroeger gegeven: de mens, hoewel zeer bedorven, zwak en onstandvastig, vertrouwt op zichzelf, steunt op eigen krachten en acht zichzelf in staat de schat van zijn genaden, deugden en verdiensten te bewaren. Door deze godsvrucht vertrouwen wij dat alles toe aan de heilige Maagd, die trouw is en nemen haar zonder enige reserve tot bewaarster van al onze goederen in de orde van de natuur en van de genade. Wij verlaten ons op haar getrouwheid, steunen op haar macht en bouwen op haar barmhartige liefde. Zij zal dan onze deugden en verdiensten bewaren en vermeerderen, ondanks de duivel, de wereld en het vlees, die hun uiterste best doen om ze ons te ontrukken. Zoals een goed kind zou zeggen tot zijn moeder, en een trouwe dienaar tot zijn meesteres, zo vragen wij haar: Depositum custodi: Mijn goede Moeder en Meesteres, ik moet toegeven, dat ik door uw voorspraak tot nu toe meer genaden van God heb ontvangen dan ik verdien. Ook heb ik tot mijn schande en schade ondervonden, dat ik deze schat in een zeer broos vat draag en dat ik veel te zwak en te ellendig ben om die genaden in mij te bewaren. Adulescentulus sum ego et contemptus: Ik smeek u, neem al het mijne in bewaring, behoud het voor mij door uw trouw en uw macht. Als u mij behoedt, zal ik niets verliezen; als u mij ondersteunt, zal ik niet vallen; als u mij beschermt, ben ik veilig voor mijn vijanden.
+
+[Over de Volmaakte Godsvrucht](/blog/een-jaar-lang-volmaakte-godsvrucht/) – [Abonneren per email (dagelijks van 2/12/2019 tot 28/11/2020)](http://eepurl.com/9RKvX)

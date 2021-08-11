@@ -1,0 +1,20 @@
+---
+title: "De goddelijke geneesheer"
+date: "2015-03-12"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [129\. Donderdag na de Derde Zondag van de vasten](http://ift.tt/1xecSko)
+
+Het evangelie van vandaag stelt ons, evenals zovele andere passages, de Heer voor als de goddelijke heelmeester. Het is een tekst van Sint Lukas , de geliefde arts. Hij verhaalt, hoe Jezus de schoonmoeder van Petrus , die aan hoge koorts leed, genas en hoe daarna, „toen de zon was ondergegaan” en de sabbatrust niet langer verplichtte, „allen hun zieken bij Hem brachten, die aan verschillende kwalen leden. En aan ieder afzonderlijk legde Hij de handen op en Hij genas hen” ( Lk. 4, 38-40 ). De statie is heden in de kerk van het door het Romeinse volk evenzeer als in het Oosten geliefde martelaren Cosmas en Damianus , die men vereerde als _anargyren_ , dat is, als artsen, die zieken om niet genazen.
+
+1\. Vanaf de oudste tijden kent de gehele christelijke traditie de idee van Christus als de goddelijke geneesheer. Deze voorstelling berust in de eerste plaats op de verhalen van de synoptische evangeliën , die Jezus beschrijven als degene, die alle lichamelijke kwalen geneest. „Hij ging rond weldoende en genezend” ( Hand. 10, 38 ). Maar vanaf het begin was daarmee de gedachte verbonden, dat Hij als verlosser door de vergiffenis der zonden de enige geneesheer der zielen is, die de gevallen mens door zijn genade bevrijdt van de slavernij der zonde en de kwaal der zelfzuchtige begeerten. Men ontkende geenszins de realiteit van Jezus' wonderbare genezingen, beschouwde ze evenmin uitsluitend als bewijzen van zijn goddelijke zending, doch men zag ze vooral als werkzame en krachtdadige beelden van de macht der genade en als een voorproef en voorafbeelding van de heerlijke opstanding op het einde der tijden.
+
+2\. Wij mogen Jezus de goddelijke geneesheer noemen, omdat Hij bij machte is onze lichamen te helen en ten leven te wekken, omdat Hij onze zielen geneest van de ziekte van het zedelijke kwaad, omdat Hij onze harten bevrijdt van angst en onzekerheid. Waar blijft het woord, dat Lukas , wederom Lukas , heeft opgetekend: „En de kracht des Heren was met Hem om te genezen” ( Lk. 5, 17 ). De moderne wetenschap komt steeds meer tot de overtuiging, dat ziekte en gezondheid de gehele mens betreffen, niet enkel zijn lichaam of zijn gemoed of geest. Het inzicht in de kwalen van de mens verscherpt en verdiept. Betekent dit enerzijds, dat men tegenwoordig meer dan vroeger de „natuurlijke” verklaring van ziekelijke verschijnselen kent, het betekent anderzijds in genen dele, dat men de laatste samenhangen en de diepste oorzaken doorschouwt en nog veel minder, dat de mens zichzelf van zijn kwalen weet te genezen, al is het waar, dat therapie en heelmiddelen gaandeweg worden verfijnd en vervolmaakt. Maar de eigenlijke kwaal van de moderne mens is er allereerst een van zijn geest en zijn gemoed. De westerse mens is tot in zijn diepste lagen aangetast door angst, niet door een aanwijsbare en concrete vrees, maar door angst. Deze wordt het scherpst waargenomen en geregistreerd door gevoelige mensen, maar zij beheerst onze hele maatschappij. De ervaringen van de laatste tijden hebben de diepten en de grenzen van de menselijke existentie onthuld. „De bodem der zee werd zichtbaar, ontbloot werden de grondslagen der aarde, door uw dreigen, o Heer” ( Ps. 17, 16 ). Ontzet dreigt de mens terug voor het gezicht van zijn naaktheid. De onverhulde werkelijkheid van zijn eenzaam zijn in een ongekerstende wereld heeft hem verbijsterd.
+
+Zo dikwijls zegt de Heer in de evangeliën: _Vrees niet_ . Moge Hij ons hart genezen van angst en van ons gemoed wegnemen de eenzaamheid, door de zonde in de wereld gebracht. Moge zijn Geest ons bevestigen in het besef en het gevoel van onze verbondenheid met God en met onze broeders en zusters, door Jezus Christus onze Heer.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

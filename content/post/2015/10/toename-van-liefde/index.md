@@ -1,0 +1,20 @@
+---
+title: "Toename van liefde"
+date: "2015-10-27"
+categories: 
+  - "innerlijk-leven"
+---
+
+## 358\. Dinsdag na de Twee en twintigste Zondag na Pinksteren
+
+„En dit is mijn bede: dat uw liefde meer en meer moge toenemen…” ( Phil.1, 9 ; epistel van de Zondag).
+
+1\. Wil onze liefde leven, dan moet zij groeien. Zij kan niet stilstaan tenzij op straffe van achteruitgang. En zij heeft een onmetelijke mogelijkheid van toename. God legde ons de plicht op te streven naar een volkomenheid die op aarde nooit geheel wordt bereikt. „Weest volmaakt gelijk uw hemelse Vader volmaakt is.” Het hongeren en dorsten, het mateloos en bij tijden onstuimig begeren is de minnende ziel eigen. „Zalig zij die hongeren en dorsten naar de gerechtigheid, want zij zullen verzadigd worden” met immer heviger honger en dorst in dit leven en met eeuwige rust van verzadiging hiernamaals. „Want dit is het gewone verschil tussen lichamelijk genot en de geneugten des geestes: zolang wij de lichamelijke genietingen missen, verlangen wij er vurig naar, doch zodra ze gretig worden gesmaakt, wekken zij door oververzadiging onze afkeer en walging op. Maar met de vreugden des geestes staat het omgekeerd. De mens die ze niet kent, begeert ze niet;, wie ze echter geniet, verlangt naar méér en die honger wordt, naarmate de ervaring toeneemt, steeds heviger” ( Sint Gregorius de Grote Hom. in Evang.36 ). Dit is de wet van de liefde die reeds Augustinus met die der zwaartekracht vergeleek: de steeds toenemende snelheid van haar beweging, zoals de steen die valt steeds sneller de aarde nadert. In het begin is de beweging nog traag, maar het tempo neemt voortdurend toe, totdat het rustpunt is bereikt. Zo kosten ons de eerste schreden op de weg der liefde de meeste moeite. Zij worden aarzelend gezet en menigmaal tracht de natuur terug te treden in de oude baan. Doch naarmate de weerstanden van het egoïsme overwonnen worden, vermeerdert de vaart en het gemak waarmee de ziel zich beweegt naar haar Oorsprong en Einde. In dit rusteloze streven, in dit voortdurend overtreffen van zichzelf bestaat het wezen der volmaaktheid op aarde. „Ik vergeet wat achter mij ligt en rek mij uit naar hetgeen vóór mij ligt” ( Phil.3, 13 ). „Het verlangen der ziel om geen afstand te doen, ter wille van hetgeen zij reeds heeft bereikt, van nog hogere toppen, deelt haar een voortdurende stijgende beweging mee waardoor zij in het reeds verworvene steeds opnieuw aandrift vindt voor hoger vlucht” ( Sint Gregorius van Nyssa P.G.44, 401 ).
+
+2\. Waartoe deze nimmer eindigende voortgang der liefde voert, leren ons de heiligen en de geestelijke schrijvers. Zo zegt de ( zalige Jan Ruusbroec ) over wat hij noemt het vierde der zeven sloten of clausuren: „Wij bezitten het, als wij uit liefde onze wil en alle eigenheid prijsgeven aan de vrije wil Gods, zodat wij niets anders kunnen noch vermogen te willen dan gelijk God wil. Dan is immers onze wil uit vrije beweging met liefde gevangen en _zonder terugkeer opgesloten in de wil Gods_ .” Of verneem een andere stem (maar met dezelfde grondtoon) in het roerende slot van Edward Poppe 's laatste brief aan zijn geestelijke leidsman: „Vader, naam van mij weg het behoren aan mijzelf. Maak, dat geen enkele zucht, geen enkel woord meer ontsnappe aan de beweging van den Geest. Sluit mij op in de Toren van David , in de Toren van Jezus! Ik wil het, Vader, ik wil het, op mijn knieën.”
+
+Zullen wij wederom zeggen dat dit te hoog is voor ons? Ongetwijfeld „verschilt de ene ster van de andere in glans” en wij kunnen onze geestelijke weg niet aanvangen op het punt, waar begenadigde zielen eindigen. Maar zeker is ook, dat Christus de Heer al zijn leerlingen tot de volmaaktheid roept, dat God de Geest niet met mate schenkt en dat zijn goedheid en macht zich slechts begrenzen laten door onze kwade wil of door ons gebrek aan verlangen en vertrouwen.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

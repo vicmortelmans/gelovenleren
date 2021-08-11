@@ -1,0 +1,24 @@
+---
+title: "Boek III Hoofdstuk 48 Over de dag der eeuwigheid en de ellenden van dit leven"
+date: "2017-04-24"
+categories: 
+  - "navolging-van-christus"
+---
+
+DE ZIEL. - Hoe zalig is het verblijf der hemelse stad! O heldere dag der eeuwigheid, die door geen nacht verduisterd, maar altijd verlicht wordt door de eeuwige Waarheid; o dag vol blijdschap en veiligheid, die nooit in het tegenovergestelde omslaat. Ach, dat die dag reeds aangebroken ware, en al het tijdelijke een eind hadde genomen! Die dag schijnt reeds voor de Heiligen in de volle glans van zijn eeuwige klaarheid; maar voor ons, pelgrims op aarde, niet dan van ver, en als in een spiegel (1).
+
+De burgers des hemels weten hoe vermakelijk die dag is; maar de ballingen, kinderen van Eva, zuchten dat de tegenwoordige dag zo bitter en verdrietig is. De dagen van dit leven zijn kort en pijnlijk (2), vol smarten en ellenden: de mens wordt er door besmet door vele zonden, belemmerd door vele driften, benauwd door vele angsten, bekommerd door vele zorgen, verstrooid door nieuwigheden, gewikkeld in vele ijdelheden, omringd door dwalingen, overladen door veel arbeid, bezwaard met bekoringen, ontzenuwd door weelde, gepijnigd door gebrek.
+
+Ach, wanneer zullen deze kwellingen een einde nemen? Wanneer zal ik verlost worden van de ellendige slavernij der zonden? O God, wanneer zal ik U alleen gedachtig zijn? wanneer zal ik mij volkomen in U verheugen? Wanneer zal ik, zonder enig letsel, in de ware vrijheid des harten, zonder bezwaar van geest of lichaam wezen? Wanneer zal ik die vertrouwbare vrede genieten, die onverstoorbare en veilige vrede, vrede van buiten en van binnen, een alleszins vaste vrede. O goede Jezus, wanneer zal ik voor U verschijnen om U te zien? Wanneer zal ik de glorie van uw rijk aanschouwen, wanneer zult Gij mij alles in alles zijn? Ach, wanneer zal ik met U zijn in het rijk, dat Gij van eeuwigheid bereid hebt voor uw vrienden? (3) Ik ben hier gelaten, ellendige balling, in een vijandig land, waar dagelijks vele strijden en ongevallen elkander opvolgen.
+
+Vertroost mijn ballingschap, verzacht mijn droefheid, want al mijn begeerten verzuchten naar U. Alles wat de wereld mij tot troost aanbiedt, valt mij lastig. Ik verlang vurig U innig te genieten: maar ik kan het niet bereiken. Ik wens mij bezig te houden met het hemelse, maar tijdelijke zaken en onverstorven driften drukken mij neder. Met het hart zou ik mij gaarne boven alle dingen verheffen maar het vlees houdt mij, tegen mijn wil, daaraan onderworpen. Aldus strijd ik, ongelukkig mens, met mijzelf, en word ik mij tot eigen last (4), daar de geest omhoog wil, en het vlees altoos omlaag.
+
+O wat lijd ik inwendig, als ik aan het hemelse denk, en ik straks in mijn gebed word bestormd door een drom van zinnelijke bekoringen! O God, wijk van mij niet af, (5) en verlaat uw dienaar niet in uw gramschap (6). Laat uw schittering flikkeren, verdrijf de boze gedachten; werp uw pijlen (7), en verdrijf al de kwade ingevingen van de vijand. Roep al mijn aandacht op U; doe mij vergeten al wat werelds is; geef dat ik alle zondige inbeeldingen dadelijk verfoeie en verwerpe. O eeuwige Waarheid, kom mij te hulp, opdat ik door geen ijdelheid ontroerd worde. Ach, hemelse zoetheid! Daal in mijn hart, en alle onreinheid vliede voor U weg. Vergeef mij ook, en handel met mij naar uw barmhartigheid, wanneer ik in het gebed aan iets anders denk dan aan U. Want ik belijd naar waarheid dat ik veelal zeer verstrooid ben. Dikwijls ben ik daar niet, waar ik lichamelijk sta of zit, maar ik ben eerder daar, waar mijn gedachten mij vervoeren. Ik ben, waar mijn gedachte is; en mijn gedachte is allermeest waar het voorwerp van mijn liefde is. Wat mij natuurlijk behaagt of uit gewoonte vermaakt, komt mij terstond te binnen.
+
+En daarom hebt Gij, o opperste Waarheid, uitdrukkelijk gezegd: Waar uw schat is, daar is ook uw hart (8). Indien ik e hemel bemin, zo verblijd ik mij in de voorspoed der wereld, en ik bedroef mij in haar tegenspoed. Indien ik het vlees bemin, zo verbeeld ik mij dikwijls wat vleselijk is. Als ik de geest bemin, daarvan spreek en hoor ik gaarne; en daarvan neem ik de voorstelling mee naar huis. Maar gelukkig de mens, o Heer! die ter liefde van U alle schepselen uit zijn hart bant; die de natuur geweld aan doet, en de begeerlijkheid van zijn vlees kruisigt door de vurigheid van de geest; opdat hij met een rein geweten U een zuiver gebed moge opdragen, en, alle aardse dingen in- en uitwendig verlaten hebbende, waardig zij tot de Koren der Engelen te behoren.
+
+(1) 1 Kor. 13: 12 (2) Gen. 47: 9 (3) Matth. 25: 34 (4) Job 7: 20 (5) Ps. 70: 22 (6) Ps. 26: 9 (7) Ps. 143: 6 (8) Matth. 6: 21
+
+_Thomas a Kempis_
+
+[Over de Navolging van Christus](/blog/de-navolging-van-christus-in-de-sterke-tijden/) - [Abonneren per email (dagelijks van 27/11/2016 tot 16/06/2017 in de sterke tijden)](http://eepurl.com/cg9VGT)

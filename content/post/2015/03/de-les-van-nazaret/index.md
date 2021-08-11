@@ -1,0 +1,22 @@
+---
+title: "De les van Nazaret"
+date: "2015-03-09"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [126\. Maandag na de Derde Zondag van de vasten](http://ift.tt/1CSp1CY)
+
+Het epistel en het evangelie beantwoorden wederom aan elkander. De lezing uit het boek der Koningen geeft het verhaal waarop Jezus in het evangelie zinspeelt: „Er waren ten tijde van de profeet Eliseus vele melaatsen in Israël doch niemand werd gereinigd dan alleen de Syriër Naäman ” . Het zijn deze woorden van de Zaligmaker die de woede van zijn vroegere dorpsgenoten doen overlopen. Hij had slechts kort geleden Nazaret verlaten. Aanvankelijk waren zij trots op de jeugdige rabbi en de roem, die zich om Hem verbreidde. Weldra echter mengde de trots zich met afgunst, omdat Jezus zich in Kafarnaum had gevestigd. Toen Hij na enige tijd zijn vaderstad bezocht, „kon Hij daar wegens hun ongeloof slechts weinig wonderen verrichten” ( Mt. 13, 58 ). Maar Hij spreekt er. Officieel, in de synagoge, leest Hij het woord Gods en na gelezen te hebben zette Hij zich neder voor de toespraak. In de voelbare stilte „stonden aller ogen strak op Hem gericht” , verhaalt Sint Lukas . En als Hij spreekt, sleept Hij ze toch mee, voor een ogenblik, „door de lieflijke woorden die van zijn lippen vloeien” . Maar dan spaart Hij ze niet langer. Ze zullen de harde waarheid horen, deze benepen leiden die Hem meten willen aan de maat van hun kleinheid. „Waarachtig, Ik zeg u: geen profeet is geëerd in zijn eigen vaderland.” Zo was het in de dagen van Elias en Eliseus die hun gaven slechts aan vreemden kwijt konden. Zo is het nog. Hun machteloze woede bewijst de waarheid van zijn woord. Majestatisch schrijdt Hij door hun midden, hen verbijsterd achterlatend ( Lk. 4, 23-30 ).
+
+1\. Waarom maakt Jezus het de mensen van Nazaret zo moeilijk? Want Hij doet er niet of nauwelijks de wonderen die Hij overal elders, waar Hij optreedt en zelfs in het land der heidenen, gul verricht en zijn woorden brengen conflict, dat half verborgen aanwezig was, opzettelijk aan de oppervlakte in plaats van het te verzwijgen. Waarom is de zachtmoedige Meester eensklaps hard? Hij wil zich losmaken van vlees en bloed. Hij schuwt de geringste besmetting van het rijk door de factoren die deze wereld beheersen. Hij wil de onaantastbare waarde volstrekt zuiver houden. „Denkt niet dat Ik vrede ben komen brengen op aarde: geen vrede, maar het zwaard… 's Mensen ergste vijanden zullen zijn huisgenoten zijn. Wie zijn vader of moeder meer bemint dan Mij is Mijner niet waardig” ( Mt. 10, 34-37 ). „Wie is mijn moeder en wie zijn mijn broeders? Die de wil doet van mijn Vader …” ( Mt. 12, 48-50 ). Zelfs zijn Moeder zal Hij niet erkennen voor Hij hangt aan het kruis. De onvoorwaardelijke overgave aan Gods wil (aan zijn liefde) brengt een vreemdheid te weeg die als een mes de nauwste banden doorsnijdt. Deze vreemdheid is noodzakelijk voor de ongereptheid van Gods woord. Jezus weigert het rijk van de Vader dienstbaar te maken aan aardse belangen.
+
+2\. De andere reden (of is het dezelfde?) waarom Hij niet toegeeflijk is, waarom Hij niet afdalen kán, is dat zij niet geloven. En reden waarom zij niet in Hem geloven is dat zij Hem kennen als een der hunnen. „Is deze niet de zoon van Jozef ?” „En ook zijn broeders geloofden niet in Hem” ( Joh. 7, 5 ). De familiariteit belet hun door de knechtsgestalte heen de onzichtbare heerlijkheid te schouwen van de Zoon, die zich ook aan hen openbaart „met woorden van gratie” .
+
+God openbaart zich in het „gewone” . God openbaart zich bij voorkeur in het onaanzienlijke. Het is een grondwet van de verlossing: het Woord is vlees geworden en het heeft God behaagd door de prediking van de dwaasheid des kruises de gelovigen te redden. Zij die _geloven_ worden gered, niet zij die zien, want de glorie van het Woord wordt slechts aanschouwd in het geloof.
+
+Onze allergewoonste dag is doorglansd van de heerlijkheid Gods. De tijd is vervuld van zijn genaden, dag na dag en uur na uur. De altijd eendere mensen die ik elke dag ontmoet dragen Gods beeld in hun ziel. De man in de straat is gekocht met het bloed van Jezus. In de mens die lijdt zet de Heer zijn lijden voort en in mijn eigen smart ligt het kleinood van zijn kruis besloten. Zalig zij die niet gezien en toch geloofd hebben.
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

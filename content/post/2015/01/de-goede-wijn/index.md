@@ -1,0 +1,20 @@
+---
+title: "De goede wijn"
+date: "2015-01-20"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [57\. Dinsdag na de Tweede Zondag na Driekoningen](http://ift.tt/1EjpOtI)
+
+„De Heer sprak: „Vult de kruiken met water en brengt ervan naar de hofmeester.” Toen de hofmeester het water dat wijn geworden was, had geproefd, zei hij tot de bruidegom: „Gij hebt de goede wijn tot nu bewaard” ” ( Joh. 2, \[7-10\] ; evangelie en communio van de Zondag).
+
+1\. Het evangelie bevat een diepe symbolische zin, die de heilige Kerk ons in haar liturgie voorhoudt, zoals blijkt uit de aangehaalde woorden die, zeer betekenisvol, het communiegezang vormen. Wat in het evangelie wordt verhaald ziet zijn niet enkel als een historisch feit, als een eerste openbaring van Jezus' wondermacht in een ver verleden. Dit feest van Kana duurt voort, in een hogere werkelijkheid. Zou de Kerk er zich niet van bewust zijn dat zij de Bruid is van het Lam? Al is de Bruidegom van de aarde weggenomen en al zal eerst in het hemelse Jerusalem de vreugde der vereniging volkomen zijn, de Kerk wéét, te midden van de beproevingen dezer wereld, dat zij met de Heer verbonden blijft, dat Christus haar zijn goddelijke krachten meedeelt, dat het huwelijk van het Woord met de menselijke natuur vruchtbaar wordt in haar schoot. Dit bewustzijn vervult haar bovenal, wanneer zij de feesttafel aanricht der liturgie, het bruiloftsmaal der mis. De vreugde is nog ingehouden, zoals past aan de staat der ballingschap. De Bruidegom is weder aanwezig, zij het onder de sluier der gedaanten waardoor slechts het geloof vermag heen te dringen. En wederom wordt op de bede der Kerk wier beeld Maria is, de nieuwe Moeder der levenden, het water van onze geringheid veranderd in de vurige wijn der godheid. Christus zelf, de Heer, is de goede wijn die de Vader „tot nu toe” , tot het einde der tijden voor de zijnen heeft bewaard en die Hij ons reikt in het offermaal der mis. In de heilige communie wordt de Heer zelf, naar het woord van Sint Ambrosius , die „stevige spijs en drank” die het deel is der kinderen Gods.
+
+2\. Deze wijn, die de liefde van de Bruidegom ons biedt om ons te bedwelmen van wederliefde en alle vergankelijke ijdelheid te doen vergeten, verenigt ons allerinnigst met de Heer en maakt ons aan Hem gelijkvormig. „Uw liefde is zoeter dan wijn” ( Hoogl. 1, 2 ). „Wie mijn vlees eet en mijn bloed drinkt, blijft in Mij en Ik in hem…… hij leeft door Mij gelijk Ik leef door de Vader.” Zoals te Kana het water in de wijn werd veranderd, zo wordt onze zwakke en sterfelijke natuur door deze wijn der goddelijke liefde gezuiverd en gesterkt tot een diepe en vurige gelijkenis Gods. Zoals de druppel water die de priester mengt in de wijn bij de offerande: „Geef dat wij door dit mysterie van water en wijn deelachtig worden aan de godheid van Hem die zich verwaardigde onze mensheid aan te nemen…” En gelijk op de bruiloft weleer Maria het was die Jezus de goede wijn deed schenken, zo is het ook de allerheiligste Moeder Gods die aan Christus' broeders en zusters de geestelijke wijn geboden heeft: het vlees en bloed van Jezus, haar Zoon.
+
+3\. De mensen van onze tijd voelen weinig voor symbolisme. Het is de vraag of zij hierin gelijk hebben. Zeker is dat de liturgie der Kerk vervuld is van deze harmonie tussen het geestelijke en het stoffelijke, het hemelse en het aardse. Zij ziet hierin een consequentie van de menswording van Gods Zoon, waardoor de stof en het geschonden vlees van de mens werden geheiligd. In de sacramenten die oorzaak en _zinnebeeld_ zijn van geestelijke werkelijkheid, wordt de orde der incarnatie voortgezet. En omdat zij ons door goddelijke instelling werden geschonken, is de symboliek der Kerk geen ijdel spel. Doch dit geldt alleen voor wie gelooft en de innerlijke gesteltenis bezit om de weldoende werkelijkheid van deze zinnebeelden te ondergaan.
+
+_Willem Grosssouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

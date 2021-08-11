@@ -1,0 +1,36 @@
+---
+title: "Boek I Hoofdstuk 25 Over de ijverige verbetering van ons leven"
+date: "2016-12-21"
+categories: 
+  - "navolging-van-christus"
+---
+
+ 
+
+Waak en wees naarstig in de dienst van God, en denk dikwijls: waarom zijt gij hier gekomen en hebt gij de wereld verlaten? Is het niet om voor God te leven en een geestelijk mens te worden? Wees dus vurig om vooruitgang te doen, want gij zult haast het loon van uw arbeid ontvangen: en dan zal er noch vrees, noch droefheid in uw uiterste meer zijn. Gij zult nu een weinig arbeiden, en daarvoor zult gij een grote rust, ja een eeuwige vreugde genieten (1). Indien gij getrouw en naarstig in het goed blijft, zal God ongetwijfeld getrouw en overvloedig zijn in u te lonen. Gij moet altijd hopen en vast betrouwen, dat gij de zegepalm zult bekomen; maar gij moogt u niet voor verzekerd houden, ten einde niet lauw en uitgelaten te worden.
+
+Zeker persoon, die dikwijls tussen vrees en hoop dobberde, was eens, door weemoed overwonnen, naar de kerk gegaan. Daar knielde hij voor een altaar om te bidden, en herhaalde bij zichzelf deze woorden: Ach, zo ik wist dat ik zou volharden tot het einde toe! En terstond hoorde hij inwendig dit antwoord van God: Ware het dat gij dit wist, wat zoudt gij willen doen? Doe nu wat gij dan zoudt doen, en gij zult ten volle gerust zijn. En terstond getroost en gesterkt, gaf hij zich geheel over aan de wil van God, en de angstige twijfel hield op. Hij was daarna niet meer nieuwsgierig om te onderzoeken wat hem zou overkomen; maar hij legde zich meer toe om de wil van God te kennen en wat het volmaaktste was in zijn ogen (2), om alle goed werk wel te beginnen en te voltrekken.
+
+Hoop in de Heer en doe het goed, zegt de Profeet, en gij zult de aarde in vrede bewonen en gevoed worden met haar rijkdommen (3). Iets wat vele mensen wederhoudt om vooruitgang te doen, en zich volijverig te beteren, is de vrees voor de inspanning of de moeite van de strijd. Inderdaad, zij gaan het meest vooruit in de deugd, die kloekmoediger trachten te overwinnen wat hun het tegenstrijdigste valt en het zwaarste. Want daarin maakt de mens grote vorderingen en verdient meerdere genade bij God, waarin hij zichzelf meer overwint en zijn geest versterft.
+
+Maar alle mensen hebben niet evenveel te overwinnen en te versterven. Niettemin zal iemand, die oprecht ijverig is, meer toenemen in deugden, al hadde hij meer driften, dan een ander die meer geregeld leeft maar niet zo vurig is voor de deugd. Twee dingen helpen bijzonder voor gedurige beterschap, te weten: zich met geweld onttrekken aan iets waartoe de natuur verkeerd genegen is; en vlijtig die deugd betrachten, die wij allermeest nodig hebben. Zorg ook die dingen bijzonder te vermijden en te overwinnen, die u in anderen meest mishagen.
+
+Behartig vooral de vooruitgang; wanneer gij goede voorbeelden ziet of hoort, wees daartoe opgewekt om die na te volgen. Maar indien gij iets berispelijks opmerkt, wacht u dat gij hetzelfde bedrijft, of hebt gij het ooit gedaan, tracht u terstond daarin te verbeteren. Gelijk uw oog op anderen in acht neemt, zo nemen ook anderen acht op u. O hoe vertroostend en hoe zoet is het ijverige en godvruchtige broeders te zien, vurige getrouwe onderhouders van hun regel. Maar hoe droevig en pijnlijk valt het, zulken te zien, die ongeregeld leven, en die de taak niet uitvoeren waartoe zij geroepen zijn? O hoe nadelig is het de plichten van zijn roep te veronachtzamen, en zich bezig te houden met het niet opgelegde.
+
+Herinner u de hemelse levenstaak en stel u het beeld van de Gekruisigde Jezus voor. Gij moogt met reden beschaamd worden, bij de aanblik van Jezus leven, wijl gij tot nog toe zo weinig gedaan hebt om aan hem gelijkvormig te worden, ofschoon gij voorlang in de weg des Heren getreden zijt. Een kloosterling, die zich ernstig en godvruchtig oefent op het allerheiligst leven en lijden des Heren, zal daar overvloedig in vinden alles wat hem nuttig en noodzakelijk is, en hij behoeft buiten Jezus niets beter te zoeken. O, indien de gekruisigde Jezus in ons hart kwam, hoe spoedig zouden wij gans volleerd zijn!
+
+Een ijverig kloosterling neemt wél aan al wat hem bevolen wordt, en draagt het gewillig. Maar een lauw en zorgeloos kloosterling heeft lijden op lijden, en voelt van alle kanten benauwdheid; want de inwendige troost ontbreekt hem, en de uitwendige te zoeken wordt hem verhinderd. Een kloosterling die buiten zijn regel leeft, is in gevaar van diep te vallen. Wie de vrijheid en gemakken zoekt, zal altijd in het nauw zijn: Want het een of het ander zal hem mishagen.
+
+Hoe doen zoveel andere kloosterlingen, die zeer nauw gebonden zijn door de kloostertucht? Zij gaan zelden uit, zij leven afgescheiden, zij worden armoedig gevoed en grof gekleed; zij arbeidden veel, spreken weinig, waken laat, staan vroeg op, bidden lang, lezen veel, en onderhouden in alles nauwkeurig de regel. Zie de Karthuizers, de Cistercinsers, en meer andere monniken, zo mannen als vrouwen, hoe zij alle nachten opstaan om God lof te zingen. Het zou daarom voor u schandelijk zijn, indien gij in een zo heilige tijd, wanneer zulk een schaar van kloosterlingen God beginnen te loven, moest luieren.
+
+O, hadden wij toch niets anders te doen, dan God onze Heer met hart en mond te loven! O, moesten wij toch nooit eten, drinken of slapen; maar mochten wij God onophoudelijk danken, en ons alleen met geestelijke oefeningen bezig houden, dan zouden wij veel gelukkiger wezen dan wij nu zijn, nu wij genoodzaakt zijn het lichaam in al zijn behoeften te dienen. Och, bestonden die noodzakelijkheden niet, maar alleen de geestelijke zielsverkwikkingen, die wij, helaas! nu maar zelden smaken.
+
+Als een mens zover gekomen is, dat hij bij geen schepsel zijn troost zoekt, dan begint hij God eerst volkomen te smaken, en dan zal hij ook wel tevreden zijn met alles wat er gebeuren zal. Dan zal hij zich met iets groots niet verblijden, noch met iets kleins zich bedroeven, maar hij beveelt zichzelf gans en vol betrouwen aan God, die hem alles in alles is, voor wie niets verloren gaat of sterft, maar voor wie alles leeft en zonder uitstel gehoorzaamt.
+
+Denk altijd op uw einde en dat de verloren tijd niet zal wederkeren. Zonder zorg en naarstigheid zult gij nooit deugden bekomen. Wanneer gij begint te verflauwen, dan zal ook de kwelling beginnen; maar volhardt gij in de vurigheid, zo zult gij grote vrede vinden, en zal de arbeid u minder zwaar vallen door de genade Gods en de liefde tot de deugd. Een vurig en naarstig mens is tot alles bereid. Het is zwaarder moeite aan de zonden en de driften te wederstaan, dan in het zweet van het aanschijn te werken. Wie kleine gebreken niet vermijdt, zal langzamerhand in grotere vallen (4). Gij zult 's avonds altijd blijdschap gevoelen, als gij de dag wél hebt doorgebracht. Waak over uzelf, wek uzelf op, vermaan uzelf, en hoe het ook met anderen sta, verzuim nooit uzelf. Hoe meer geweld gij uzelf aandoet, des te grotere vooruitgang zult gij doen in de deugd.
+
+1) Eccl. 51: 31 2) Rom. 12: 2 3) Psalm 36: 3 4) Eccl. 19
+
+_Thomas a Kempis_
+
+[Over de Navolging van Christus](/blog/de-navolging-van-christus-in-de-sterke-tijden/) - [Abonneren per email (dagelijks van 27/11/2016 tot 16/06/2017 in de sterke tijden)](http://eepurl.com/cg9VGT)

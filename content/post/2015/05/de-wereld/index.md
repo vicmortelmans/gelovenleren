@@ -1,0 +1,20 @@
+---
+title: "De wereld"
+date: "2015-05-20"
+categories: 
+  - "innerlijk-leven"
+---
+
+## [198\. Woensdag onder het octaaf van Hemelvaart](http://ift.tt/1Akm1yI)
+
+„Vader, toen Ik bij hen was, bewaarde Ik hen die Gij Mij gegeven hebt. Nu echter kom Ik tot U. Ik vraag U niet dat Gij hen wegneemt uit de wereld, maar dat Gij hen bewaart voor het kwaad” ( Joh. 17, 12-15 ; communio van de Zondag). „Zij zullen u buiten de synagoog werpen; de ure komt zelfs dat alwie u doodt meent een Gode welgevallig werk te verrichten. En deze dingen zullen zij u aandoen omdat zij noch de Vader noch Mij kennen” ( Joh. 16, 2. 3 ; evangelie van de Zondag).
+
+1\. Het kwaad waarvoor de Heer Jezus bad dat zijn leerlingen bewaard mochten blijven is niet het lijden maar de zonde. Want Hij voorspelde in de woorden van het evangelie dat vervolging hun deel zou zijn en zelfs een bewijs dat zij Hem werkelijk toebehoren. „Allen die vroom willen leven in Christus Jezus zullen vervolging te verduren hebben” ( 2 Tim. 3, 12 ). En men kan daarvoor nog vele andere teksten aanhalen. Het ongeluk dat wij vrezen moeten is de afval van Jezus Christus, en anders geen. Naar die maatstaf alleen mogen wij geluk en ongeluk onderscheiden. Slechts een mens die geheel uit het geloof leeft en in wie de gaven van de Heilige Geest (naar wiens komst wij in deze dagen wederom vol verlangen uitzien) tot ontplooiing zijn gekomen, vermag deze maatstaf feilloos te hanteren. „Meer en meer gehypnotiseerd door de heilige wil Gods zie ik steeds minder verschil tussen lijden en genieten; het enige waar het voor mij op aankomt is de wil des Vaders” ( Marie-Antoinette de Geuser ). Wij moeten steeds minder gevoelig worden voor wat onze natuur pijnlijk of aangenaam aandoet en een grote fijngevoeligheid ontwikkelen ten opzichte van alles wat met Jezus verenigt of van Hem scheidt.
+
+Datgene wat ons van de Heer verwijdert, is het kwaad. Wat ons zijn Geest doet verliezen, wat ons zelfs maar in geringe mate en voor korte tijd van de vereniging met zijn wil en liefde losmaakt, moet ons een gevoel bezorgen van ellendigheid en onvrede.
+
+2\. De wereld begrijpt dit niet want „zij kent noch Hem noch de Vader” . Zijn roeping heeft ons uit de wereld uitverkoren, doch wij leven nog in haar, met de weerloosheid van schapen te midden der wolven. „Ik vraag U niet dat Gij hen uit de wereld neemt doch dat Gij hen bewaart voor het kwaad.” Jezus' leerlingen hebben hun taak te vervullen in de wereld, zij zijn gezonden zoals Hij, maar de Heer weet hoe gevaarlijk en hard hun bestaan zal zijn. Daarom bidt Hij voor hen tot de almachtige Vader en Hij sterkt hun moed met zijn vóórkennis: „Weest niet bevreesd voor hen die wel het lichaam doden doch de ziel niet doden kunnen; vreest liever Hem die èn de ziel èn het lichaam in de hel kan verderven” ( Mt. 10, 28 ). Een christen moet niet de wereld willen beheersen maar haar ondergaan en voor haar redding bidden en lijden. Soms en misschien dikwijls zal ons het gevoel neerdrukken van haar sterke macht en zullen wij beseffen dat het wederom de „kleine kudde” is, waaraan de Vader het rijk toevertrouwde. Wij krijgen niet de indruk dat het woord van het laatste evangelie „en de wereld erkende Hem niet” heden minder toepasselijk zou zijn dan in de dagen van Johannes . De hardnekkigheid van het kwaad, de woekering van het ongeloof, de verheidensing van een maatschappij die toegerust is met alle middelen van de moderne techniek en niet zelden opereert met de gewetenloosheid van het staatsabsolutisme, — dit alles kan ons bijna moedeloos maken en een crisis worden van ons geloof. Moge het ons onthechten aan de gestalte van deze wereld die voorbijgaat en onze ogen vestigen op de hemelse woon waarheen Christus ons is voorgegaan. Maar mogen wij tevens trouw blijven aan onze aardse taak, apostolisch bezield ten opzichte van die wereld die Christus kwam redden en nog niet veroordelen. Moge alle kleingelovigheid wijken door Hem die sprak: „Houdt moed, Ik heb de wereld overwonnen” ( Joh. 16, 33 ).
+
+_Willem Grossouw_
+
+[Over Innerlijk Leven](http://ift.tt/1y6X5mY) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

@@ -1,0 +1,24 @@
+---
+title: "Boek III Hoofdstuk 55 Over de verdorvenheid der natuur en de kracht der goddelijke genade"
+date: "2017-05-01"
+categories: 
+  - "navolging-van-christus"
+---
+
+DE ZIEL. - Heer, mijn God, die mij geschapen hebt naar uw beeld en gelijkenis, verleen mij de genade, welke Gij mij geleerd hebt zo groot en zo nodig te zijn voor mijn zaligheid, dat ik mijn boze natuur overwinne, die mij tot zonde en ten verderve leidt. Want ik gevoel in mijn vlees de wet der zonde, die strijdt tegen de wet van mijn geest, en mij gevangen leidt om aan de zinnelijkheid te gehoorzamen in vele dingen (1); en ik kan mijn driften niet wederstaan, tenzij uw heilige genade mij helpe en haar vuur in mijn hart gestort worde.
+
+Uw genade, ja, uw genade, o Heer! is nodig om de natuur te overwinnen, die altijd geneigd is tot het kwaad van kindsbeen af (2). Want zij is vervallen door de eerste mens, Adam, en door de zonde bedorven, en zo komt de straf dezer smet over alle mensen; zodat die natuur, welke recht en goed door U geschapen was, nu niets meer vertoont dan de gebreken en de krankheid van een verdorven natuur, daar haar neigingen, als zij aan haarzelf overgelaten wordt, ons altoos trekken tot het kwaad en het aardse. De kleine kracht, die haar was overgebleven, is als een vonkje onder as verborgen. Dit is die natuurlijke rede, omringd van grote duisternis, die nog wel het goed en het kwaad, de waarheid en de valsheid onderscheidt, maar die machteloos is om alles te volbrengen wat zij als goed erkent, omdat zij de volle kennis van de waarheid niet meer heeft, en dat al haar neigingen krank zijn.
+
+Daarvan komt het, o mijn God! dat ik welbehagen heb in uw wet (3), volgens de inwendige mens, wetende dat uw gebod goed, rechtmatig en heilig is (4), alle kwaad berispt en de zonde leert ontvluchten. Maar in mijn vlees dien ik de wet der zonde (5), daar ik meer mijn zinnelijkheid dan de rede volg. Daarom komt het, dat ik de begeerte tot het goed heb, maar de kracht niet heb om het te volbrengen (6). Zo komt het dat ik dikwijls goede voornemens maak; maar, omdat mij de genade ontbreekt, die mijn krankheid helpen moet, wijk ik af om een kleine tegenstand, en verflauwt mijn moed. Zo komt het dat ik de weg der volmaaktheid wel ken, en klaar genoeg zie hoe ik behoor te leven. Maar nedergedrukt door het gewicht van mijn verdorvenheid, verhef ik mij niet tot wat volmaakt is.
+
+O Heer! hoe zeer is mij uw genade noodzakelijk, om het goed te beginnen, en daarin voort te gaan, en om het te voleindigen.Want zonder haar kan ik niets doen (7): maar in U vermag ik alles, als uw genade mij versterkt (8). O hemelse genade, zonder welke geen verdiensten noch enige gaven der natuur te achten zijn! Kunsten of rijkdommen, schoonheid of kracht, verstand of welsprekendheid, zijn voor U, o Heer, van geen waarde zonder de genade. Want de gaven der natuur zijn evenzeer het aandeel van goeden en kwaden; maar de genade of de liefde is de bijzondere gave der uitverkorenen, en die daarmee getekend zijn, worden het eeuwig leven waardig gekeurd. Deze genade is zo verheven, dat zonder haar noch de gave van voorzegging, noch de kracht van mirakelen, noch alle hoge beschouwing voor iets geacht worden. Zelfs het geloof, de hoop of enig andere deugd zijn U, o Heer, niet aangenaam zonder de genade en de liefde.
+
+O allerzaligste genade, die de arme van geest rijk maakt in deugden, en hem, die rijk is in gaven, ootmoedig van harte doet zijn. Kom, daal over mij neder, vervul mij in de vroegte met uw troost (9), opdat mijn ziel niet bezwijke van vermoeienis en dorheid van gemoed. Ik bid U, Heer, laat mij genade vinden voor uw ogen: want uw genade is mij genoeg (10) al verkreeg ik niets van al het andere, dat de natuur verlangt. Al is het dat ik bekoord en geplaagd worde met vele kwellingen, toch zal ik niet vrezen, als maar uw genade met mij is (11). Zij is mijn sterkte, zij brengt raad en hulp. Zij is machtiger dan alle vijanden, en wijzer dan alle wijzen der wereld.
+
+Zij is de meesteres der waarheid en der goede zeden; het licht des harten, de troost in verdrukking; zij verdrijft de droefheid, neemt de vrees af, is de voedster der godsvrucht, de bron der zoete tranen. Wat ben ik zonder haar dan een droog hout, een onnuttige struik, die uitgeroeid wordt? Dat kan, o Heer, uw genade mij altijd voorkome, mij altijd vergezelle, en mij gedurig aandachtig make op de oefening der goede werken. Door Jezus Christus, uw Zoon. Amen.
+
+(1) Rom. 8: 27 (2) Gen. 8: 27 (3) Rom. 7: 22 (4) Rom. 7: 12 (5) Rom. 7: 25 (6) Rom. 7: 18 (7) Joh. 15: 5 (8) Fil. 4: 13 (9) Ps. 89: 14 (10) 2 Cor. 12: 9 (11) Ps. 12: 16
+
+_Thomas a Kempis_
+
+[Over de Navolging van Christus](/blog/de-navolging-van-christus-in-de-sterke-tijden/) - [Abonneren per email (dagelijks van 27/11/2016 tot 16/06/2017 in de sterke tijden)](http://eepurl.com/cg9VGT)

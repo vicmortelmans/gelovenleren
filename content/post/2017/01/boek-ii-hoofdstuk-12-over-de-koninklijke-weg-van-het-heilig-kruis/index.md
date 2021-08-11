@@ -1,0 +1,48 @@
+---
+title: "Boek II Hoofdstuk 12 Over de koninklijke weg van het heilig Kruis"
+date: "2017-01-06"
+categories: 
+  - "navolging-van-christus"
+---
+
+ 
+
+Velen schijnt dit een hard woord: Verloochen uzelf, neem uw kruis op, en volg Jezus (1). Maar het zal veel harder om te horen zijn dit laatste woord: "Gaat van mij, vervloekten, in het eeuwig vuur"(2). Want die nu gaarne het woord omtrent het kruis horen en opvolgen, zullen alsdan niet moeten vrezen voor het vonnis der eeuwige verwerping. Dat kruisteken zal in de lucht verschijnen, wanneer de Heer zal komen om te oordelen. Dan zullen alle dienaren van het kruis, die zich hier in hun leven aan de gekruisigde hebben gelijkvormig gemaakt, met groot vertrouwen de rechter treden.
+
+Waarom dan vreest gij nu het kruis op te nemen, waarmee men tot het eeuwig rijk komt? In het kruis ligt zaligheid, in het kruis het leven, in het kruis bescherming tegen de vijanden, in het kruis een vloed van bovenaardse zoetheid, in het kruis de sterkte van het hart, in het kruis vreugde van geest, in het kruis het toppunt der deugd, en de volmaakte heiligheid. Daar is geen behoud voor onze ziel, of geen hoop op het eeuwig leven, dan in het kruis.
+
+Neem dan het kruis op, en volg Jezus, en gij zult het eeuwig leven ingaan. Hij is voorop gegaan, dragende zijn kruis, en Hij is voor u aan het kruis gestorven, opdat gij ook uw kruis zoudt dragen, en volgaarne sterven aan het kruis. Want indien gij met Hem sterft, zo zult gij ook met Hem leven; en indien gij zijn deelgenoot zijt in de smarten, zult gij het ook zijn in de glorie" (3).
+
+Zie, alles bestaat dan in het kruis, en in te verstervenis het al gelegen; en daar is geen andere weg tot het leven en tot de ware inwendige vrede, dan de weg van het H. Kruis en van de dagelijkse versterving.
+
+Ga heen waar gij wilt, zoek wat gij wilt, en gij zult omhoog geen verhevener weg, of beneden geen veiliger weg vinden dan de weg van het H. Kruis. Beschik en regel alles volgens uw wil en goeddunken, en gij zult bevinden dat gij altoos iets moest lijden, hetzij met zin of tegenzin: en zo zult gij altijd een kruis vinden. Want, of gij zult een pijn gevoelen in uw lichaam, of enig geestelijke kwelling in uw ziel verduren.
+
+Somtijds zult gij van God verlaten zijn, dan weder door de naaste gekweld worden, en wat meer is, dikwijls zult gij uzelf tot last dienen. En nochtans zult gij door geen enkel red- of troostmiddel verlost of verlicht kunnen worden, maar gij moet het verdragen zolang het God zal believen. Want God wil, dat gij leert bekoringen verdragen zonder vertroosting; en dat gij u gans aan Hem onderwerpt, en ootmoediger wordt door het lijden. Niemand beseft Christus lijden zo hartelijk, als hij die ook iets geleden heeft. Het kruis is dan altoos bereid, en het wacht u overal. En waar gij ook lopen moogt, gij kunt het niet ontvluchten; want waar gij ook komt, draagt gij uzelf altijd mede, en gij zult uzelf altijd vinden. Hef u opwaarts, buig u nederwaarts, keer u buitenwaarts of binnenwaarts, en overal zult gij uw kruis vinden. En gij moet overal het geduld oefenen, indien gij de inwendige vrede bezitten wilt, en de eeuwige kroon verdienen.
+
+Indien gij het kruis gewillig draagt, het zal u ook dragen en het zal u brengen naar het gewenste einddoel, waar het lijden zal ophouden, maar dat zal niet hier zijn. Indien gij uw kruis ongewillig draagt, zo makt gij u een last, en gij belaadt u nog zwaarder; en evenwel moet gij het toch dragen. Indien gij een kruis afwerpt, zult gij er buiten twijfel een ander vinden, en misschien nog zwaarder.
+
+Meent gij te ontgaan wat nooit n sterveling heeft kunnen vermijden? Welke Heilige is er in deze wereld vrij geweest van kruis en lijden? Onze Heer en onze God, Jezus Christus zelf, is nooit een enkel uur zonder lijdenssmart geweest, zolang Hij geleefd heeft. Gelijk Hij zelf zegt: "Het stond vast dat Christus moest lijden, en van de dood verrijzen, en alzo tot zijn heerlijkheid ingaan" (4). En gij, hoe zoekt gij dus een andere weg dan deze koninklijke weg, de weg van het H. Kruis.
+
+Geheel het leven van Jezus Christus is een gedurig kruis en lijden geweest; en voor u zoekt gij rust en blijdschap! Gij dwaalt, zo gij iets anders zoekt dan gekweld te worden en te lijden; want gans dit sterfelijk leven is vol ellende en overal bezet met kruisen. En hoe meer iemand, in het geestelijk leven gevorderd is, des te zwaarder kruisen hij dikwijls vindt; omdat door zijn liefde de druk van zijn verbanning aangroeit.
+
+Nochtans is iemand, door zoveel lijden beproefd, niet van opbeuren en troost verstoken, omdat hij beseft dat hem met het dragen van zijn kruis vele vruchten toekomen. Want daar hij zichzelf gewillig onder het kruis buigt zo wordt alle last van kwelling, veranderd in vertrouwen op goddelijke troost. En hoe meer zijn vlees door het lijden afgemat wordt, des te meer wordt zijn geest versterkt door de inwendige genade. Ja, somtijds wordt hij zodanig versterkt door de liefde voor lijden en tegenspoed, uit zucht naar overeenstemming met de gekruisigde Christus, dat hij zonder pijn of kwellingen niet zou willen zijn: want hij gelooft dat hij God zoveel te aangenamer is, hoe meer hij voor Hem kan lijden. Dit is geen werk van mensenkracht, maar van Gods genade, die op de boze mens zoveel uitwerkt dat hij uit geestelijke vurigheid dat aanneemt en bemint, waar hij van natuur altijd een afkeer en schrik van heeft.
+
+Het is zeker geen mensenwerk, het kruis te dragen, het kruis te beminnen, het lichaam te kastijden en te brengen onder bedwang, de eer te vlieden, gaarne versmaadheden te verdragen, zichzelf te minachten en wensen door anderen misacht te worden, alle tegenspoed en schade te lijden, en geen de minste voorspoed in de wereld te begeren. Dus indien gij uzelf beziet, kunt gij door eigen krachten niets van die aard uitvoeren. Maar indien gij op de Heer vertrouwt,, zo zal u uit de hemel sterkte gegeven worden, en de wereld en het vlees zullen u onderworpen zijn. Zelfs zult gij de helse vijand niet vrezen, als gij gewapend zijt met een vast geloof, en getekend met het kruis van Christus.
+
+Bereid u dan, als goed en trouw dienaar van Christus, om het kruis van uw Heer, die uit liefde voor u gestorven is, moedig te dragen. Bereid u om veel tegenspoed en ongemakken in dit ellendig leven te lijden: want zo zal uw lot zijn waar gij ook verblijven moogt; en zo zult gij 't in werkelijkheid bevinden, in welke plaats gij u ook verbergt. Het moet zo zijn: en er is geen hulpmiddel voor zovele kwellingen, dan dat gij u daarin getroost. Drink met blijdschap de kelk des Heren, indien gij Zijn vriend wilt zijn, en met Hem deel hebben in zijn rijk. Beveel de vertroostingen aan God; laat Hem daarmede doen gelijk het Hem belieft. Maar gij, zet er u toe om kwellingen te lijden, en houd ze voor grote vertroostingen; want de pijnen en het lijden van deze tijd zijn niet te vergelijken bij de toekomende glorie (5), al zoudt gij ze alle kunnen lijden.
+
+Als gij zover gekomen zult zijn, dat u het lijden om Christus wil zoet en smakelijk is, reken dan dat het u welgaat, want gij hebt een paradijs gevonden op aarde. Zolang het leven u zwaar valt, en gij het zoekt te ontgaan, zolang zult gij het kwaad hebben, en beduchtheid voor leed zal u overal volgen.
+
+Indien gij u toelegt op wat gij zijn moet, namelijk om te lijden en te sterven, zo zal het met u welhaast beter gaan, en gij zult rust vinden. Al waart gij met Petrus opgetogen tot de derde hemel, nog zijt gij niet beveiligd voor alles wat tegenstaat: Ik zal hem tonen, zegt Jezus, hoeveel hij om mijn naam moet lijden (6). Daar blijft u niets over dan te lijden, indien gij Jezus wilt beminnen en voor altoos dienen.
+
+Och, of gij waardig waart voor de naam van Jezus iets te lijden! Wat grote heerlijkheid zou u te wachten zijn, wat vreugde voor alle Heiligen Gods en hoeveel stichting ook voor uw naaste! Want alle mensen prijzen de lijdzaamheid, alhoewel er weinigen zijn, die iets willen lijden. Met recht zoudt gij gaarne iets voor Christus moeten lijden, aangezien er zovelen zijn, die wat ergers lijden voor de wereld.
+
+Houd voor zeker, dat uw leven een gedurig afsterven moet zijn; en dat hoe meer de mens zichzelf afsterft, hoe meer hij voor God begint te leven. Niemand is bekwaam het hemelse te begrijpen, tenzij hij zich ootmoedig onderwerpe om leed te verdragen voor Christus. Daar is niets aangenamer aan God, en niets is voor u heilzamer in deze wereld, dan blijmoedig te lijden voor Jezus Christus. En indien gij te kiezen hadt, zoudt gij eerder moeten wensen tegenspoed te lijden voor Christus, dan met vele vertroostingen te worden verkwikt: want zo zoudt gij aan Christus en aan alle Heiligen meer gelijkvormig zijn. Want onze verdiensten en onze vooruitgang in onze roeping bestaan niet in vele zoetigheden en vertroostingen: maar eerder in grote zwarigheden en harde kwellingen te verdragen.
+
+Ware er iets beter, iets voordeliger geweest voor de zaligheid van de mens dan het lijden, Christus zou het zeker door woorden en werken getoond hebben. Maar nu vermaant Hij openlijk zijn Leerlingen en al die Hem volgen willen, om het kruis te dragen, en zegt: Indien iemand na Mij wil komen, hij verloochene zichzelf, neme zijn kruis op en volge Mij"(7). Na alles dus doorlezen en onderzocht te hebben, laten wij tot deze slotsom komen: Dat wij door vele kwellingen heen in het rijk Gods moeten binnengaan (8).
+
+(1) Luk. 9: 23 (2) Matt. 25: 41 (3) Rom. 6 (4) Luc. 24: 46 (5) Rom. 8: 18 (6) Hand. 9: 16 (7) Luc. 9: 23 (8) Hand. 14: 24
+
+_Thomas a Kempis_
+
+[Over de Navolging van Christus](/blog/de-navolging-van-christus-in-de-sterke-tijden/) - [Abonneren per email (dagelijks van 27/11/2016 tot 16/06/2017 in de sterke tijden)](http://eepurl.com/cg9VGT)
