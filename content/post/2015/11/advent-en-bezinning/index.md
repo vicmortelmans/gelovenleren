@@ -19,9 +19,9 @@ Intussen kan u alvast het prentenmissaaltje voor de kersttijd [downloaden en afd
 
 En om mijn eigen blog te vullen… zal ik zelf weer wat meer moeten schrijven :) Misschien lukt dat wel, verlicht door onze adventskrans die overigens, bij gebrek aan onbenutte tafeloppervlakte, een hangend model is.
 
-\[caption id="attachment\_1953" align="alignnone" width="169"\]![Hangende adventskrans](images/DSC_0039-169x300.jpg) Hangende adventskrans\[/caption\]
+![Hangende adventskrans](images/DSC_0039-169x300.jpg) Hangende adventskrans
 
-\[Update op 20 december\]
+
 
 Na enkele weken ziet de adventskrans al een pak minder troosteloos uit, dankzij wat extra versiering, en drie extra lichtjes :)
 

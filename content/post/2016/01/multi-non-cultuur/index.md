@@ -11,7 +11,7 @@ tags:
 coverImage: "clash-of-civilizations.png"
 ---
 
-\[caption id="attachment\_2056" align="alignright" width="300"\]![Clash of civilizations](images/clash-of-civilizations-300x167.png) Clash of civilizations\[/caption\]
+![Clash of civilizations](images/clash-of-civilizations-300x167.png) Clash of civilizations
 
 Een botsing van culturen. Dat is vaak de analyse van problemen met migranten. Die uitspraak veronderstelt dat er minstens twee culturen in het spel zijn. Is dat wel zo? Zou de correcte analyse misschien kunnen zijn dat er gebrek is aan cultuur, aan beide zijden?
 

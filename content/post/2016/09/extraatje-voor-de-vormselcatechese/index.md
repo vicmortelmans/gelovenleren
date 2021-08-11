@@ -21,10 +21,10 @@ Catechisten kunnen het gebruiken als extraatje tijdens de voorbereidende cateche
 
 Het boekje kan je gratis [downloaden als PDF](/portfolio/gevormd/), in een formaat dat je op een gewone printer kan afdrukken om er zelf een mooi boekje van te maken, of je kan het (aan kostprijs) [bestellen bij de drukker](/portfolio/gevormd/).
 
-\[portfolio display\_types=false display\_tags=false include\_tag=gevormd columns=3\]
+
 
 Enkele voorbeelden:
 
-\[caption id="attachment\_2195" align="aligncenter" width="500"\][![Gevormd!](images/etymologie-vormsel.png)](/portfolio/gevormd/) Gevormd!\[/caption\]
+[![Gevormd!](images/etymologie-vormsel.png)](/portfolio/gevormd/) Gevormd!
 
-\[caption id="attachment\_2861" align="aligncenter" width="500"\][![Gevormd!](images/vormsel-twee-blz.png)](/portfolio/gevormd/) Gevormd!\[/caption\]
+[![Gevormd!](images/vormsel-twee-blz.png)](/portfolio/gevormd/) Gevormd!

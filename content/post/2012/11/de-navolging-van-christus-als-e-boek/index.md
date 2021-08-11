@@ -18,7 +18,7 @@ Ik vond al apps voor mail, agenda, browser, regenverwachting, wegenkaarten, reis
 
 Nu bedacht ik me dat je met zo'n ding toch ook e-boeken zou moeten kunnen lezen, en daar valt misschien nog wel een en ander interessants te rapen voor 'GelovenLeren'.
 
-\[caption id="attachment\_4463" align="aligncenter" width="500"\][![](images/navolging-van-christus-700x467.jpg)](images/navolging-van-christus.jpg) Tweemaal "De Navolging van Christus" in zakformaat\[/caption\]
+[![](images/navolging-van-christus-700x467.jpg)](images/navolging-van-christus.jpg) Tweemaal "De Navolging van Christus" in zakformaat
 
 Het voordeel van e-boeken in vergelijking met online content is dat e-boeken offline worden opgeslagen, dus je kan er ook bij als je geen netwerkverbinding hebt, en zo'n lezer houdt bovendien bij waar je met lezen geeëindigd bent, dus voor langere teksten is dat onmisbaar. Het is een ideaal concept voor een boek waarin je bv. elke dag een stukje wil lezen, zoals een gebedenboek, een lectionarium of een bijbel. Een echte app gaat nog een stapje verder: die kan automatisch worden up-to-date gebracht, bijvoorbeeld nuttig om elk jaar een update van de kalender te publiceren voor de gebruikers.
 
@@ -34,7 +34,7 @@ Bijbel... Een gratis [versie](http://freebiblegospeltoallnations.blogspot.be/201
 
 Catechismus... Youcat heeft een inkijkversie in epub-vorm, maar daarop crashen zowat alle lezers. Ik neem aan dat u ook niet op de Heidelbergse Catechismus zit te wachten? De website van [rkdocumenten.nl](http://rkdocumenten.nl/), die nochtans een ware schat een e-boekachtig materiaal bevat, is mobiel totaal onbruikbaar... ook 'gene vette'.
 
-Misschien weet ik niet waar te zoeken. Ik probeerde al [Google Books](http://books.google.be/books?hl=nl), maar de [Android-app](https://play.google.com/store/apps/details?id=com.google.android.apps.books) is niet gesupporteerd door mijn (spiksplinternieuwe) Android-phone, en er schijnt geen mobiele web-interface te bestaan. Blijkbaar zijn ze bij Google hun Books aan hun Play aan het koppelen, maar is dat in Vlaanderen nog niet vrijgegeven. \[update 20140609: intussen is de Google Books App mijn favoriete e-boeklezer, vooral omdat je er naast boeken aangekocht op Google Play Books ook je eigen (of elders aangekochte) epub-bestanden kan opladen\] Ook op [project Gutenberg](http://www.gutenberg.org/browse/languages/nl) is het aanbod quasi nihil.
+Misschien weet ik niet waar te zoeken. Ik probeerde al [Google Books](http://books.google.be/books?hl=nl), maar de [Android-app](https://play.google.com/store/apps/details?id=com.google.android.apps.books) is niet gesupporteerd door mijn (spiksplinternieuwe) Android-phone, en er schijnt geen mobiele web-interface te bestaan. Blijkbaar zijn ze bij Google hun Books aan hun Play aan het koppelen, maar is dat in Vlaanderen nog niet vrijgegeven.  Ook op [project Gutenberg](http://www.gutenberg.org/browse/languages/nl) is het aanbod quasi nihil.
 
 **De navolging van Christus**
 
@@ -50,4 +50,4 @@ Voorts lijkt het e-boekformaat ook uitgelezen als complementair medium voor mijn
 
 Wordt vervolgd...
 
-\[Update: ondertussen zijn zowel de "Navolging van Christus" als "Innerlijk Leven" [beschikbaar als e-boek in verschillende formaten en online winkels](/e-boeken/).\]
+

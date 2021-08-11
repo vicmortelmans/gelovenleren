@@ -16,4 +16,4 @@ De lezing kan je bekijken op [Youtube](http://www.youtube.com/watch?v=KYvctQScno
 
 http://www.youtube.com/watch?v=KYvctQScno4
 
-[![biblical story](/wp-content/uploads/2014/12/biblicalstory.png?w=450)](/wp-content/uploads/2014/12/biblicalstory.png)
+[![biblical story](images/biblicalstory.png?w=450)](images/biblicalstory.png)

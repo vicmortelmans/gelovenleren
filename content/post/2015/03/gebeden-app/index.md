@@ -26,7 +26,7 @@ Ik vraag me af of je met dit navigatieconcept geen handige missaal zou kunnen ma
 
 ### Responsorium
 
-\[caption id="attachment\_3306" align="alignleft" width="100"\][![](images/xxxhdpi.png)](https://play.google.com/store/apps/details?id=net.gelovenleren.gebeden) Katholieke Gebeden\[/caption\]
+[![](images/xxxhdpi.png)](https://play.google.com/store/apps/details?id=net.gelovenleren.gebeden) Katholieke Gebeden
 
 Het ikoontje van de app is het symbool dat gebruikt wordt om in een gebed aan te duiden welk stuk gebeden wordt door het volk, dat is het 'responsorium' (℟). De tegenhanger van dit symbool is het 'versiculum' (℣), wat aangeeft welk stuk gebeden wordt door de priester. Voor wie zelf gebeden opmaakt, kan het interessant te vernemen dat beide symbolen beschikbaar zijn in een apart font '[liturgy.ttf](http://www.romanliturgy.org/?p=41)' onder de karakters 'R' en 'V', maar dat de unicode-standaard beide symbolen ook opneemt: '[versicle](http://www.fileformat.info/info/unicode/char/2123/index.htm)' en '[response](http://www.fileformat.info/info/unicode/char/211F/index.htm)', inclusief referenties naar fonts die deze karakters ondersteunen.
 
@@ -93,7 +93,7 @@ Dit is de volledige lijst van de beschikbare gebeden:
 
 **Drie-eenheid**
 
-- Sýmbolum Athanasiánum \[Quicumque\]
+- Sýmbolum Athanasiánum 
 - Te Deum
 - Triságium angélicum
 - Akte van berouw

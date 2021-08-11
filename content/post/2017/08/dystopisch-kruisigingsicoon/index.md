@@ -10,7 +10,7 @@ coverImage: "dystopical-crucified-jesus-header.jpg"
 
 Als ik het gemekker op Twitter over fundamentalisme even beu ben, wil ik wel eens rondneuzen op [Pinterest](https://www.pinterest.com/vicmortelmans/missale/) op zoek naar illustraties voor [missale.net](http://www.missale.net). Daar trof ik vandaag een merkwaardig kruisigingsicoon aan.
 
-\[caption id="attachment\_3898" align="alignright" width="175"\][![](images/dystopical-crucified-jesus-175x300.jpg)](https://www.pinterest.com/pin/373517362837433654/) Dystopisch Kruisigingsicoon\[/caption\]
+[![](images/dystopical-crucified-jesus-175x300.jpg)](https://www.pinterest.com/pin/373517362837433654/) Dystopisch Kruisigingsicoon
 
 Het icoon viel me meteen op, omdat het een ongewone blik op de kruisiging geeft. Je bekijkt de gekruisigde van de achterzijde en in de achtegrond zie je de stad Jeruzalem liggen. Ik bedacht me dat dit perspectief best wel eens realistisch kan zijn. De kruisiging voltrok zich op een heuvel, niet ver van Jeruzalem. Toch zie je op een afbeelding van de kruisiging zelden een stad in de achtergrond liggen. Omdat je in dezelfde richting kijkt als Jezus, zie je Hem als het ware Jeruzalem overschouwen en daarbij kwamen me de bijbelverzen voor de geest waar Hij, enkele dagen voor zijn dood, Jeruzalem ook vanop een heuvel aanschouwt en beweent.
 

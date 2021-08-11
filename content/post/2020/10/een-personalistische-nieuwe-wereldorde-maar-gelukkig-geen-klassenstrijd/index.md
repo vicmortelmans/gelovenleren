@@ -50,4 +50,4 @@ Het is een mooie tekst en een verademing om in een wereld waarin veel negativism
 
 PS. ik dacht bij het lezen: ik heb dat allemaal al eens gehoord!... En wat blijkt: Willem had er al een liedje over geschreven, inclsief de verwijzing naar Gen 4:
 
-http://gelovenleren.net/wp-content/uploads/2020/10/vermandere.mp3
+[vermandere.mp3](https://storage.googleapis.com/geloven-leren/audiobooks/vermandere.mp3)

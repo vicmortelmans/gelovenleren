@@ -8,7 +8,7 @@ tags:
 coverImage: "katholiekeradio.png"
 ---
 
-\[caption id="attachment\_643" align="alignright" width="224"\][![Katholieke Radio](images/katholiekeradio.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio\[/caption\]
+[![Katholieke Radio](images/katholiekeradio.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio
 
 Er is een nieuwe versie van de Android-app [Katholieke Radio](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio "Katholieke Radio"). 
 
@@ -24,6 +24,6 @@ Samen met Radio Maria Nederland en Vlaanderen en het live-getijdengebed in novus
 
 Je kan de app ook gebruiken in je browser, als een [gewone website](http://radio.gelovenleren.net/ "Katholieke Radio").
 
-\[update op 8 januari\] Nog een zender toegevoegd. RKK publiceert vier podcasts, die nu ook elk te beluisteren zijn: Katholiek Nederland, Kruispunt, Wat Blijft en Platenparadijs. Veel luistergenot!
+ Nog een zender toegevoegd. RKK publiceert vier podcasts, die nu ook elk te beluisteren zijn: Katholiek Nederland, Kruispunt, Wat Blijft en Platenparadijs. Veel luistergenot!
 
 _Ken je nog andere nederlandstalige katholieke uitzendingen of podcasts, geef gerust een seintje! Ken je iemand met een Apple Developer Account die deze (of andere) katholieke apps kan publiceren op iStore, gelieve contact op te nemen!_

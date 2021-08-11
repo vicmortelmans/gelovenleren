@@ -8,7 +8,7 @@ tags:
 coverImage: "saintechapelle.jpg"
 ---
 
-\[caption id="attachment\_1082" align="alignright" width="300"\]![La Sainte Chapelle, Parijs](/wp-content/uploads/2014/12/saintechapelle.jpg?w=300) La Sainte Chapelle, Parijs\[/caption\]
+![La Sainte Chapelle, Parijs](images/saintechapelle.jpg?w=300) La Sainte Chapelle, Parijs
 
 Gotiek is een bouwstijl die heel mooie kerken oplevert met veel licht, vertikale lijnen en ruimte voor speelse ornamenten. Het bijzondere aan de gotische bouwstijl is de onzichtbaarheid van de elementen die het gebouw dragen. In een romaanse kerk voel je hoe de zware muren de gewelven dragen, maar in een gotische kerk zit de kracht in de steunberen die zich aan de buitenkant van de kerk bevinden. De dragende gewelven zijn herleid tot ribben die samenkomen in een enkele sluitsteen.
 

@@ -17,7 +17,7 @@ Ik zou de oude wallpaper kunnen herschalen om op het nieuwe scherm te passen, ma
 
 Dit zijn enkele voorbeelden van wallpapers die geschikt bevonden worden voor een Material Design-telefoon:
 
-\[caption id="attachment\_1076" align="aligncenter" width="696"\]![Lollipop wallpapers](images/lollipop-wallpapers.jpg) Lollipop wallpapers\[/caption\]
+![Lollipop wallpapers](images/lollipop-wallpapers.jpg) Lollipop wallpapers
 
 De filosofie van Material Design is het ontwerp van een website of een app te modelleren op basis van papier [(of iets dat erop lijkt)](http://www.google.com/design/spec/what-is-material/material-properties.html#material-properties-physical-properties). Papier heb je in verschillende kleuren of met een foto erop, kan je verknippen, in verschillende lagen op mekaar leggen, verschuiven, draaien enz. Heel herkenbaar in Material Design zijn dan ook de strakke kleuroppervlakken, veel witruimte rond tekst, sobere vormgeving met rechte lijnen en cirkels, eigenlijk een [remake](https://medium.com/@smpetrey/the-new-bauhaus-and-material-design-ee03273c7882) van de Duitse [Bauhausstijl](http://www.bauhaus.de/de/bauhaus-archiv/) uit het interbellum.
 
@@ -25,18 +25,18 @@ De filosofie van Material Design is het ontwerp van een website of een app te mo
 
 Even grasduinen in de beeldenset van [missale.net](http://www.missale.net/nl), levert me drie (min-of-meer) kandidaat-afbeeldingen op, die ik meteen op mijn gsm heb getest (nu nog met Android kitkat):
 
-\[caption id="attachment\_1073" align="alignleft" width="169"\]![Madonna and child (Vascotto V., 2012, © Vascotto V.)](images/Screenshot-10_51PM-apr.-11-2015-169x300.png) Madonna and child (Vascotto V., 2012, © Vascotto V.)\[/caption\]
+![Madonna and child (Vascotto V., 2012, © Vascotto V.)](images/Screenshot-10_51PM-apr.-11-2015-169x300.png) Madonna and child (Vascotto V., 2012, © Vascotto V.)
 
-\[caption id="attachment\_1072" align="alignleft" width="169"\]![A voice in the wilderness (Lorie McCown, 2012, © Lorie McCown)](images/Screenshot-10_55PM-apr.-10-2015-169x300.png) A voice in the wilderness (Lorie McCown, 2012, © Lorie McCown)\[/caption\]
+![A voice in the wilderness (Lorie McCown, 2012, © Lorie McCown)](images/Screenshot-10_55PM-apr.-10-2015-169x300.png) A voice in the wilderness (Lorie McCown, 2012, © Lorie McCown)
 
-\[caption id="attachment\_1071" align="alignleft" width="169"\]![Ecce Homo](images/Screenshot-10_18AM-apr.-11-2015-169x300.png) Ecce Homo\[/caption\]
+![Ecce Homo](images/Screenshot-10_18AM-apr.-11-2015-169x300.png) Ecce Homo
 
 Van dat laatste werk is me de herkomst onbekend, maar het geometrische patroon past op wonderbaarlijke wijze precies op het rooster waarin de ikonen van de apps op het thuisscherm gerangschikt zijn! Zelfs als je naar links en rechts schuift en de achtergrond verschuift tov. de ikonen, blijft de uitlijning van het patroon perfect bewaard. Hoewel ik eigenlijk op zoek was naar een donkerder afbeelding omwille van de zichtbaarheid van de ikonen, blijkt mijn keuze van Hogerhand bepaald :)
 
 Hier heeft u de wallpaper "Ecce Homo" voor eigen gebruik op een telefoon met een scherm van 1280 bij 720 pixels (klik op de afbeelding om te downloaden):
 
-\[caption id="attachment\_1074" align="aligncenter" width="300"\][![Ecce Homo bijgesneden als Android wallpaper](images/ecce-homo-1440-1280-300x267.jpg)](images/ecce-homo-1440-1280.jpg) Ecce Homo bijgesneden als Android wallpaper\[/caption\]
+[![Ecce Homo bijgesneden als Android wallpaper](images/ecce-homo-1440-1280-300x267.jpg)](images/ecce-homo-1440-1280.jpg) Ecce Homo bijgesneden als Android wallpaper
 
 Zo ziet het originele werk eruit:
 
-\[caption id="attachment\_1075" align="aligncenter" width="238"\]![Ecce Homo](images/ecce-homo-238x300.jpg) Ecce Homo\[/caption\]
+![Ecce Homo](images/ecce-homo-238x300.jpg) Ecce Homo

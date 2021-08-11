@@ -23,11 +23,11 @@ De motor van de virtuele PA's is de software die in staat is om jouw instructies
 
 Om er toch even dieper op in te gaan, toont dit schema wat er zich in zo'n PA afspeelt zodra je hem aanspreekt:
 
-\[caption id="attachment\_3439" align="alignnone" width="642"\]![](images/image00.png) Componenten van de virtuele Personal Assistant\[/caption\]
+![](images/image00.png) Componenten van de virtuele Personal Assistant
 
 Twee belangrijke interfaces zijn de STT and TTS-componenten. Zij zetten spraak om in geschreven tekst en zorgen ervoor dat de Assistant je kan horen (nog niet 'begrijpen'!) en dat jij de Assistant kan horen. Chat-assitants hebben deze componenten niet nodig. Het 'begrijpen', dat zit verscholen in de 'AI'-component. Die moet je opdracht interpreteren en is het echte brein van de PA.
 
-\[caption id="attachment\_3440" align="alignnone" width="641"\]![](images/image01.png) Het brein van de PA: "wat bedoel je?"\[/caption\]
+![](images/image01.png) Het brein van de PA: "wat bedoel je?"
 
 Zo'n AI-component probeert je commando te herkennen door het te vergelijken met een hele reeks voorgeprogrammeerde commando's. Domme AI's zoeken gewoon op sleutelwoorden in je commando. Slimme AI's kunnen overweg met variaties in taalgebruik, stellen extra vragen om meer gegevens voor de opdracht te krijgen, houden rekening met contextinformatie, enz. Echte AI's bevatten ook werkelijk artificiële intelligentie en worden slimmer door ze meer te gebruiken.
 
@@ -43,13 +43,13 @@ Wat blijkt: dat is niet eens zo moeilijk! Op enkele avondjes tijd heb ik een eer
 
 [https://bot.api.ai/79e5847b-57bd-4624-a3ab-e63f36bb37fa](https://bot.api.ai/79e5847b-57bd-4624-a3ab-e63f36bb37fa)
 
-\[caption id="attachment\_3438" align="alignnone" width="640"\][![](images/Bijbellezer-demo2-1024x501.png)](https://drive.google.com/file/d/0B-659FdpCliwazFfTllETnpyRWs/view) Virtuele lector\[/caption\]
+[![](images/Bijbellezer-demo2-1024x501.png)](https://drive.google.com/file/d/0B-659FdpCliwazFfTllETnpyRWs/view) Virtuele lector
 
 Een andere proof-of-concept-interface vind je op dit adres:
 
 [https://vicmortelmans.github.io/Api-AI-Personal-Assistant-Demo/](https://vicmortelmans.github.io/Api-AI-Personal-Assistant-Demo/)
 
-\[caption id="attachment\_3437" align="alignnone" width="640"\][![](images/Bijbellezer-demo1-1024x464.png)](https://drive.google.com/file/d/0B-659FdpCliwTlE4LWc4QVQ0RXc/view) Virtuele lector\[/caption\]
+[![](images/Bijbellezer-demo1-1024x464.png)](https://drive.google.com/file/d/0B-659FdpCliwTlE4LWc4QVQ0RXc/view) Virtuele lector
 
 Ook hier kan je de commando's typen of inspreken en hier worden de verzen je echt voorgelezen. Hij zal je echter niet om ontbrekende informatie vragen. De STT en TTS-technologie van de browser wordt hier gebruikt. Die werkt enkel onder Chrome (en Safari?) en is niet zo geavanceerd als die van de echte Assistants.
 

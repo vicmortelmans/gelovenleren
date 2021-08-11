@@ -15,7 +15,7 @@ Daarin blijft hij de bal misslaan, want het omgekeerde is waar!
 
 Vandaag vierde onze parochie haar naamsfeest, het feest van het Heilig Hart van Jezus. Onze deken, geen traditionalist, kwam preken en begon veelbelovend het feest te duiden als pendant van Goede Vrijdag, zoals het feest van het Allerheiligste Sacrament de pendant is van Witte Donderdag. Hij stelde de vraag waarom we de dood van Christus als een feest zien. In de lezing van dit feest is het immers droefnis troef: men stelt vast dat Christus is gestorven en om daarover geen twijfel te laten bestaan, doorboort men Hem zijn zijde met een lans.
 
-\[caption id="" align="alignleft" width="239"\]![Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)](images/Kruisiging%255B1%255D.jpg "Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)") Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)\[/caption\]
+![Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)](images/Kruisiging%255B1%255D.jpg "Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)") Kruisiging no 1 (Rene van Tol, Museum Catharijneconvent Utrecht)
 
 Nu verwachtte ik werkelijk een vervolg van de homilie waarin de offergedachte en het werk van de verlossing centraal zouden staan. Dat is immers toch wat de gebeurtenissen van Goede Vrijdag voor gelovigen tot een feest maakt? Tevergeefs echter, want wat volgde kan ik --met de woorden van Mark van de Voorde-- enkel definiëren als een discours van 'kleffe, zoeterige emotie'. Het ging erover dat in de duisterste momenten van ons leven, er altijd iemand aan onze zijde staat, en we voor mekaar ook in die momenten warmte moeten uitstralen en er voor mekaar moeten zijn.
 

@@ -12,7 +12,7 @@ Als een journalist een artikel schrijft over een onderwerp waarvan hij vermoedt 
 
 Je staat er niet altijd bij stil als gelovige, maar zelfs de meest fundamentele concepten uit ons geloof zijn niet langer gemeengoed bij de gemiddelde krantenlezer. Dat maakte ik op uit het [korte artikeltje in De Standaard over het telefoontje van de paus aan de hertrouwde vrouw](http://www.standaard.be/cnt/dmf20140423_01078193), waar ten behoeve van de lezer beknopt wordt uitgelegd wat de 'communie' wel voor iets mag zijn:
 
-\[caption id="attachment\_719" align="alignright" width="205"\]![Suprise Phone Call](images/surprisephonecall1.jpg) Suprise Phone Call\[/caption\]
+![Suprise Phone Call](images/surprisephonecall1.jpg) Suprise Phone Call
 
 _"Samen met zijn echtgenote woont hij in San Lorenzo, een stad in het Oosten van Centraal Argentinië. Volgens hem was het doel van de brief van zijn vrouw om te weten te komen of ze effectief iets verkeerd deed door ter communie te gaan._ **_De communie is een belangrijk onderdeel van een eucharistieviering, waarbij brood en wijn als lichaam en bloed van Christus gedeeld worden._** _Na zeven maanden belde de kerkvader naar de vrouw, zichzelf voorstellend als ‘vader van een betere wereld’."_
 

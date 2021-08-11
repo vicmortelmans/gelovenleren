@@ -12,11 +12,11 @@ tags:
 coverImage: "LastSupperSketch.jpg"
 ---
 
-\[caption id="attachment\_21" align="alignright" width="300"\]![Verdrietig?](images/jezus_leeft_4-300x213.png) Verdrietig?\[/caption\]
+![Verdrietig?](images/jezus_leeft_4-300x213.png) Verdrietig?
 
 Telkens ik het verhaal van de Emmaüsgangers herlees, overvalt me dieper de treffende gelijkenis met de heilige Mis. Het scharnierpunt in het verhaal voltrekt zich wanneer Jezus verdwijnt voor de ogen van de leerlingen die, met Hem aan tafel zittend, Hem plotseling herkennen als de verrezen Heer, en het door Hem gebroken brood nuttigen. Door die plotse herkenning en ondanks het verdwijnen van zijn menselijke gedaante, slaat hun gemoedstoestand om van verdriet  naar vreugde. De Emmaüsgangers snellen terug naar Jeruzalem en hun verhaal heeft de leerlingen er ongetwijfeld toe aangezet de eucharistie te institutionaliseren als scharnierpunt van hun nieuwe godsdienst.
 
-\[caption id="attachment\_22" align="alignleft" width="300"\]![Blij!](images/jezus_leeft_5-300x211.png) Blij!\[/caption\]
+![Blij!](images/jezus_leeft_5-300x211.png) Blij!
 
 Zo nemen wij ook deel aan de heilige Mis, niet? We zien de priester, in wie we nu niet meteen de verrezen Christus herkennen, maar die het brood breekt, en door die handeling zien we plots dat het toch Christus is die voor ons staat en raken we vervuld van vreugde.
 
@@ -46,7 +46,7 @@ Om niet in ergernis te verzanden, breng ik nog iets aan dat de lezer misschien w
 
 _Dat kunnen we even googlen!_
 
-\[caption id="attachment\_2316" align="alignright" width="300"\]![Lamme arm, stijve nek en maagzuur gegarandeerd.](images/LastSupperSketch-300x232.jpg) Lamme arm, stijve nek en maagzuur gegarandeerd.\[/caption\]
+![Lamme arm, stijve nek en maagzuur gegarandeerd.](images/LastSupperSketch-300x232.jpg) Lamme arm, stijve nek en maagzuur gegarandeerd.
 
 Interessante lectuur die daarbij opduikt, is het boek "[Temple--Its Ministry and Services](http://www.ccel.org/ccel/edersheim/temple.html)" uit 1874 van [Alfred Edersheim](https://en.wikipedia.org/wiki/Alfred_Edersheim), een tot het protestantisme bekeerde jood. Boeken over 'de historische Jezus' benader ik steevast met de nodige achterdocht, maar desondanks heeft dit boek me toch enkele verrassende inzichten verschaft. [Chapter 11 The Passover](http://www.ccel.org/ccel/edersheim/temple.xiii.html) en [Chapter 12 The Paschal Feast and the Lord’s Supper](http://www.ccel.org/ccel/edersheim/temple.xiv.html) beschrijven het joodse paasfeest zoals Christus het _zou kunnen beleefd hebben_ en verwijzen naar de overeenkomsten met de beschrijvingen van het Laatste Avondmaal in het evangelie. Wat betreft de houding aan tafel wordt er het volgende gesteld:
 

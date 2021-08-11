@@ -9,7 +9,7 @@ tags:
   - "paus"
 ---
 
-\[caption id="attachment\_932" align="alignright" width="316"\][![Ja, maar](images/jamaar.jpg)](/blog/ja-want/) Ja, maar\[/caption\]
+[![Ja, maar](images/jamaar.jpg)](/blog/ja-want/) Ja, maar
 
 In de [kleine homilie van de dinsdag van de 5de week van de vasten](http://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=5861) roept paus Franiscus op geen christen te zijn van "ja, maar…". Morren kan terecht zijn, maar het kan ook een zonde zijn, als Gods gaven ervan het onderwerp zijn en het hart erdoor vergiftigd wordt. De kleine homilieën van de paus zijn geen leerstellige traktaten en ook deze preek, waarvan de publicatie slechts een fragmentarische weergave geeft, is een kunstig samenspel van bijbelse beelden en een bevrijdende boodschap, vast en zeker het overwegen waard.
 

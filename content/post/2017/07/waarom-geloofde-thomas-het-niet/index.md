@@ -10,7 +10,7 @@ coverImage: "ongelovige-thomas-bloch-1.jpg"
 
 De ongelovige Thomas intrigeert me en dat is niet alleen omdat zijn feestdag op mijn verjaardag valt. Ergens in mijn _newsfeed_ kwam ik een artikeltje tegen waar een verrassende verklaring werd voorgesteld voor het ongeloof van Thomas. Ik herinner me niet meer precies welke blog het postte, maar voor de zekerheid doe ik het hier nog eens over.
 
-\[caption id="attachment\_3777" align="alignright" width="148"\]![](images/ongelovige-thomas-bloch-148x300.jpg) De ongelovige Thomas (Carl Heinrich Bloch)\[/caption\]
+![](images/ongelovige-thomas-bloch-148x300.jpg) De ongelovige Thomas (Carl Heinrich Bloch)
 
 Het [verhaal](https://rkbijbel.nl/kbs/bijbel/neovulgaat/willibrord1975/johannes/20) is kort. Na Jezus' dood zijn de apostelen bijeen in een huis in Jeruzalem. Op zondag verschijnt Jezus' hen een eerste keer, maar Thomas was niet thuis en als ze het hem vertellen, gelooft hij het niet. "Pas als ik mijn hand de wonde in zijn zij kan leggen, zal ik het geloven", beweert hij. De volgende zondag zijn ze weer bijeen, nu met Thomas, en ook Jezus verschijnt weer en confronteert Thomas met zijn woorden, die terstond voor zijn Heer op de knieën valt.
 

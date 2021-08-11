@@ -24,7 +24,7 @@ Tot het Concilie van Trente in de XVIe eeuw kon elke bisschop het Breviarium ops
 
 Na het tweede Vaticaans Concilie is het getijdengebed helemaal hervormd. Het Concilie heeft gewild dat ook de lekengelovigen, individueel of in de kerk, het getijdengebed zouden bidden. Het is het gebed waardoor je samen met heel de kerk de verschillende tijden van de dag heiligt.
 
-\[caption id="attachment\_2708" align="alignright" width="300"\]![barroux](images/barroux-300x195.jpg) Abbaye de Barroux\[/caption\]
+![barroux](images/barroux-300x195.jpg) Abbaye de Barroux
 
 De traditionele gebedstijden
 
@@ -39,7 +39,7 @@ De traditionele gebedstijden
 
  
 
-\[caption id="attachment\_2709" align="alignright" width="300"\]![koningsoord](images/koningsoord-300x150.jpg) Abdij Koningsoord\[/caption\]
+![koningsoord](images/koningsoord-300x150.jpg) Abdij Koningsoord
 
 De nieuwe gebedstijden
 
@@ -54,7 +54,7 @@ De nieuwe gebedstijden
 
 Via de website [Katholieke Radio](http://radio.gelovenleren.net/) kan je het getijdengebed live volgen. Het traditionele getijdengebed wordt in het Latijn gebeden in de [abdij van Barroux](http://www.barroux.org/) en het nieuwe getijdengebed in het Nederlands in [abdij Koningsoord](http://www.koningsoord.org/). Ook op [Radio Maria Vlaanderen](http://www.radiomaria.be/) en [Radio Maria Nederland](http://www.radiomaria.nl/) kan je op vaste tijdstippen het getijdengebed meebidden.
 
-\[caption id="attachment\_2526" align="aligncenter" width="300"\][![Katholieke Radio-tablet](images/Katholieke-Radio-tablet-300x220.png)](http://radio.gelovenleren.net) Katholieke radio\[/caption\]
+[![Katholieke Radio-tablet](images/Katholieke-Radio-tablet-300x220.png)](http://radio.gelovenleren.net) Katholieke radio
 
 Een [online handleiding om het getijdengebed te bidden](http://www.tiltenberg.org/getijdengebed/webapp/) (gebruikersnaam: getijdengebed, wachtwoord: brevier) vind je op de website van het seminarie [De Tiltenberg](http://www.tiltenberg.org/cms/). Er is ook een [online versie van het traditionele getijdengebed in het Latijn](http://www.divinumofficium.com/cgi-bin/horas/officium.pl). Die online versies zijn vooral handig omdat ze je de dagelijkse gebeden kant en klaar voorschotelen, zodat je niet in je getijdenboek over en weer moet bladeren.
 

@@ -14,7 +14,7 @@ tags:
   - "publicaties"
 ---
 
-\[caption id="attachment\_693" align="alignright" width="222"\][![Voorleesbijbel](images/voorleesbijbel-222x300.png)](http://alledaags.gelovenleren.net/) Voorleesbijbel\[/caption\]
+[![Voorleesbijbel](images/voorleesbijbel-222x300.png)](http://alledaags.gelovenleren.net/) Voorleesbijbel
 
 [Alledaags Geloven](http://alledaags.gelovenleren.net/ "Alledaags geloven"), het dashboard voor dagelijks gebed, studie of bezinning, heeft een nieuwe kaart: de voorleesbijbel. De website [voorleesbijbel.nl](http://voorleesbijbel.nl/ "Voorleesbijbel") bevat de volledige bijbel, voorgelezen door gewone Nederlanders. De kaart op Alledaags Geloven voert je van begin tot einde door de ganse bijbel. Ook op deze kaart is de Heilige Geest beschikbaar, die je naar een willekeurige bijbelpassage voert.
 

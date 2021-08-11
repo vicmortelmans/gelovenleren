@@ -13,7 +13,7 @@ Vanavond kreeg ik nog eens de kans om voor het slapengaan enkele minuten vrij te
 
 De waarschuwing uit het [vorige artikel op mijn blog](/blog/opvoeden-in-of-tot-geloof/), dat gelovige jongeren afhaken wanneer ze hun geloof niet langer kunnen verzoenen met het wereldbeeld dat de exacte wetenschappen hen voorhouden, stond me nog helder voor de geest, en het scheppingsverhaal is zowat het prototype van de bijbelverhalen die niet met de natuurkunde te verenigen zijn, dus ik dacht bij mezelf: "Ik moet hier iets uit mijn botten slaan, of het is om zeep!" En dat heb ik dan ook maar gedaan :)
 
-\[caption width="500" id="attachment\_2925" align="aligncenter"\][![Schepper van Hemel en Aarde](images/03b-png-500x667.jpg)](http://prentencatechismus.org/prent/eerste-artikel-vervolg-schepper-van-hemel-en-aarde/) Schepper van Hemel en Aarde\[/caption\]
+[![Schepper van Hemel en Aarde](images/03b-png-500x667.jpg)](http://prentencatechismus.org/prent/eerste-artikel-vervolg-schepper-van-hemel-en-aarde/) Schepper van Hemel en Aarde
 
 Op de prent zie je in concentrische cirkels hoe God van buiten naar binnen de Schepping in zes stappen voltrekt.
 

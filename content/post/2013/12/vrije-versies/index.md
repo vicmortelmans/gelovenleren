@@ -10,7 +10,7 @@ coverImage: "skisilogo.png"
 
 Als we dan toch beland zijn bij de 'vrije versies' van de geloofsbelijdenis, dan laat ik die uit de liturgiemap van Welzijnszorg links liggen (goed bedoeld hoor, daar niet van), maar vind ik die van [KISI](http://de.kisi.at/nl/geloof/geloofsbelijdenis) (een internationale koorwerking) wel leuk.
 
-> \[caption id="attachment\_634" align="alignright" width="136"\][![KISI - God's singing kids](images/skisilogo.png)](http://de.kisi.at/nl) KISI - God's singing kids\[/caption\]
+> [![KISI - God's singing kids](images/skisilogo.png)](http://de.kisi.at/nl) KISI - God's singing kids
 > 
 > 1\. Ik geloof in God de Vader, Schepper van hemel en aarde. Ik geloof in Jezus Christus, Zijn enige Zoon onze Heer. Ontvangen van de Heilige Geest, geboren uit de Maagd Maria, heeft geleden onder Pontius Pilatus, is gekruisigd, gestorven, voor mij!
 > 

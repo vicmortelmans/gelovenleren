@@ -12,7 +12,7 @@ Kan jij ook zo'n deugd hebben van een goed onderbouwd, vlot geschreven, scherp o
 
 Gelukkig is ons geloof bij uitstek universeel en kunnen we dus zonder probleem over de grenzen kijken. Er zijn honderden goeie internationale blogs, waarvan ik er enkele tientallen Engelstalige in mijn nieuwslezer heb geprogrammeerd. Een daarvan steekt met kop en schouders boven de rest uit: de [blog van msgr. Charles Pope](http://blog.adw.org/), een priester uit het bisdom Washington DC in de VS.
 
-\[caption id="attachment\_741" align="alignright" width="250"\]![Msgr. Charles Pope](images/pope2501.jpg) Msgr. Charles Pope\[/caption\]
+![Msgr. Charles Pope](images/pope2501.jpg) Msgr. Charles Pope
 
 Msgr. Pope is priester in een parochie van afro-americans die [getuigt](https://www.youtube.com/watch?v=krvI50aYfEc&app=desktop) dat nieuwe evangelisatie een kwestie is van de dagelijkse en praktische verwezenlijking van het geloof in kleine dingen, maar zijn teksten tonen aan dat deze praktische orientatie wel degelijk berust op een oerdegelijk inhoudelijk fundament! De [website van zijn parochie](http://hcscchurch.org/) bevat veel teksten van msgr. Pope, zelfs geluidsopnames van al zijn homilieen!
 

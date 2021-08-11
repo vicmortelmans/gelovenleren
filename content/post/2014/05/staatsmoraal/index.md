@@ -12,4 +12,4 @@ Bekijk [hier](http://www.deredactie.be/cm/vrtnieuws/videozone/programmas/koppen/
 
 In de reportage wordt met de verborgen camera aangetoond hoe de redactie, zonder gelegenheid tot verweer, een organisatie beschuldigt en verdacht maakt, enkel en alleen omdat zij ingaat tegen een onstpoorde, door de staat opgedrongen moraal, en omdat zij solidair is met moeders en ongeboren leven redt van de dood.
 
-\[caption id="attachment\_724" align="aligncenter" width="525"\]![een stomme vraag, lijkt me?](/wp-content/uploads/2014/12/abortus.png?w=525) een stomme vraag\[/caption\]
+![een stomme vraag, lijkt me?](images/abortus.png?w=525) een stomme vraag

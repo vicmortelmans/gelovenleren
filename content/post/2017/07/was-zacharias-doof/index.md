@@ -18,7 +18,7 @@ Zacharias' vrouw Elisabeth bleek inderdaad zwanger. Wanneer het kind wordt gebor
 
 > _Op de achtste dag kwam men het kind besnijden en ze wilden het naar zijn vader Zacharias noemen. Maar zijn moeder zei daarop: 'Neen, het moet Johannes heten.' Zij antwoordden haar: 'Maar er is in uw familie niemand die zo heet.' Met gebaren vroegen zij toen aan zijn vader, hoe hij het wilde noemen. Deze vroeg een schrijftafeltje en schreef erop: 'Johannes zal hij heten.' Ze stonden allen verbaasd._
 
-\[caption id="attachment\_3836" align="alignright" width="271"\]![](images/the-naming-of-john-the-baptist-271x300.jpg) Naming of John (Fra Angelico, 1435, Museo di San Marco, Florence)\[/caption\]
+![](images/the-naming-of-john-the-baptist-271x300.jpg) Naming of John (Fra Angelico, 1435, Museo di San Marco, Florence)
 
 Ook al omdat in het evangelie beide passages chronologisch van mekaar gescheiden worden door het bezoek van de Engel aan Maria en het bezoek van Maria aan Elisabeth, valt de ongerijmdheid slechts de oplettende lezer op: waarom gebruiken de buren gebaren om Zacharias aan te spreken? Iemand die niet kan spreken, maar wel horen, kan je toch gewoon aanspreken? Was Zacharias dan niet alleen stom, maar ook doof?
 

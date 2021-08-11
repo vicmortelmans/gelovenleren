@@ -27,6 +27,3 @@ Na afloop van de publicatiereeks zal de Navolging van Christus ook verschijnen o
 
 De Navolging van Christus is reeds beschikbaar als [luisterboek](/portfolio/navolging-van-christus/) en als [e-boek](/portfolio/de-navolging-van-christus/).
 
-## Inhoud
-
-\[display-posts author="Thomas a Kempis" posts\_per\_page="500" order="ASC"\]

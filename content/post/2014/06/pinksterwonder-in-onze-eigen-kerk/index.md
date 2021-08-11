@@ -12,7 +12,7 @@ Voor de eerste maal was de priester van de anglo-afrikaanse gemeenschap van dien
 
 Toch heb ik niet het gevoel gehad dat er iets 'mis' was met de mis. Een mis is dan ook niet louter het overbrengen van een talige boodschap. Ondanks taalverschilen blijft de essentie overeind: het gemeenschappelijk gebed en de taal- en cultuuroverstijgende tekenen van Jezus' aanwezigheid in brood en wijn.
 
-\[caption id="attachment\_916" align="alignright" width="198"\][![Een gewoon gebaar?, Samuele Marcantognini](/wp-content/uploads/2014/12/product_thumbnail.jpg?w=198)](http://www.lulu.com/shop/samuele-marcantognini/een-gewoon-gebaar/paperback/product-21457760.html) Een gewoon gebaar?, Samuele Marcantognini\[/caption\]
+[![Een gewoon gebaar?, Samuele Marcantognini](images/product_thumbnail.jpg?w=198)](http://www.lulu.com/shop/samuele-marcantognini/een-gewoon-gebaar/paperback/product-21457760.html) Een gewoon gebaar?, Samuele Marcantognini
 
 Eergisteren was ik ook aan het lezen van het boek ["Een gewoon gebaar?"](http://www.lulu.com/shop/samuele-marcantognini/een-gewoon-gebaar/paperback/product-21457760.html) van Samuele Marcantognini, een priester werkzaam in Nederland, die de achtergronden analyseert van de evolutie in de liturgie in Nederland sinds de jaren zestig. Hij parafraseert een kritiek van [Kees Fens](http://www.dbnl.org/tekst/fens001tuss01_01/fens001tuss01_01_0005.php) op liturgisch verbalisme:
 

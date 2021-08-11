@@ -31,5 +31,3 @@ De [Willibrordvertaling en de Nieuwe Bijbelvertaling](http://bijbel.net/) zijn o
 Of het juridisch gezien klopt dat deze publicatie vrij van auteursrechten is, kan ik niet waterdicht bevestigen (in principe geldt het recht tot 70 jaar na het overlijden van de auteur van de vertaling, maar die kan ik niet achterhalen; de publicatie is in elk geval ouder). Ik  koester echter de christelijke hoop dat de eventuele houder van die rechten de nodige coulantie aan de dag zal leggen mocht mijn publicatie, die vanzelfsprekend zonder enig winstoogmerk gebeurt, hem aan het licht komen.
 
 Veel plezier met de [Heilige Schrift](/portfolio/petrus-canisiusbijbelvertaling/)!
-
-\[portfolio display\_types=false display\_tags=false include\_tag=canisius columns=3\]

@@ -21,13 +21,13 @@ De [eerste website](/blog/nieuw-prentenmissaal/), gelanceerd eind 2011, heette P
 
 Die [tweede lancering](/blog/missale/) dateert van 7 februari 2014, dus Missale vierde onlangs zijn derde verjaardag en heeft daarmee een volledige liturgische cyclus van drie jaar doorlopen.
 
-\[caption id="attachment\_3505" align="aligncenter" width="600"\]![](images/Eerste-zondag-van-de-Veertigdagentijd-2017-Lezingen-voor-de-Katholieke-Mis.png) Eerste zondag van de Veertigdagentijd\[/caption\]
+![](images/Eerste-zondag-van-de-Veertigdagentijd-2017-Lezingen-voor-de-Katholieke-Mis.png) Eerste zondag van de Veertigdagentijd
 
 De databank bevat intussen 1000 afbeeldingen. Klassieke schilderkunst is het talrijkst vertegenwoordigd, omdat die het beeldendst is, maar ook heel wat moderne kunstwerken, tot abstracte toe, vonden een plaatsje. Daarnaast zijn er vrome prentjes en ook hier en daar een persoonlijke foto.
 
 In die drie jaar is er nog behoorlijk wat nieuwe functionaliteit toegevoegd. De buitengewone vorm van de liturgie, met haar eigen kalender, staat broederlijk naast de gewone vorm. De [liturgische kalenders](http://gelovenleren.net/liturgische-kalenders/) kan je toevoegen aan je electronische agenda. De inhoud van de website is volledig beschikbaar in [als een reeks prentenmissaaltjes](http://www.missale.net/print/nl), om thuis af te drukken of via print-on-demand. De databank kan ook worden [doorzocht](http://www.missale.net/inventory/nl), handig voor wie een afbeelding zoekt als illustratie bij een bijbelvers. De prentjes voor de volgende zondag verschijnen op [Alledaags Geloven](http://alledaags.gelovenleren.net).
 
-\[caption id="attachment\_3504" align="aligncenter" width="640"\][![](images/Missale-inventory-1024x501.png)](http://www.missale.net/inventory/nl) Alle afbeeldingen van missale.net, te doorzoeken op titel, bijbelpassage of liturgische dag\[/caption\]
+[![](images/Missale-inventory-1024x501.png)](http://www.missale.net/inventory/nl) Alle afbeeldingen van missale.net, te doorzoeken op titel, bijbelpassage of liturgische dag
 
 Wie zelf een mooie afbeelding heeft die verband houdt met een zondagslezing uit het lectionarium, kan die suggereren via een [formulier](https://docs.google.com/forms/d/e/1FAIpQLSdW80T1u_vzvaUo_IW1OsU2DvtQbqNRL6kuidzBdqtYQ6Am5A/viewform).
 

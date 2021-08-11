@@ -66,7 +66,7 @@ Zo worden de geheimen gekoppeld aan de dagen van de week:
 - Zaterdag: Blijde Geheimen
 - Zondag: Glorievolle Geheimen
 
-\[caption id="attachment\_2714" align="alignright" width="300"\]![Slag bij Lepanto](images/lepanto-300x206.jpg) Slag bij Lepanto\[/caption\]
+![Slag bij Lepanto](images/lepanto-300x206.jpg) Slag bij Lepanto
 
 Aan christelijke zijde werd de [overwinning bij de Slag bij Lepanto](http://www.heiligen.net/heiligen/10/07/10-07-1571-maria.php) op 7 oktober 1571 toegeschreven aan het bidden van de rozenkrans door zowel het niet-strijdende volk als de krijgsmacht. Na de slag stelde paus Pius V officieel op 7 oktober een feestdag in als gedachtenis van de overwinning op de Ottomanen. Sindsdien geldt de maand oktober als rozenkransmaand in de Rooms-katholieke Kerk.
 

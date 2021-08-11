@@ -11,7 +11,7 @@ tags:
 coverImage: "Amoris-1.png"
 ---
 
-\[caption id="attachment\_2325" align="alignright" width="150"\][![Amoris-1](images/Amoris-1-150x150.png)](https://drive.google.com/open?id=0B-659FdpCliwX2JQcXMtR3QzNHc) Amoris Laetitiae, the exhortation based on the synod of the family\[/caption\]
+[![Amoris-1](images/Amoris-1-150x150.png)](https://drive.google.com/open?id=0B-659FdpCliwX2JQcXMtR3QzNHc) Amoris Laetitiae, the exhortation based on the synod of the family
 
 I do most of my (e-book) reading on my phone. Sometimes I read printed books. But very very seldom I read lengthy PDF files on my PC or in print. Strange enough, that's how Pope Francis' exhortation on the family has been sent out to the world.
 

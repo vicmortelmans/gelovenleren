@@ -10,7 +10,7 @@ tags:
 coverImage: "BeningtonAllSaintspeopleenjoyingopenday.jpg"
 ---
 
-\[caption id="attachment\_1522" align="alignright" width="300"\]![Bezeten kerkbanken](images/BeningtonAllSaintspeopleenjoyingopenday-300x200.jpg) Bezeten kerkbanken\[/caption\]
+![Bezeten kerkbanken](images/BeningtonAllSaintspeopleenjoyingopenday-300x200.jpg) Bezeten kerkbanken
 
 Wie is er verantwoordelijk voor de manier waarop in Vlaanderen aan liturgie wordt gedaan? Wie heeft er bijvoorbeeld ooit bepaald dat er bij de liturgische gebeden niet mag worden rechtgestaan? Dat is toch niet vanzelf gekomen? Toch is het in talloze Vlaamse kerken standaard. Wie heeft er bepaald dat er tijdens de consecratie niet mag worden geknield? Wie heeft er bepaald dat priesterlijke gebeden gemeenschappelijk door het volk moeten worden opgezegd? Het zijn één voor één flaters van jewelste, want ze dragen helemaal niet bij tot de actieve beleving van de liturgie, integendeel. De houding van de gelovigen tijdens de mis is er één van pure lethargie: ze zitten op een stoeltje, net als toeschouwers in een saai theaterstuk. Ze zitten (vergeefs?) te wachten op opgeleukte teksten en beleven niet [wat er gebeurt](http://www.hetkatholiekegeloof.nl/pages/sub/3/34567/179_Wie_viert_de_liturgie_.html), tenzij (hopelijk!) op een onzichtbare, verinnerlijkte wijze, terwijl de eucharistie is juist de veruitwendiging, de materialisatie van de kern van het geloof is.
 

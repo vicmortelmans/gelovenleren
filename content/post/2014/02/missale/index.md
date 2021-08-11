@@ -9,7 +9,7 @@ tags:
 coverImage: "missale.png"
 ---
 
-\[caption id="attachment\_679" align="alignright" width="245"\]![screenshot van missale.net](images/missale.png) missale.net\[/caption\]
+![screenshot van missale.net](images/missale.png) missale.net
 
 De website [Missale.net](http://www.missale.net/nl) (vroeger Prentenmissaal) is weer online! Na heel wat gezwoeg is de migratie van [XQuery](http://www.w3.org/TR/xquery-30/) naar [Python](http://www.python.org/) en van 28msec.com naar [Google App Engine](https://developers.google.com/appengine/?csw=1) afgerond.
 

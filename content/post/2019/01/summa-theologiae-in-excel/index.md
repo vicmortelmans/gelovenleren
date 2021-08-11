@@ -16,6 +16,6 @@ Wist je dat er van de Summa Theologiae van Thomas Aquinas nog geen versie is die
 
 Later zal hopelijk wel duidelijk worden waarom...
 
-[![](images/document.jpg)](/wp-content/uploads/2019/01/summa.xlsx)
+[![](images/document.jpg)](https://storage.googleapis.com/geloven-leren/summa.xlsx)
 
 Download de volledige inhoud van de Summa Theologiae van Thomas Aquinas in het Latijn als een Excelbestand (3.7 Mb)

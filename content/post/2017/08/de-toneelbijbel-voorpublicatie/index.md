@@ -11,7 +11,7 @@ tags:
 coverImage: "bijbeltoneel.jpg"
 ---
 
-\[caption id="attachment\_3875" align="alignright" width="247"\][![](images/cover-3d-247x300.png)](http://toneelbijbel.gelovenleren.net/) De Toneelbijbel\[/caption\]
+[![](images/cover-3d-247x300.png)](http://toneelbijbel.gelovenleren.net/) De Toneelbijbel
 
 Binnenkort verschijnt [_De Toneelbijbel_](http://toneelbijbel.gelovenleren.net/) als boek. 
 

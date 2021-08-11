@@ -11,7 +11,7 @@ coverImage: "thehermit16701.jpg"
 
 ### Elia
 
-\[caption id="attachment\_1237" align="alignright" width="203"\]![De profeet Elia in een grot op de berg Horeb](/wp-content/uploads/2014/12/icon_elijah_02_in_a_cave11.jpg?w=203) De profeet Elia in een grot op de berg Horeb\[/caption\]
+![De profeet Elia in een grot op de berg Horeb](images/icon_elijah_02_in_a_cave11.jpg?w=203) De profeet Elia in een grot op de berg Horeb
 
 Elia (of Elias) is een profeet uit het oude testament. Het joodse volk vormt een koninkrijk, dat helemaal in de afgoderij vervalt. Elia is trouw aan God en God fluistert hem profetieën in en laat hem wonderen verrichten waarmee hij de koning en diens afgodenpriesters weerwerk kan geven. Soms gaat het er soms nogal ruw aan toe.
 
@@ -21,7 +21,7 @@ De lezer voelt reeds aan hoe hier de dualiteit wordt geschetst tussen enerzijds 
 
 ### Johannes
 
-\[caption id="attachment\_1238" align="alignright" width="218"\]![Johannes de Doper wijst naar het "Lam van God"](/wp-content/uploads/2014/12/1view1c31.jpg?w=218) Johannes de Doper wijst naar het "Lam van God"\[/caption\]
+![Johannes de Doper wijst naar het "Lam van God"](images/1view1c31.jpg?w=218) Johannes de Doper wijst naar het "Lam van God"
 
 Een hele tijd later is er weer een profeet, Johannes de Doper, die zich ook in de woestijn terugtrekt, zij het dan vrijwillig. Net als Elia vindt hij dat het joodse volk zich moet bekeren. Met zijn onverbiddelijke taal is hij een goed predikant. Hij krijgt gehoor en tal van gelovigen laten zich door hem dopen. Hij zegt van zichzelf dat hij slechts [de voorloper is van Iemand die veel groter is](http://www.willibrordbijbel.nl/?) dan hij. "Midden onder jullie", zegt Johannes, "staat Hij die jullie niet kennen", en hij noemt Jezus het "Lam van God". Jezus heeft ook wel trekjes van een profeet, maar de manier waarop Hij optreedt en vooral hoe Hij met de wet van Mozes omgaat, is heel verschillend. Johannes de evangelist schrijft: "Door Mozes is de wet in de wereld gekomen, maar de goedheid is door Jezus Christus in de wereld gekomen" (Joh 1,17).
 
@@ -35,7 +35,7 @@ Het beeld van de gezalfde moet echter niet tegenover dat van de profeet gesteld 
 
 Je kan dus niet zeggen: "wij hebben geen profeten meer nodig, want wij hebben Christus". Jezus heeft Johannes nodig en wij hebben Jezus nodig, dus wij hebben ook Johannes nodig. Net zoals we trouwens Maria nodig hebben, zonder wie Jezus ook niet tot ons zou kunnen komen! Laat de plaatsvervangers van Jezus op deze aarde dus ook niet beweren dat ze geen profeten nodig hebben, want dan zouden ze zich hoger achten dan Christus zelf, die immers wel de profeet nodig had om zijn openbaar leven te beginnen.
 
-\[caption id="attachment\_1239" align="alignright" width="234"\][![Which are you? Prophet-Priest-King](/wp-content/uploads/2014/12/whichareyouchart1.jpg?w=234)](http://blog.harvestspringlake.org/2011/07/prophet-priest-or-king-which-are-you.html) Which are you? Prophet-Priest-King\[/caption\]
+[![Which are you? Prophet-Priest-King](images/whichareyouchart1.jpg?w=234)](http://blog.harvestspringlake.org/2011/07/prophet-priest-or-king-which-are-you.html) Which are you? Prophet-Priest-King
 
 Een priester, bisschop of paus moet niet trachten Christus te imiteren zondermeer. Hij moet ook plaats hebben voor Johannes, hetzij in zijn eigen denken en handelen, hetzij als klankbord in zijn omgeving. Ook Jezus gaat naar de profeet en heeft iets van een profeet in zich. Hij is onder de mensen, maar trekt zich ook regelmatig terug in eenzaamheid. Hij is barmhartig en vol liefde, maar schuwt in parabels en zelfs van man tot man het harde woord niet. Hij is een gewone timmermanszoon, maar tegelijk een rare snuiter vol raadsels die niemand helemaal kan begrijpen.
 
@@ -43,7 +43,7 @@ De profetische dimensie van het geloof is spijtig genoeg tanend. Wij houden niet
 
 ### Kluizenaars
 
-\[caption id="attachment\_1240" align="alignright" width="216"\]![Heremiet in zijn kluis](/wp-content/uploads/2014/12/thehermit16701.jpg?w=216) Heremiet in zijn kluis\[/caption\]
+![Heremiet in zijn kluis](images/thehermit16701.jpg?w=216) Heremiet in zijn kluis
 
 Gedurende twee millennia kerkgeschiedenis zijn in het martyriologium de namen opgetekend van [talloze heiligen](http://www.google.ca/search?as_q=Kluis&as_epq=&as_oq=&as_eq=&as_nlo=&as_nhi=&lr=&cr=&as_qdr=all&as_sitesearch=Heiligen.net&as_occt=any&safe=images&as_filetype=&as_rights=) van wie --- al dan niet legendarisch --- bekend is dat ze er een 'profetische' levensstijl op nahielden: ze kiezen radikaal voor een leven toegewijd aan God en wars van de wereld. Dat is bij sommigen een gevolg van een roeping of een visioen of zelfs een verschijning, maar bij anderen is een traumatische ervaring de aanleiding: verstoten door en echtgenoot, een ongewenste uithuwelijking, een ruzie met een overste of algemene onvrede met de Kerk of de wereld. Ze zonderen zich af en bouwen voor zichzelf en hun eventuele gezellen een kluis, waar ze hun tijd besteden aan gebed.
 

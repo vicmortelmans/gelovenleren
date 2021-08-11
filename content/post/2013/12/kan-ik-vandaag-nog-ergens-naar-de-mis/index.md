@@ -18,8 +18,8 @@ Er zijn trouwens nog online databanken met gegevens over Vlaamse kerken: [Invent
 
 Erg veel [HTML, CSS en JAVASCRIPT](https://github.com/vicmortelmans/masses) was er niet nodig om een website te maken waar je **[op een kaart kan kijken waar je naar de mis kan gaan](http://vicmortelmans.github.io/masses/)**. Je kan ook specifiek zoeken naar misvieringen die meteen beginnen of die later vandaag plaatsvinden, of morgen. Als je een kerk selecteert, krijg je het overzicht van alle misvieringen in die kerk.
 
-Wie website zegt, zegt mobiele app. Met [Phonegap](http://phonegap.com/) is dat in 1 klik geregeld, en de **[Android-versie van "Naar de mis"](https://play.google.com/store/apps/details?id=net.credomobiel.masses)** ligt al in de store. **\[2016 04 22: de app is tijdelijk buiten dienst... er wordt aan een nieuwe versie gewerkt, gebaseerd op de nieuwe website, zie [/blog/kerknet-gehackt-om-naar-de-mis-te-gaan/](/blog/kerknet-gehackt-om-naar-de-mis-te-gaan/) voor meer informatie\]\[2016 07 17: een volledige nieuwe versie van de app is nu beschikbaar in de Google Play Store! zie [/blog/mobiele-app-vertelt-waar-je-naar-de-mis-kan-gaan/](/blog/mobiele-app-vertelt-waar-je-naar-de-mis-kan-gaan/) voor meer informatie\]**
+Wie website zegt, zegt mobiele app. Met [Phonegap](http://phonegap.com/) is dat in 1 klik geregeld, en de **[Android-versie van "Naar de mis"](https://play.google.com/store/apps/details?id=net.credomobiel.masses)** ligt al in de store. ****
 
 Zo ziet het plaatje er vandaag nog uit in het katholieke Vlaanderen… benieuwd waar we [over 10 jaar](http://www.standaard.be/cnt/dmf20131129_050) zullen staan.
 
-\[caption id="attachment\_4481" align="aligncenter" width="640"\][![](images/naar-de-mis-700x400.png)](images/naar-de-mis.png) Parochiekerken in Vlaanderen\[/caption\]
+[![](images/naar-de-mis-700x400.png)](images/naar-de-mis.png) Parochiekerken in Vlaanderen

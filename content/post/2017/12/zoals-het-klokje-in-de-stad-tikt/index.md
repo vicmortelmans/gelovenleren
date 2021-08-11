@@ -23,7 +23,7 @@ Als je merkt dat gelovigen niet actief deelnemen aan de liturgie, zou het kunnen
 
 Misschien is de tridentijnse liturgie, die inderdaad een zekere afstand aanbrengt tussen de celebrerende priester en de deelnemende gelovigen, wel geëvolueerd tot die vorm, juist omdat gelovigen in alle tijden, net als nu, toch niet geneigd waren hun deelname op expressieve wijze te beleven. Misschien waren de vormgevers van die liturgie bezorgd genoeg over de sacrale dimensie, om die niet te laten afhangen van de wispelturige geloofsbeleving van het volk en hebben ze daarom besloten tenminste de sacraliteit veilig te stellen, ook als er op de uitnodiging tot actieve participatie geen antwoord komt. 
 
-\[caption id="attachment\_4068" align="alignleft" width="300"\][![](images/HHart3-300x200.jpeg)](http://jezus-hart.be/) Heilig Hartkerk, Antwerpen-Noord\[/caption\]
+[![](images/HHart3-300x200.jpeg)](http://jezus-hart.be/) Heilig Hartkerk, Antwerpen-Noord
 
 Er zijn gelukkig tekenen van kentering. [Onze parochie](http://jezus-hart.be/) is een mooi voorbeeld, omdat we veel vreemdelingen aan boord hebben voor wie een zittende kerk een anomalie is. Op dat publiek zet onze Poolse pastoor nu dankbaar in met catechese, aanbidding en _lectio divina_, en een missaalgetrouwe liturgie, om onze parochie naar de toekomst te profileren. Ook vanuit de [kathedraal](http://famcat.be/) wordt er naarstig aan de weg getimmerd om opnieuw de liturgie uit het missaal als standaard te poneren en tegelijk het volk aan te zwepen om zich van publiek te ontpoppen tot biddende gemeenschap.
 

@@ -17,13 +17,13 @@ Omdat het vandaag het feest is voor de geboorte van Johannes de Doper, en we dat
 
 ### Huwelijk
 
-\[caption id="attachment\_1356" align="alignright" width="225"\][![Het hoofd van Johannes wordt aangebracht](images/30b-png-500x667-225x300.jpg)](http://prentencatechismus.org/uncategorized/tweede-gebod-van-god-vervolg-zweer-niet-ijdel-vloek-noch-spot/) Het hoofd van Johannes wordt aangebracht\[/caption\]
+[![Het hoofd van Johannes wordt aangebracht](images/30b-png-500x667-225x300.jpg)](http://prentencatechismus.org/uncategorized/tweede-gebod-van-god-vervolg-zweer-niet-ijdel-vloek-noch-spot/) Het hoofd van Johannes wordt aangebracht
 
 Hoewel het een heel kort stukje is in het evangelie, en de evangelist had kunnen volstaan met te zeggen dat Herodes het bevel heeft gegeven Johannes ter dood te brengen, schetst die echter een heel genuanceerd beeld van wat voorafging. Johannes (met de profetische stijl hem eigen) had Herodes al vaak (publiekelijk?) het verwijt gemaakt dat zijn huwelijk met de vrouw van zijn broer "irregulier" was, zoals we dat vandaag zouden noemen (of binnenkort niet meer mogen noemen?). Het effect van deze verwijten op de vrouw, Herodias, was er één van blinde haat, wat uiteindelijk zal resulteren in Johannes' terdoodbrenging.
 
 Wat vertelt de evangelist echter over de reactie van Herodes op de bijtende verwijten:
 
-> _Herodes had ontzag voor Johannes, in het besef dat deze een rechtvaardige en heilige man was, en hij nam hem in bescherming \[tegen Herodias\]. Als hij naar hem luisterde, raakte hij steeds in verlegenheid, en toch hoorde hij hem graag._ (Mc 6:20)
+> _Herodes had ontzag voor Johannes, in het besef dat deze een rechtvaardige en heilige man was, en hij nam hem in bescherming . Als hij naar hem luisterde, raakte hij steeds in verlegenheid, en toch hoorde hij hem graag._ (Mc 6:20)
 
 Het is pas op het bewuste feest waar Herodias' dochter Salome voor de hoge heren danst, dat Herodes zijn dure eed zweert en zij van haar stiefvader Johannes' hoofd kan eisen, omdat die zwak van karakter was en bang anders aan respect in te boeten bij zijn belangrijke gasten (waardoor dit verhaal in de [prentencatechismus gebruikt wordt als illustratie bij het tweede gebod](http://prentencatechismus.org/uncategorized/tweede-gebod-van-god-vervolg-zweer-niet-ijdel-vloek-noch-spot/): "Zweer niet ijdel").
 

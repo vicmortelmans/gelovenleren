@@ -16,24 +16,24 @@ Na de papieren publicatie van een hoogstpersoonlijke [top-10 van gregoriaanse li
 
 De app is beschikbaar voor Android:
 
-\[portfolio display\_types=false display\_tags=false include\_tag=katholieke-gebeden-app columns=3\]
+
 
 De katholieke gebeden staan ook online op de website [gebeden.gelovenleren.net](http://gebeden.gelovenleren.net/):
 
-\[portfolio display\_types=false display\_tags=false include\_tag=website-katholieke-gebeden columns=3\]
+
 
  
 
 Als je het nieuwe Onze Vader wil aanleren, kan je de toonzettingen downloaden als PDF of beluisteren op YouTube. Wie nog andere melodieën voor liturgisch gebruik kent, mag ze me altijd doorsturen!
 
-\[caption id="attachment\_3309" align="aligncenter" width="300"\][![](images/onze-vaderpp-full-score-192x300.png)](https://www.kerknet.be/sites/default/files/PartituurOnzevader.pdf) Onze Vader - Peter Pieters\[/caption\]
+[![](images/onze-vaderpp-full-score-192x300.png)](https://www.kerknet.be/sites/default/files/PartituurOnzevader.pdf) Onze Vader - Peter Pieters
 
-\[caption id="attachment\_3310" align="aligncenter" width="300"\][![](images/0nze-vader-mozarabische-psalmtoon-iv-300x191.png)](https://rkliturgie.nl/sites/default/files/bijlagen/OnzeVader%20%28naar%20Mozarabische%20psalmtoon%20IV%29_0.pdf) Onze Vader - mozarabische psalmtoon IV\[/caption\]
+[![](images/0nze-vader-mozarabische-psalmtoon-iv-300x191.png)](https://rkliturgie.nl/sites/default/files/bijlagen/OnzeVader%20%28naar%20Mozarabische%20psalmtoon%20IV%29_0.pdf) Onze Vader - mozarabische psalmtoon IV
 
-\[caption id="attachment\_3311" align="aligncenter" width="300"\][![](images/onze-vaderpvdv-full-score-300x242.png)](http://gelovenleren.net/wp-content/uploads/2016/12/Onze-VaderPVDV-Full-Score.pdf) Onze Vader - Peter van de Velde\[/caption\]
+[![](images/onze-vaderpvdv-full-score-300x242.png)](https://storage.googleapis.com/geloven-leren/printerboekjes/Onze-VaderPVDV-Full-Score.pdf) Onze Vader - Peter van de Velde
 
-\[embed\]https://youtu.be/UmSCdkHh0Kw?t=133\[/embed\]
+https://youtu.be/UmSCdkHh0Kw?t=133
 
-\[embed\]https://youtu.be/05AqaZS7ruk?t=128\[/embed\]
+https://youtu.be/05AqaZS7ruk?t=128
 
-\[embed\]https://www.youtube.com/watch?v=oUODJxzmvYg\[/embed\]
+https://www.youtube.com/watch?v=oUODJxzmvYg

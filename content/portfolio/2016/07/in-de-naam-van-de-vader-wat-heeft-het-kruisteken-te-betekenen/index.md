@@ -9,4 +9,4 @@ In de naam van de Vader - wat heeft het kruisteken te betekenen? Een grafische b
 
 <!--more-->
 
-[![pdf](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](/wp-content/uploads/2018/05/het-kruisteken-boekje.pdf)
+[![pdf](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](https://storage.googleapis.com/geloven-leren/printerboekjes/het-kruisteken-boekje.pdf)

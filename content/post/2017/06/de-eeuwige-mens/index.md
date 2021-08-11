@@ -12,7 +12,7 @@ De detectiveverhalen van G.K. Chesterton waren aardig om te lezen, als is het m
 
 Vooral in het eerste deel van het boek wordt de toon gezet die ook in de titel naar voren komt. Het atheïsme wil met behulp van de wetenschap aantonen dat mens, cultuur en religie slechts producten zijn van een---langzaam---mechanisme van evolutie. Chesterton gebruikt de techniek van het bewijs uit het ongerijmde om aan te tonen dat die "wetenschappelijke" veronderstelling eigenlijk heel onlogisch is. De mens is in de natuur op alle vlakken singulier en ook het christendom is in de menselijke beschaving een singuliere religie. Die singulariteit is zo treffend dat het absurd is te veronderstellen dat ze louter door natuurlijke processen te verklaren is.
 
-\[caption id="attachment\_3761" align="alignright" width="300"\]![](images/gkc_ew-1200x1200-300x300.jpg) De Eeuwige Mens\[/caption\]
+![](images/gkc_ew-1200x1200-300x300.jpg) De Eeuwige Mens
 
 De honderd jaar en twee wereldoordlogen die ons scheiden van de verschijning van Chestertons _Eeuwige Mens_, bekrachtigen zijn stelling. Als goeie conservatief beklaagt hij zich regelmatig over de kwalen van de moderne tijd en wat blijkt, die kwalen zijn precies dezelfde als waarover een goeie conservatief zich vandaag moet beklagen. Zonet nog hoorde ik hoe hij zich eraan ergert dat in de moderne cultuur de kindsheid als referentiepunt geldt. Volwassenen hebben de neiging zich te gedragen als kinderen. Nu dacht ik dat juist dit een heel recent fenomeen was, maar niets blijkt minder waar! Extrapoleren is gevaarlijk, maar zouden die kwalen van de moderne tijd juist niet tijdloos zijn? _Everlasting_, zoals dat heet?
 

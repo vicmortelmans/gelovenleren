@@ -10,7 +10,7 @@ tags:
 coverImage: "Portaal-van-de-katholieke-kerk-in-Vlaanderen-Kerknet.png"
 ---
 
-Heb je het artikel gelezen van Jos Moons sj op Kerknet ["Zelf liturgische gebeden schrijven? Het missaal goed bekeken"](https://www.kerknet.be/kerknet-redactie/blog/zelf-liturgische-gebeden-schrijven-het-missaal-goed-bekeken)? Ik wel, want reeds bij het lezen van de titel gingen mijn voelsprieten overeindstaan. \[UPDATE: het artikel is intussen verwijderd van Kerknet, maar het zat nog in [Google's cache](/wp-content/uploads/2018/05/Zelf-liturgische-gebeden-schrijven_-Het-missaal-goed-bekeken-_-Kerknet.pdf)\]
+Heb je het artikel gelezen van Jos Moons sj op Kerknet ["Zelf liturgische gebeden schrijven? Het missaal goed bekeken"](https://www.kerknet.be/kerknet-redactie/blog/zelf-liturgische-gebeden-schrijven-het-missaal-goed-bekeken)? Ik wel, want reeds bij het lezen van de titel gingen mijn voelsprieten overeindstaan. \[UPDATE: het artikel is intussen verwijderd van Kerknet, maar het zat nog in [Google's cache](images/Zelf-liturgische-gebeden-schrijven_-Het-missaal-goed-bekeken-_-Kerknet.pdf)\]
 
 In de studentenparochie van Leuven, waar hij pastoor is, is het de gewoonte dat de priester het openings- en slotgebed van de mis niet uit het missaal neemt, maar zelf formuleert. Voor hem was dat nieuw, hij was dat in Nederland niet gewoon. Vervolgens argumenteert hij dat die gewoonte best zinvol kan zijn, maar formuleert hij ook enkele goede bezwaren om toch voorzichtig om te springen met eigen liturgische gebeden.
 

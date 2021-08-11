@@ -11,14 +11,14 @@ coverImage: "dali_de-verzoeking-van-de-heilige-antonius_1946.jpg"
 
 Eigenlijk is het wel interessant om eens na te denken over de 'bekoring' en de 'beproeving' waarover we in het onzevader bidden. In de commentaar op de nieuwe vertaling lijkt het wel alsof bekoring en beproeving tegenovergestelde begrippen zijn, maar naar mijn aanvoelen is er tussen beide woorden een grote overeenkomst. Beide woorden gaan over een omstandigheid die aanleiding geeft tot een keuze voor iets dat slecht is, voor zonde. Het gaat om de 'aanleiding', niet om de oorzaak, want vermits het om een keuze gaat, is de werkelijke oorzaak onze eigen wil, of de zwakte ervan.
 
-\[caption id="attachment\_3213" align="alignright" width="254"\][![Bekoring in tweestrijd met de deugd](images/bekoring.png)](http://gelovenleren.net/wp-content/uploads/2016/08/lachende-wolf.jpg) Bekoring in tweestrijd met de deugd\[/caption\]
+[![Bekoring in tweestrijd met de deugd](images/bekoring.png)](images/lachende-wolf.jpg) Bekoring in tweestrijd met de deugd
 
-Het verschil, zo voel ik dat aan, ligt in de aard van de omstandigheid. Je wordt bekoord door dingen waaraan je eigenlijk [geen behoefte](http://gelovenleren.net/navolging-van-christus/boek-i-hoofdstuk-6-over-de-ongeregelde-begeerten/) hebt, uit hebzucht, uit gulzigheid, uit jaloezie, uit nijd, uit luiheid. Ingaan op een bekoring is in het algemeen een vorm van hoogmoed. Een beproeving daarentegen, gaat gepaard met een zekere nood. Je bent arm, je bent onrechtvaardig behandeld, je bent ongeneeslijk ziek, je hebt een grote tegenslag meegemaakt. Ook dat kan aanleiding zijn tot zonde, als dat je liefdevolle relatie met je naasten verstoort, of erger nog: met God.
+Het verschil, zo voel ik dat aan, ligt in de aard van de omstandigheid. Je wordt bekoord door dingen waaraan je eigenlijk [geen behoefte](/blog/boek-i-hoofdstuk-6-over-de-ongeregelde-begeerten/) hebt, uit hebzucht, uit gulzigheid, uit jaloezie, uit nijd, uit luiheid. Ingaan op een bekoring is in het algemeen een vorm van hoogmoed. Een beproeving daarentegen, gaat gepaard met een zekere nood. Je bent arm, je bent onrechtvaardig behandeld, je bent ongeneeslijk ziek, je hebt een grote tegenslag meegemaakt. Ook dat kan aanleiding zijn tot zonde, als dat je liefdevolle relatie met je naasten verstoort, of erger nog: met God.
 
 Het verschil tussen bekoring en beproeving is echter ook deels subjectief: wat voor de één een bekoring is, kan voor de ander een beproeving zijn. De bekoring overwin je met de kardinale deugden van matigheid, voorzichtigheid, rechtvaardigheid of vasthoudendheid. De beproeving daarentegen, daagt je uit in de goddelijke deugden van geloof, hoop en liefde. Het hangt er dus maar van af hoe sterk je staat in [deugdzaamheid](/blog/gewetensonderzoek-2/), of je bekoord dan wel beproefd wordt.
 
-\[caption id="attachment\_3214" align="alignleft" width="300"\]![De verzoeking van de heilige Antonius. Salvador Dali, 1946](images/dali_de-verzoeking-van-de-heilige-antonius_1946-300x220.jpg) De verzoeking van de heilige Antonius.  
-Salvador Dali, 1946\[/caption\]
+![De verzoeking van de heilige Antonius. Salvador Dali, 1946](images/dali_de-verzoeking-van-de-heilige-antonius_1946-300x220.jpg) De verzoeking van de heilige Antonius.  
+Salvador Dali, 1946
 
 Of een bekoring of beproeving op één of andere manier door God wordt opgelegd als een test, laat me koud. De bekoring is een gevolg van de zwakte van je deugdzaamheid. De beproeving kan voortkomen uit ongeluk, natuurgeweld, kwaadwillige medemensen, of ---wie weet--- misschien wel uit God. De opdracht blijft in alle gevallen hetzelfde: jij moet er goed mee omgaan. Wel kan er een verschil zitten op de verdienste. Die is het grootst voor iemand die een zware beproeving doorstaat.
 

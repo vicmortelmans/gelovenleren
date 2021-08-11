@@ -16,7 +16,7 @@ Het concept van het 'Einde der Tijden' is moeilijk te vatten, zeker in ons heden
 
 De relevantie ligt er niet in te weten _wanneer_ het einde zich zal voltrekken, daarover is Jezus duidelijk: dat weet alleen de Vader. Ook niet bijzonder relevant is te weten _hoe_ het einde zich zal voltrekken. Het evangelie, met name de eschatologische rede van Jezus in [Matteus 24-25](https://rkbijbel.nl/kbs/#/bijbel/neovulgaat/willibrord1975/matteus/24), geeft heel wat aanwijzingen waaruit je de gekste voorstellingen kan ontwikkelen, maar daarmee kom je geen stap dichter bij de betekenis van Jezus' wederkomst voor jouw leven.
 
-\[caption id="attachment\_3155" align="alignright" width="300"\]![La Genèse (Francoise Burtz, © Francoise Burtz)](images/La-Genèse-Francoise-Burtz-©-Francoise-Burtz-300x300.jpg) La Genèse (Francoise Burtz, © Francoise Burtz)\[/caption\]
+![La Genèse (Francoise Burtz, © Francoise Burtz)](images/La-Genèse-Francoise-Burtz-©-Francoise-Burtz-300x300.jpg) La Genèse (Francoise Burtz, © Francoise Burtz)
 
 Als je goeie eschatologische meditatie wil mét een actuele boodschap voor jouw leven, moet je niet ver zoeken. Heel wat van Jezus' parabels zijn eigenlijk verhalen over de Eindtijd, waarbij telkens een tipje van de sluier wordt opgelicht over het Oordeel dat zal plaatsvinden.
 
@@ -38,4 +38,4 @@ Wil je nog wat verder lezen, Lucepedia heeft een bevattelijk artikel over het [L
 
 Ben je er klaar voor de generale repetitie van het Oordeel, speel dan het [toneel](/portfolio/de-talenten/).
 
-\[portfolio display\_types=false display\_tags=false include\_tag=toneel-de-talenten columns=3\]
+

@@ -27,7 +27,7 @@ De kerkelijke leer is, net als elk kennisstelsel, gebaseerd op uitspraken, en de
 
 Als iemand je vraag: "Is dat waar?", wat antwoord je dan?...waar of onwaar?
 
-\[caption id="attachment\_1458" align="alignright" width="200"\]![Sint Thomas van Aquino, Thomas van Aquino, scholasticus](images/266px-St-thomas-aquinas-200x300.jpg) Sint Thomas van Aquino, scholasticus\[/caption\]
+![Sint Thomas van Aquino, Thomas van Aquino, scholasticus](images/266px-St-thomas-aquinas-200x300.jpg) Sint Thomas van Aquino, scholasticus
 
 De Kerk heeft een lange traditie waarin ze de betekenis van de uitspraken over geloof voor alle subjectivisme probeert te behoeden. Een traditie die zijn hoogtepunt kent in de 'scholastiek'. Die wetenschappelijke methodiek zoekt een eenduidige betekenis van het theologisch begrippenkader, zodat iedereen die deze begrippen en concepten gebruikt in uitspraken over het geloof, dezelfde betekenis hanteert. Door verschillende stellingen tegenover mekaar te plaatsen en logische afleidingen te maken, kon de scholastische methode achterhalen welke stelling waar was, en welke onwaar. Dat werkte goed, zolang de scholastiek als wetenschappelijke methode erkenning genoot en weinig concurrentie ondervond van de andere wetenschappen...
 
@@ -62,7 +62,7 @@ Theologie, en meerbepaald de katholieke [apologetiek](http://nl.wikipedia.org/wi
 
 ## Waarom "ik geloof..."
 
-\[caption id="attachment\_2263" align="alignleft" width="300"\][![Wat is waarheid? (Alain Senez)](images/waarheid-300x229.jpg)](http://www.sint-andrieskerk.be/alainsenez.htm) Wat is waarheid? (Alain Senez)\[/caption\]
+[![Wat is waarheid? (Alain Senez)](images/waarheid-300x229.jpg)](http://www.sint-andrieskerk.be/alainsenez.htm) Wat is waarheid? (Alain Senez)
 
 Om nu terug te keren tot de probleemstelling. Wat is het 'waarheidsgehalte' van 'uitspraken' over geloof? Ik parafraseerde in het begin van dit artikel enkele 'uitspraken' uit het credo, maar liet bewust de inleidende zinsnede "Ik geloof" weg. Viel het u op? Misschien niet, maar toch staan die twee inleidende woorden er volgens mij niet zomaar.
 

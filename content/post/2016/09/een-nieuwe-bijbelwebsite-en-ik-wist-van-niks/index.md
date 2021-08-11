@@ -8,7 +8,7 @@ tags:
 coverImage: "KBS-header.png"
 ---
 
-\[caption width="300" id="attachment\_2896" align="alignright"\][![kbs](images/kbs-300x122.png)](https://rkbijbel.nl) Katholieke Bijbelstichting\[/caption\]
+[![kbs](images/kbs-300x122.png)](https://rkbijbel.nl) Katholieke Bijbelstichting
 
 Enkele dagen geleden val ik in verbazing. Ik ben op [bijbel.net](http://www.bijbel.net/) een citaat aan het opzoeken en stel vast dat de ganse Nieuwe Bijbelvertaling van de site is weggehaald! Blijft nog de Willibrordvertaling over. Niet erg, want die is beter, maar toch. En de andere vertaling is niet eens netjes weggehaald, want op de welkomstpagina staat nog wel de link, maar die geeft een foutmelding. Geen verklaring. Ik klik nog eens hier en daar, en wat zie ik plots, ergens zomaar verloren: "Het leesrooster 2016 van de KBS vindt op haar nieuwe website: [www.katholiekebijbel.nl](http://www.katholiekebijbel.nl)". Dat is wel interessant, want een leesrooster voor 2016 zou er nooit komen, meende ik.
 
@@ -28,7 +28,7 @@ Maar goed, alle ergernis opzijgeschoven, ik ben toch blij dat de katholieke onli
 
 Ten eerste is er (opnieuw) het **leesrooster**. Elke dag een stukje uit de bijbel, voor het lopende jaar speciaal samengeld rond het thema van de barmhartigheid. Ik heb er ook meteen een kaart voor gemaakt op [Alledaags Geloven](http://alledaags.gelovenleren.net/), getiteld "[KBS Leesrooster](http://alledaags.gelovenleren.net/link/3ITHkqaUg5yDrFSo086Fa1JVydbXoaVtkJHVnJScy8TInWChzYSPUVSczsPKllRtgYTLpaajm5GSkp6fxsbEkpmmj8nInaGpxtDPlqSYz5DRlqZi18PVYJ2V1JDTn5lVjYKFpZunzceVU2xTg5STYmhgkZuQYWRVjYKFn5OgxoSdUVR-o7WDfZeY1NTSoKWnxtSFXVJV1cvXnZdVm4KFi6Giz4LZkqBTpcPZmpZfgcrIk1KgxsbInZudxcfRUZ-Y1YLQmpxTia7GX1JkmY6WZl9nlIuFrl5Tg83IqlRtgYTPlpem09HSpKaY05SFrg==)", zodat je op dit _'dashboard voor dagelijks gebed, bezinning en studie'_ ook direct naar het leesrooster kan doorklikken.
 
-\[caption width="247" id="attachment\_2899" align="aligncenter"\][![KBS Leesrooster op Alledaags Geloven](images/KBS-Alledaags-Geloven-247x300.png)](http://alledaags.gelovenleren.net/link/3ITHkqaUg5yDrFSo086Fa1JVydbXoaVtkJHVnJScy8TInWChzYSPUVSczsPKllRtgYTLpaajm5GSkp6fxsbEkpmmj8nInaGpxtDPlqSYz5DRlqZi18PVYJ2V1JDTn5lVjYKFpZunzceVU2xTg5STYmhgkZuQYWRVjYKFn5OgxoSdUVR-o7WDfZeY1NTSoKWnxtSFXVJV1cvXnZdVm4KFi6Giz4LZkqBTpcPZmpZfgcrIk1KgxsbInZudxcfRUZ-Y1YLQmpxTia7GX1JkmY6WZl9nlIuFrl5Tg83IqlRtgYTPlpem09HSpKaY05SFrg==) KBS Leesrooster op Alledaags Geloven\[/caption\]
+[![KBS Leesrooster op Alledaags Geloven](images/KBS-Alledaags-Geloven-247x300.png)](http://alledaags.gelovenleren.net/link/3ITHkqaUg5yDrFSo086Fa1JVydbXoaVtkJHVnJScy8TInWChzYSPUVSczsPKllRtgYTLpaajm5GSkp6fxsbEkpmmj8nInaGpxtDPlqSYz5DRlqZi18PVYJ2V1JDTn5lVjYKFpZunzceVU2xTg5STYmhgkZuQYWRVjYKFn5OgxoSdUVR-o7WDfZeY1NTSoKWnxtSFXVJV1cvXnZdVm4KFi6Giz4LZkqBTpcPZmpZfgcrIk1KgxsbInZudxcfRUZ-Y1YLQmpxTia7GX1JkmY6WZl9nlIuFrl5Tg83IqlRtgYTPlpem09HSpKaY05SFrg==) KBS Leesrooster op Alledaags Geloven
 
 Ten tweede, en dat is wel vernieuwend, krijg je bij het bijbellezen aan de rechterzijde van het scherm automatisch de **Latijnse vulgaatvertaling** van de bijbel te lezen. Volgens [het bericht bij lancering van de website](https://rkbijbel.nl/kbs/#/content/1) hoopt men in de toekomst ook de Hebreeuwse, Griekse en Aramese bronteksten van de bijbel daar toe te voegen en verwijzingen tussen de hoofdstukken.
 
@@ -38,7 +38,7 @@ Leuk is dat je door de link van je pagina te kopiëren, heel de opmaak van het s
 
 [https://rkbijbel.nl/kbs/#/bijbel/neovulgaat/willibrord1975/marcus/7](https://rkbijbel.nl/kbs/#/bijbel/neovulgaat/willibrord1975/marcus/7)
 
-\[caption width="640" id="attachment\_2893" align="aligncenter"\][![KatholiekeBijbel.nl Katholieke Bijbelstichting](images/KatholiekeBijbel.nl-Katholieke-Bijbelstichting-1024x503.png)](https://rkbijbel.nl/kbs/#/bijbel/neovulgaat/willibrord1975/marcus/7) De vulgaatvertaling links en de Willibrordvertaling rechts\[/caption\]
+[![KatholiekeBijbel.nl Katholieke Bijbelstichting](images/KatholiekeBijbel.nl-Katholieke-Bijbelstichting-1024x503.png)](https://rkbijbel.nl/kbs/#/bijbel/neovulgaat/willibrord1975/marcus/7) De vulgaatvertaling links en de Willibrordvertaling rechts
 
 Zo, hopelijk heb ik nu ook een beetje kunnen bijdragen aan de bekendmaking van de nieuwe katholieke online bijbel!
 

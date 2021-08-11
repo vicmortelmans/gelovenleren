@@ -12,7 +12,7 @@ coverImage: "deongelovigethomas1.png"
 
 We gaan nog wat verder met tot-nadenken-aanzettende-geloofsverbeeldingen. Vandaag, 3 juli, toepasselijk met een schilderij van de 'ongelovige Thomas', de apostel die zijn collega's niet op hun woord wilde geloven dan Jezus was verrezen, want hij huldigde het motto "eerst zien, dan geloven".
 
-\[caption id="attachment\_936" align="aligncenter" width="326"\]![De ongelovige Thomas](images/deongelovigethomas1.png) De ongelovige Thomas\[/caption\]
+![De ongelovige Thomas](images/deongelovigethomas1.png) De ongelovige Thomas
 
 Buiten de eigentijdse enscenering en de schreeuwerige kleuren is er nog iets dat in het schilderij in het oog springt. Thomas legt zijn hand in Jezus' zijde om de wonde te voelen, maar er is helemaal geen wonde te zien!
 

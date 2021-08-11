@@ -13,13 +13,13 @@ Als ik onlangs vertelde dat er die ochtend niet veel volk in de mis was, vroeg d
 
 Theologisch of kerkrechterlijk zal ik het niet perfect kunnen onderbouwen, maar ik ben er zeker van dat het enige principieel juiste antwoord op de vraag _**"ja"**_ is! Natuurlijk is het jammer als een zondagsmis weinig volk trekt en mag er nagedacht worden over een [kerkenplan](/blog/antwerpse-kerken-voor-toekomst-gevrijwaard-via-medegebruik-door-andere-christelijke-gemeenschappen/) om te voorkomen dat dit ooit werkelijk zou gebeuren, maar het is een reële vraag en in de praktijk niet volledig uit te sluiten. Mocht ik de priester zijn die ooit voor een lege kerk zou komen te staan, ik zou met knikkende knieën en met het zweet op mijn aangezicht mijn werk doen en meer dan ooit ervaren wat voor een offer Christus heeft gebracht dat zich nu op het altaar voltrekt!
 
-\[caption id="attachment\_3111" align="aligncenter" width="300"\]!["Wegens gebrek aan belangstelling wordt de vertoning van deze avond afgelast, gelieve ons te verontschuldigen"](images/leeg-theater-300x200.jpg) "Wegens gebrek aan belangstelling wordt de vertoning van deze avond afgelast, gelieve ons te verontschuldigen"\[/caption\]
+!["Wegens gebrek aan belangstelling wordt de vertoning van deze avond afgelast, gelieve ons te verontschuldigen"](images/leeg-theater-300x200.jpg) "Wegens gebrek aan belangstelling wordt de vertoning van deze avond afgelast, gelieve ons te verontschuldigen"
 
-\[caption id="attachment\_3112" align="aligncenter" width="300"\]!["In nomine Patris et Filii et Spiritus Sancti"](images/lege-kerkbanken-300x200.jpg) "In de naam van de Vader en van de Zoon en van de Heilige Geest..."\[/caption\]
+!["In nomine Patris et Filii et Spiritus Sancti"](images/lege-kerkbanken-300x200.jpg) "In de naam van de Vader en van de Zoon en van de Heilige Geest..."
 
 Als er een **theaterstuk** wordt opgevoerd en er zou niemand opdagen in het publiek, dan kan ik me niet inbeelden dat de acteurs de vertoning laten doorgaan. Een theaterstuk bestaat immers bij de gratie van het publiek, dat moet worden vermaakt en voor de inkomsten zorgt. Niet zo de **heilige Mis**. Die bestaat bij de gratie van Christus' tegenwoordigstelling en die is niet afhankelijk van de aanwezigheid van gelovigen om aan de eucharistie deel te nemen.
 
-\[caption id="attachment\_3110" align="alignright" width="300"\]![Mis(sen) zonder gelovigen, niet uit noodzaak, maar uit godsvrucht](images/missa-sine-populo2-300x185.jpg) Mis(sen) zonder gelovigen: geen gebrek aan godsvrucht, maar overvloed van godsvrucht\[/caption\]
+![Mis(sen) zonder gelovigen, niet uit noodzaak, maar uit godsvrucht](images/missa-sine-populo2-300x185.jpg) Mis(sen) zonder gelovigen: geen gebrek aan godsvrucht, maar overvloed van godsvrucht
 
 Vroeger, meen ik, kwam het trouwens vaak voor dat een priester die geen 'dienst' had in een parochie, toch zijn dagelijkse mis opdroeg, samen met een acoliet, eventueel zelfs tijdens de gewone mis, aan een zijaltaar, terwijl de aanwezige gelovigen deelnamen aan de mis op het hoofdaltaar. In die mis-zonder-gelovigen konden dan wel specifieke intenties opgedragen worden, wat meteen het onzichtbare gemeenschapskarakter bevestigde.
 

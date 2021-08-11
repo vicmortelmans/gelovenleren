@@ -16,7 +16,7 @@ Een mooi voorbeeld is het [scutum fidei](http://en.wikipedia.org/wiki/Shield_of_
 
 "Scutum Fidei" over de onderlinge verhouding van de personen in de Heilige Drie-eenheid
 
-\[caption id="" align="aligncenter" width="144"\]![Scutum Fidei](images/500px-Shield-Trinity-Scutum-Fidei-compact.svg.png) Sobere versie van het Scutum Fidei\[/caption\]
+![Scutum Fidei](images/500px-Shield-Trinity-Scutum-Fidei-compact.svg.png) Sobere versie van het Scutum Fidei
 
 De schilderkunst heeft ook heel wat infografieken opgeleverd, zij het meestal beperkt tot het combineren van verschillende taferelen die onderling een logische samenhang hebben. Je hebt ook narratieve werken die in een tafereel verschillende scenes afbeelden.
 
@@ -24,31 +24,31 @@ De schilderkunst heeft ook heel wat infografieken opgeleverd, zij het meestal be
 
  
 
-\[caption id="attachment\_3880" align="aligncenter" width="203"\]![](images/OurLadyRosary-203x300.jpg) De mysteries van de Rozenkrans\[/caption\]
+![](images/OurLadyRosary-203x300.jpg) De mysteries van de Rozenkrans
 
  
 
-\[caption id="attachment\_374" align="aligncenter" width="450"\]![Scenes from the Passion of Christ](/wp-content/uploads/2014/12/memling_passie1.jpg?w=450) Scenes from the Passion of Christ (Hans Memling, 1470-71, Galleria Sabauda, Turin)\[/caption\]
+![Scenes from the Passion of Christ](images/memling_passie1.jpg?w=450) Scenes from the Passion of Christ (Hans Memling, 1470-71, Galleria Sabauda, Turin)
 
 Een recenter voorbeeld van katholieke infografieken is de [Prentencatechismus](http://prentencatechismus.org/ "Prentencatechismus"), die al eerder op deze blog werd besproken. De meeste prenten zijn louter voorstellingen van taferelen uit bijbelverhalen of andere bronnen, maar een aantal prenten zijn duidelijk te catalogeren als infografieken. Het zijn geillustreerde representaties van lijsten, logische concepten, structuren en beslissingsbomen.
 
-\[caption id="attachment\_3881" align="aligncenter" width="225"\]![](images/de-schepping-225x300.jpg) De zeven dagen van de Schepping\[/caption\]
+![](images/de-schepping-225x300.jpg) De zeven dagen van de Schepping
 
  
 
-\[caption id="attachment\_3882" align="aligncenter" width="225"\][![](images/gemeenschap-van-de-heiligen-225x300.jpg)](http://prentencatechismus.org/2011/01/13/negende-artikel-vervolg-ik-geloof-in-de-gemeenschap-van-de-heiligen/) De lijdende, strijdende en triomferende Kerk\[/caption\]
+[![](images/gemeenschap-van-de-heiligen-225x300.jpg)](http://prentencatechismus.org/2011/01/13/negende-artikel-vervolg-ik-geloof-in-de-gemeenschap-van-de-heiligen/) De lijdende, strijdende en triomferende Kerk
 
  
 
-\[caption id="attachment\_3883" align="aligncenter" width="225"\][![](images/katholieke-feesten-225x300.jpeg)](http://prentencatechismus.org/uncategorized/de-geboden-van-de-kerk-in-het-algemeen-eerste-gebod-van-de-kerk-zon-en-feestdag-houd-in-eer-tweede-gebod-van-de-kerk-hoor-wel-mis-dan-elke-keer/) Katholieke Feestdagen\[/caption\]
+[![](images/katholieke-feesten-225x300.jpeg)](http://prentencatechismus.org/uncategorized/de-geboden-van-de-kerk-in-het-algemeen-eerste-gebod-van-de-kerk-zon-en-feestdag-houd-in-eer-tweede-gebod-van-de-kerk-hoor-wel-mis-dan-elke-keer/) Katholieke Feestdagen
 
 En hoe zit het vandaag? Hoewel het aanbod (nog) niet zo groot is -- de kerk heeft zoals geweten veel moeite met moderne media -- bestaan er al infografieken die met een meer hedendaagse stijl de geloofsleer of -praktijk trachten weer te geven.
 
-\[caption id="" align="aligncenter" width="300"\]![Liturgische kalender](images/circular-liturgical-calendar.jpg) Liturgische kalender\[/caption\]
+![Liturgische kalender](images/circular-liturgical-calendar.jpg) Liturgische kalender
 
-\[caption id="attachment\_369" align="aligncenter" width="315"\][![Catholics Today - Belief system](/wp-content/uploads/2014/12/catholicstodaypart1_502917e6689e8_w5871.png?w=450 "Catholics Today part 1")](http://visual.ly/catholics-today-part-1) Catholics Today - Belief system (Martha Quintero, 2011)\[/caption\]
+[![Catholics Today - Belief system](images/catholicstodaypart1_502917e6689e8_w5871.png?w=450 "Catholics Today part 1")](http://visual.ly/catholics-today-part-1) Catholics Today - Belief system (Martha Quintero, 2011)
 
-\[caption id="attachment\_372" align="aligncenter" width="315"\][![Het scheppingsplan](/wp-content/uploads/2014/12/hetscheppingsplan1.png?w=450 "Het scheppingsplan")](/page/gods-scheppingsplan/) Het scheppingsplan\[/caption\]
+[![Het scheppingsplan](images/hetscheppingsplan1.png?w=450 "Het scheppingsplan")](/page/gods-scheppingsplan/) Het scheppingsplan
 
 Hoog tijd dus om daarin wat meer te investeren. Net zoals de kranten, moet de kerk dat internationaal aanpakken, want de grootste (en niet onaanzienlijke!) kost voor de vervaardiging van een infografiek ligt in het tekenwerk, maar omdat er doorgaans weinig tekst te zien is, ligt de kost voor internationalisering bijzonder laag. De geloofsleer, die is nog altijd universeel is, is bovendien bij uitstek geschikt als onderwerp voor infografieken, want je hebt er soms een hoop 'verbeelding' voor nodig om ze te begrijpen.
 

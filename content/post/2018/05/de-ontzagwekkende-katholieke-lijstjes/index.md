@@ -43,7 +43,7 @@ Het is onze eigen zonde die het beeld van de toornige God oproept. Dat leert het
 
 Een kort stukje uit de catechese van paus Franciscus is opgenomen in het boekje **"Gevormd!"** dat op deze site [verkrijgbaar](/portfolio/gevormd/) is. Jammer als je de kans gemist hebt het aan je petekind te schenken als die deze maand zijn of haar vormsel heeft gedaan ;)
 
-\[caption id="attachment\_4377" align="aligncenter" width="836"\][![](images/ontzag-voor-god.png)](/portfolio/gevormd/) Gevormd!\[/caption\]
+[![](images/ontzag-voor-god.png)](/portfolio/gevormd/) Gevormd!
 
 * * *
 

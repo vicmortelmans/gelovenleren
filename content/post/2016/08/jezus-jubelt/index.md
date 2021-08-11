@@ -14,4 +14,4 @@ Nochtans is het toch die blijdschap die de _drive_ moet zijn geweest voor Jezus'
 
 Als we geen beeld hebben van een jubelende Jezus, hoe kunnen wij dan zelf behoorlijk jubelen in vreugde als we inzicht krijgen in de genade die het geloof kan brengen? Het dichtst benaderen wellicht nog de afbeeldingen van het heilig Hart de jubelende Jezus, die zijn handen uitstrekt, niet alleen in ontferming, maar ook in intense vreugde.
 
-\[caption id="attachment\_2805" align="aligncenter" width="371"\]![Jubelende Jezus?](images/jesusbuddyjesus.jpg) Jubelende Jezus?\[/caption\]
+![Jubelende Jezus?](images/jesusbuddyjesus.jpg) Jubelende Jezus?

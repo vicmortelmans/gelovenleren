@@ -41,7 +41,7 @@ _Het gebruik van katholieke sociale netwerken zou het mogelijk kunnen maken meer
 
 ### Ga voor gemeenschappen!
 
-\[caption id="attachment\_1335" align="alignright" width="300"\][![Gezinspastoraal](images/FD_Drongen2_VERKLEIND-300x200.jpg)](http://www.gezinspastoraal.be/337/) Gezinspastoraal\[/caption\]
+[![Gezinspastoraal](images/FD_Drongen2_VERKLEIND-300x200.jpg)](http://www.gezinspastoraal.be/337/) Gezinspastoraal
 
 Als de kerkelijke leer niet aanvaard wordt in het gezin, is dat ---blijkens de steeds weerkerende antwoorden--- minstens gedeeltelijk te wijten aan het ontbreken van een klankbord. Als gelovigen geen _peers_ vinden om aan te relateren, is het veel moeilijker om de leer van het geloof te handhaven, hoe 'aanvaardbaar' die ook geformuleerd wordt. De verkondiging van de leer gaat samen met de vorming van een gemeenschap. De bisschop is herder en leraar. De herder moet zijn schapen bijeen brengen en binnenleiden in de waarheid.
 

@@ -22,7 +22,7 @@ Deze blog gaat niet over muziek, maar over geloof, dus de lezer zal het niet ver
 
 [Beatae Memoriae, Church Soundscape Generator](https://mynoise.net/NoiseMachines/churchAtmosphereSoundGenerator.php?c=0&l=0040234330303926300000&d=0)
 
-\[caption id="attachment\_6932" align="alignright" width="150"\][![](images/Louis-Vierne-Messe-Solennelle-150x150.jpg)](https://pipe-organ-recordings.com/product/vierne-mass-saint-sulpice-paris-daniel-roth/) Louis Vierne, Messe Solennelle, A recreation of a traditional Latin Mass at Saint-Sulpice\[/caption\]
+[![](images/Louis-Vierne-Messe-Solennelle-150x150.jpg)](https://pipe-organ-recordings.com/product/vierne-mass-saint-sulpice-paris-daniel-roth/) Louis Vierne, Messe Solennelle, A recreation of a traditional Latin Mass at Saint-Sulpice
 
 Het is een leuke gadget, maar ik kan er ook geen uren naar blijven luisteren. Met name die laatste _noise machine_ echter, deed me denken aan een bijzondere CD-opname die ik enkele jaren geleden bemachtigde, die nu jammer genoeg uitverkocht is:
 
@@ -32,9 +32,7 @@ Het is geen 'klassieke' uitvoering van een gecomponeerde mis. De opname probeert
 
 Ik heb er enkele opeenvolgende tracks uitgelicht die je hier kan beluisteren. De titels van de tracks zijn Sanctus, Elevation, Benedictus, Improvisation en Pater Noster.
 
-http://gelovenleren.net/wp-content/uploads/2018/06/Vierne-mass-sanctus-consecration-pater-noster\_MP3WRAP.mp3
-
- 
+[Vierne-mass-sanctus-consecration-pater-noster_MP3WRAP.mp3](https://storage.googleapis.com/geloven-leren/audiobooks/Vierne-mass-sanctus-consecration-pater-noster_MP3WRAP.mp3)
 
 Je hoort dus iets wat in onze hedendaagse liturgie heel ongewoon is: de consecratie die door de priester in stilte wordt voltrokken, slechts begeleid door een ijle orgelklank en belgerinkel. Als je je afvraagt wanneer de consecratie plaatsvindt: bijzonder in deze uitvoering is dat het Benedictus wordt gezongen _na_ de consecratie, een praktijk die blijkbaar enkel [gangbaar](http://www.ccwatershed.org/blog/2014/oct/29/sanctus-benedictus-should-it-be-divided-mass/) was in gezongen missen met polyfone muziek.
 

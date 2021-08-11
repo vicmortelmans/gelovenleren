@@ -17,7 +17,7 @@ Vandaag viert de kerk het feest van de heilige evangelist Marcus. In de tridenti
 
 In de nieuwe mis is er voor een andere lezing gekozen met hetzelfde thema: de zending van de apostelen net voor Jezus' hemelvaart. Ook aan hen is boodschap duidelijk: _"Trek heel de wereld door om aan elk schepsel de goede boodschap te verkondigen. Wie tot geloof komt en gedoopt wordt, zal gered worden, maar wie niet tot geloof komt, zal veroordeeld worden."_
 
-\[caption id="attachment\_3628" align="alignright" width="300"\]![](images/beke-300x157.jpg) Wouter Beke\[/caption\]
+![](images/beke-300x157.jpg) Wouter Beke
 
 Ook vandaag las ik twee artikeltjes. Eerst eentje over een [uitspraak van Wouter Beke](http://sceptr.net/2017/04/wouter-beke-gelooft-wel-europese-islam/), een partijvoorzitter, die in een debat zit verwikkeld over de plaats van de Islam in ons land. Zijn stelling luidt: _"De mensen die in ons land de islam willen belijden, kunnen dat, maar enkel als het op een Europese leest geschroeid is, **de Europese islam**, dat is voor mij klaar en duidelijk”._
 

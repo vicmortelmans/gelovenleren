@@ -10,7 +10,7 @@ tags:
 coverImage: "ramadan-landscape.jpg"
 ---
 
-\[caption id="attachment\_3727" align="alignright" width="456"\]![](images/ramadan.jpg) \*A\* doe mee oan de Ramadan\[/caption\]
+![](images/ramadan.jpg) \*A\* doe mee oan de Ramadan
 
 De Turnhoutsebaan in Borgerhout is deze weken getooid met [sierlijke banieren](http://www.hln.be/regio/nieuws-uit-borgerhout/100-ramadan-vlaggen-op-turnhoutsebaan-a3169009/) die het woord "Ramadan" dragen. Het verraste me wel even. Ik vroeg me af: wie hangt die daar? Ik vermoed dat de stad dat doet, want doorheen het jaar worden aan dezelfde palen banieren opgehangen die publieke evenementen aankondigen, zoals een stoet of een braderij. Het zou ook kunnen dat de lokale middenstand mee kiest welke promotie verschijnt, want zo'n Ramadan mag dan wel [vasten](https://www.trouw.nl/religie-en-filosofie/-ramadan-is-een-een-spiegel-voor-de-christenen-~a6467e10/) inhouden, voor de talrijke islamitische voedingszaken in de Turnhoutsebaan is het een gouden tijd, vermoed ik, met al die iftarmaaltijden.
 
@@ -18,7 +18,7 @@ De Islam krijgt zo een plaats in het 'publieke domein'. Dat is niet abnormaal, z
 
 Niet te vroeg gejuicht echter! Hoewel we het in de volksmond nog 'kerstversiering' noemen, hebben die lichtkransen natuurlijk niks meer met het religieuze feest van Kerstmis te maken. Het enige hoogfeest dat van die lichtjes beter wordt, is dat van het allerzuiverste hedonisme. De middenstand, weet je wel.
 
-\[caption id="attachment\_3729" align="alignnone" width="1918"\]![](images/kerstversiering.jpg) Turnhoutsebaan in kersttooi\[/caption\]
+![](images/kerstversiering.jpg) Turnhoutsebaan in kersttooi
 
 Even een sprongetje. Soms probeer ik me voor te stellen hoe dat duizenden jaren geleden is gegaan in Rome. Volgens de geschiedenisboekjes is de Romeinse godsdienst daar op een goeie dag op staatsbevel vervangen door het christendom. Dat kan natuurlijk niet zomaar gebeurd zijn. Ik vermoed dat die Romeinse godsdienst gewoon stilletjes is uitgebloeid, net zoals het christendom bij ons. De tempels zullen er nog gestaan hebben, netjes onderhouden met geld van de staat. De Romeinen hadden ongetwijfeld ook nog de jaarlijkse feestversiering uithangen voor de belangrijkste feesten van de hun goden. Maar zou het kunnen dat die versiering er uiteindelijk nog slechts hing bij de gunst van de stedelijke overheid die de middenstand wilde paaien? Terwijl de verering van de goden eigenlijk al lange tijd een stille dood was gestorven? Dan, op een goeie dag, beslist de staat dat er ook eens versiering mag hangen voor een christelijk feest en---hop---voor je er erg in hebt, is het christendom staatsgodsdienst geworden, omdat de oude godsdienst eigenlijk al jaren dood was.
 

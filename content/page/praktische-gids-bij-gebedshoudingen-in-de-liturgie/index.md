@@ -33,7 +33,7 @@ Echt veel om op terug te vallen is dat niet, toch? Daarom deze poging om het een
 
 **Regel 5**: we knielen om Christus' aanwezigheid op het altaar te eren. Dat is dus van voor het begin van de consecratie, minstens tot voor de verkondiging van het mysterie van het geloof.
 
-![Knielende gelovigen tijdens de heilige Mis](/wp-content/uploads/2014/12/20091004_dc_800thofm_mg_41201.jpg?w=300)
+![Knielende gelovigen tijdens de heilige Mis](images/20091004_dc_800thofm_mg_41201.jpg?w=300)
 
 Knielende gelovigen tijdens de heilige Mis
 

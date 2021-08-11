@@ -9,7 +9,7 @@ tags:
 
 De titel van dit atikel is meteen de samenvatting van de recensie van theoloog Geert van Oyen over het derde Jezusboek van paus Benedictus XVII . Hij is helemaal niet tevreden, want "Ratzinger hamert nadrukkelijk en onomwonden op de historiciteit van de verhalen". Volgens van Oyen moet een _echte_ theoloog "kritische geluiden laten klinken", en dat doet de Paus -opnieuw volgens de recensent- duidelijk niet... Of toch? Want even verderop in zijn tekst luidt het: "Deze historiciserende lezing geeft zijn werk duidelijk een oppositioneel karakter. En dit zowel richting progressieve krachten binnen de theologische gemeenschap als tegenover de bredere maatschappij." Daarmee geeft Van Oyen dus toe dat de Paus _juist wel_ kritische geluiden laat klinken. Het is echter kritiek op de theologie die de recensent zelf voorstaat, en dat lijkt dus niet mee te tellen. Merkwaardig hoe een _pensée unique_ kan verblinden...
 
-\[caption id="" align="alignright" width="240"\]![Historia](images/240px-Gyzis_006_%28%CE%97istoria%29.jpeg) Historia\[/caption\]
+![Historia](images/240px-Gyzis_006_%28%CE%97istoria%29.jpeg) Historia
 
 Van Oyen heeft echter een punt: de Bijbel is geen geschiedkundig boek. Maar ik voeg daaraan meteen toe: de theoloog is geen historicus. Het is natuurlijk belangrijk de verhalen van de Bijbel in de geschiedenis te kunnen kaderen, ook voor een theoloog, maar daar waar de historicus de taak heeft om in detail uit te vlooien welke verhalen al dan niet op werkelijke feiten berusten, heeft de theoloog de vrijheid, zoniet de plicht, om de Bijbel te benaderen als geloofsboek.
 

@@ -14,4 +14,4 @@ Vandaag kreeg ik onverwacht weer een mailtje van de zuster, die er verder op doo
 
 Zo zie je maar: zelfs als je sterft is het laatste woord over je rechtvaardiging nog niet gezegd!
 
-\[caption id="attachment\_4228" align="aligncenter" width="640"\]![](images/1170x1424-841x1024.jpg) De engel Michael beschermt de ziel van een overledene\[/caption\]
+![](images/1170x1424-841x1024.jpg) De engel Michael beschermt de ziel van een overledene

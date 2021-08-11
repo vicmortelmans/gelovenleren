@@ -19,11 +19,11 @@ Twee weken gelden, op aswoensdag, werd de nieuwe website van Kerknet gelanceerd.
 
 ### Geografisch zoeken
 
-\[caption id="attachment\_841" align="alignleft" width="201"\][![Doorn in het e-oog](images/parochiezoeker.png)](http://www.kerknet.be/) Doorn in het e-oog\[/caption\]
+[![Doorn in het e-oog](images/parochiezoeker.png)](http://www.kerknet.be/) Doorn in het e-oog
 
 Ik begin met iets dat misschien maar een detail lijkt, maar dat me altijd bijzonder geërgerd heeft op de oude Kerknet website: geografisch zoeken naar parochies. Je kan op een kaartje van Vlaanderen een bisdom aanklikken, en dan wordt je plompverloren in een online fichebak gedumpt waar je parochie per parochie (verouderde en onvolledige) informatie over de wekelijkse zondagsvieringen kan zoeken. Ronduit schandalig dat zoiets in 2015 nog bestaat.
 
-\[caption id="attachment\_192" align="alignright" width="300"\][![aanbiddinginvlaanderenradiomaria](images/aanbiddinginvlaanderenradiomaria-300x186.png)](http://adoremus.maptiming.com/#51.050426,4.255035,9z,707px/all) Eucharistische aanbidding in Vlaanderen\[/caption\]
+[![aanbiddinginvlaanderenradiomaria](images/aanbiddinginvlaanderenradiomaria-300x186.png)](http://adoremus.maptiming.com/#51.050426,4.255035,9z,707px/all) Eucharistische aanbidding in Vlaanderen
 
 Nieuw Kerknet kondigt aan hiervoor een vernieuwd concept uit te werken. **Persoonlijk had ik hiervan top-prioriteit-nummer-1-met-stip gemaakt om er meteen mee uit te pakken!** Technisch vergt het slechts een kleine investering, zoals het vrijetijdsprojectje [www.maptiming.com](http://www.maptiming.com) aantoont, waarop bij wijze van _proof-of-concept_ reeds de [aanbiddingsuren](http://adoremus.maptiming.com/#51.050426,4.255035,9z,707px/all "Aanbidding in Vlaanderen") beschikbaar zijn zoals die door mevr. Vlassenbroeck verzameld worden op haar [aanbiddingswebsite](http://www.bloggen.be/aanbiddingswebsite/ "Aanbiddingswebsite"). De moeilijkheid schuilt erin de organisatie op poten te zetten om alle gegevens te verzamelen _en_ up-to-date te houden.
 

@@ -12,7 +12,7 @@ coverImage: "simsponsdinner1.jpg"
 
 Hebt u kinderen? Dan weet u ongetwijfeld hoeveel moeite het kost uw kinderen tafelmanieren te leren. Vanzodra ze zelf met bestek aan de slag kunnen, is het een dagelijkse opdracht te waken over de goede manieren bij de maaltijd. _Niet morsen! Niet zo gulzig eten! Je moet proeven! Niet zomaar van tafel lopen! Je eet wat de pot schaft! Wachten tot iedereen aan tafel zit! Zit recht! Pas na je eten krijg je nog drinken! Laat je zus gerust! Eet met je mond dicht! Vraag dat eens met 'alsjeblieft'! Gebruik je mes en vork! Wachten tot iedereen gedaan heeft! Geen dessert als je bord niet leeg is!..._ Wie herkent deze mantra niet? En wie erkent niet dat het noodzakelijk is om kinderen daaraan te onderwerpen, omdat we het belangrijk vinden om met het gezin minstens eenmaal per dag tijd te maken om samen te eten wat moeder voor ons heeft bereid? Omdat samen eten nu eenmaal meer inhoudt dan het stillen van de honger: het geeft gestalte aan het gezinsleven, door de zorg waarmee de maaltijd wordt bereid en door de manier waarop we tijd maken en met mekaar rekening houden om de maaltijd smakelijk te laten verlopen.
 
-\[caption id="attachment\_570" align="aligncenter" width="450"\]![Tafelmanieren bij de Simpsons](/wp-content/uploads/2014/12/simsponsdinner1.jpg?w=450) Tafelmanieren bij de Simpsons\[/caption\]
+![Tafelmanieren bij de Simpsons](images/simsponsdinner1.jpg?w=450) Tafelmanieren bij de Simpsons
 
 Niettegenstaande worden formele etiquetteregels bekeken als 'iets van vroeger', waar men in de jaren vijftig nog onze ouders en grootouders mee plaagde, maar wat wij intussen ontgroeid zijn, ook al passen we er nog heel wat van toe, omdat onze ouders het ons nu eenmaal zo geleerd hebben, en omdat we het eigenlijk wel goed vinden, zo.
 
@@ -52,7 +52,7 @@ Etiquette geeft gestalte aan een respect. Bij de gezinsmaaltijd is dat respect v
 
 Hoe moeilijk het is om een kind zich fijne tafelmanieren eigen te laten maken, ervaart een ouder elke dag. Even moeilijk is het als gelovige om zich de fijne manieren van het geloof eigen te maken, zoniet moeilijker. Ook dat vergt (zelf-)opvoeding, vaak tegen heug en meug. Niet 'omdat het zo moet' of 'omdat je zo in de hemel komt', maar omdat het ons geloof noodzakelijke gestalte geeft: alleen al de nederigheid en de zelfgave van dit opvoedingsproces geeft sterkte aan het karakter waarin de ziel zich tot God kan verheffen.
 
-\[caption id="attachment\_569" align="aligncenter" width="400"\]![Jerg Ratgeb, Het Laatste Avondmaal, ca. 1505/10, Museum Boijmans van Beuningen, Rotterdam](images/etiquettelaatste20avondmaal1.jpg) Jerg Ratgeb, Het Laatste Avondmaal, ca. 1505/10, Museum Boijmans van Beuningen, Rotterdam\[/caption\]
+![Jerg Ratgeb, Het Laatste Avondmaal, ca. 1505/10, Museum Boijmans van Beuningen, Rotterdam](images/etiquettelaatste20avondmaal1.jpg) Jerg Ratgeb, Het Laatste Avondmaal, ca. 1505/10, Museum Boijmans van Beuningen, Rotterdam
 
 ### Mismanieren
 

@@ -14,7 +14,7 @@ Over Bonaventura schrijft Jan van den Eijnden in de inleiding tot de [nieuwe ver
 
 De middeleeuwen worden nog altijd bekeken met minachting. In Tertio schreef baron Stouthuysen in een tribune zijn ideeen neer over de veranderende rol van het priesterschap, waarbij hij een beeld schetst van een verouderd priesterschap, dat in de middeleeuwen ontstond en sindsdien onveranderlijk de kerk gedomineerd heeft: _"Er kwam een dominante sociale stand, de clerus, die op grond van vermeende hogere ‘zedelijke volmaaktheid’ – de eeuwige geloften van maagdelijkheid, soberheid en gehoorzaamheid – principieel superieur was aan de lekenstand. De clerus als exclusieve verlener van de genademiddelen vertegenwoordigde hier op aarde het hemelrijk."_
 
-[![Het pad van zonde en de terugkeer tot God - het 'volmaakte leven'](/wp-content/uploads/2014/12/hetscheppingsplan1.png?w=224)](/page/gods-scheppingsplan/)
+[![Het pad van zonde en de terugkeer tot God - het 'volmaakte leven'](images/hetscheppingsplan1.png?w=224)](/page/gods-scheppingsplan/)
 
 Het pad van zonde en de terugkeer tot God - het 'volmaakte leven'
 
@@ -24,6 +24,6 @@ Een 'volmaakt' geestelijk leven is minder een zedelijke of morele kwaliteit, dan
 
 En wat nu die verzoening tussen geloof en rede betreft: die 'duistere' middeleeuwers zagen de probleemstelling niet minder helder dan wij, ook al menen wij dankzij recente wetenschappelijke ontwikkelingen mijlenver van hun denkwereld verwijderd te zijn. Ik ga hier gewoon een stukje uit de syllabus dumpen, het verwoordt zo helder en logisch hoe geloof en rede zich tot mekaar verhouden...
 
-[![De Genade van de Heilige Geest - De werking van de genade in zaken van geloof](/wp-content/uploads/2014/12/50ca3rkyb4324vfdy8dyn9ud.jpg?w=450)](/wp-content/uploads/2014/12/50ca3rkyb4324vfdy8dyn9ud.jpg)
+[![De Genade van de Heilige Geest - De werking van de genade in zaken van geloof](images/50ca3rkyb4324vfdy8dyn9ud.jpg?w=450)](images/50ca3rkyb4324vfdy8dyn9ud.jpg)
 
 De Genade van de Heilige Geest - De werking van de genade in zaken van geloof

@@ -14,7 +14,7 @@ tags:
 
 Zo, de adventsretraites van de [jezuïeten](http://www.ignatiaansbidden.org/ "Kostbaar in mijn ogen") en van IJD zitten er weer op. Hopelijk hebben ze uw innerlijk leven gestimuleerd. Bent u klaar om op eigen houtje het innerlijk leven te blijven voeden? Mocht u nog ietwat onzeker zijn, geen nood, de retraite "[Innerlijk Leven](/categories/innerlijk-leven "Innerlijk Leven")" gaat gewoon door, nog 11 maanden lang!
 
-\[caption id="attachment\_770" align="alignleft" width="180"\][](/e-boeken/) Innerlijk Leven\[/caption\]
+[](/e-boeken/) Innerlijk Leven
 
 Meer informatie [over Innerlijk Leven](http://ift.tt/1y6X5mY)
 

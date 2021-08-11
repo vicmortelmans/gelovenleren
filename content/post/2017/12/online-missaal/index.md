@@ -29,7 +29,7 @@ Op de _Google Search Console_ kan ik aflezen welke zoekopdrachten bezoekers van 
 
 De aantallen zijn misschien niet hoog genoeg om significant te zijn, maar de zoekopdracht op nummer 1 valt wel op. **Er zijn mensen op zoek naar een online missaal!** Bijna om de andere dag landt er iemand op mijn website die daarnaar op zoek is. De reden waarom zoekers zo snel op mijn blog terechtkomen is duidelijk: er bestaat helemaal geen online versie van het missaal en ik heb die nood al [hier](/blog/op-naar-een-vrij-en-gratis-gebruik-van-kerkelijke-teksten-met-keurmerk/) en [daar](/blog/nieuw-kerknet-eerste-indrukken-en-verzuchtingen/) aangeklaagd op mijn blog.
 
-\[caption id="attachment\_4121" align="alignright" width="356"\][![](images/Katholieke-Gebeden-356x1024.png)](http://gebeden.gelovenleren.net/#liturgische-gebeden) Liturgische Gebeden\[/caption\]
+[![](images/Katholieke-Gebeden-356x1024.png)](http://gebeden.gelovenleren.net/#liturgische-gebeden) Liturgische Gebeden
 
 Enkele vrije dagen in de kerstvakantie heb ik gewijd aan het uitbreiden van de [website met katholieke gebeden](http://gebeden.gelovenleren.net/). Daar vind je nu onder de hoofding "Liturgische gebeden" de vaste gebeden van de mis in het Latijn en het Nederlands. Je krijgt er ook de dagelijkse schriftlezingen (dankzij [evangelizo.org](https://dagelijksevangelie.org/NL/gospel)). Voorlopig staan de gebeden van de gewone vorm en de buitengewone vorm nog dooreen, maar op termijn zou ik die beter ontdubbelen.
 

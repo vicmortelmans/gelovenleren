@@ -20,22 +20,22 @@ Als je er toch zo van overtuigd bent dat geloof een lang groeiproces nodig heeft
 
 Op [Aleteia](http://aleteia.org/), een katholieke nieuwssite, verscheen een artikeltje dat een vinger op de wonde legt: "[Waarom gelovigen op de leeftijd van 10 jaar het geloof achter zich laten en wat ouders daaraan kunnen doen](http://aleteia.org/blogs/deacon-greg-kandra/report-some-catholics-leave-the-faith-by-age-10/?ru=47d0756eb45e889ab5ed62566f95d010)". Het eerste deel van het artikel gaat over de moeilijke verhouding tussen geloof en wetenschap, waarop veel jongeren volgens een studie blijken af te knappen. Daar is al veel inkt over gevloeid en dit stuk bevat weinig nieuws. Het belangrijkste puntje, "wat ouders daaraan kunnen doen", blijft beperkt tot één paragraafje (mijn vertaling):
 
-_"Een combinatie van drie factoren maakt dat 80% van de jonge katholieken het geloof bewaren. Jongeren die deelnemen aan een "wekelijkse activiteit" zoals catechese, bijbelstudie of jeugdvereniging_ \[= kennisoverdracht en contact met gelovige 'peers'\]_; die contact hebben met volwassenen in de parochie__, buiten hun ouders, met wie ze over geloof kunnen praten_ \[\= geloofsoverdracht zonder gezagsrelatie\]_; en die "diepe spirituele ervaringen" hebben_ \[= praktiserend geloof\]_, hebben een veel hogere waarschijnlijkheid om katholiek te blijven."_
+_"Een combinatie van drie factoren maakt dat 80% van de jonge katholieken het geloof bewaren. Jongeren die deelnemen aan een "wekelijkse activiteit" zoals catechese, bijbelstudie of jeugdvereniging_ _; die contact hebben met volwassenen in de parochie__, buiten hun ouders, met wie ze over geloof kunnen praten_ _; en die "diepe spirituele ervaringen" hebben_ _, hebben een veel hogere waarschijnlijkheid om katholiek te blijven."_
 
 Aan de slag dus! Opvoeden _middenin_ geloof en -wie weet- daarmee ook _tot_ geloof!
 
 Ik durf vier artikelen die eerder op dit blog verschenen voor (her)lezing aanbevelen, waarin deze nood reeds uitvoerig aan het licht kwam!
 
-\[caption id="attachment\_2312" align="aligncenter" width="300"\][![Interreligieuze dialoog](images/16-300x139.jpg)](/blog/vrije-opvoeding/) Vrije opvoeding – over de verhouding tussen vrijheid en verantwoordelijkheid in geloofsopvoeding\[/caption\]
+[![Interreligieuze dialoog](images/16-300x139.jpg)](/blog/vrije-opvoeding/) Vrije opvoeding – over de verhouding tussen vrijheid en verantwoordelijkheid in geloofsopvoeding
 
  
 
-\[caption id="attachment\_182" align="aligncenter" width="300"\][![lethimaskofgod1](images/lethimaskofgod1-300x250.jpg)](/blog/jezus-blokt/) Jezus blokt – over het belang van kennisoverdracht in geloofsopvoeding\[/caption\]
+[![lethimaskofgod1](images/lethimaskofgod1-300x250.jpg)](/blog/jezus-blokt/) Jezus blokt – over het belang van kennisoverdracht in geloofsopvoeding
 
  
 
-\[caption id="attachment\_1335" align="aligncenter" width="300"\][![Gezinspastoraal](images/FD_Drongen2_VERKLEIND-300x200.jpg)](/blog/en-zijn-eenzame-kudde/) …en zijn eenzame kudde – over het belang van sociale omkadering in geloofsopvoeding en wat dat betekent voor de hervorming van het parochielandschap\[/caption\]
+[![Gezinspastoraal](images/FD_Drongen2_VERKLEIND-300x200.jpg)](/blog/en-zijn-eenzame-kudde/) …en zijn eenzame kudde – over het belang van sociale omkadering in geloofsopvoeding en wat dat betekent voor de hervorming van het parochielandschap
 
  
 
-\[caption id="attachment\_267" align="aligncenter" width="300"\][![aeb9594dadf9ce14843345dc2d7cf8771](images/aeb9594dadf9ce14843345dc2d7cf8771-190x300.jpg)](/blog/een-vaardigheid-om-god-te-ontmoeten/) Een vaardigheid om God te ontmoeten – over de rol van het gezin in geloofsopvoeding\[/caption\]
+[![aeb9594dadf9ce14843345dc2d7cf8771](images/aeb9594dadf9ce14843345dc2d7cf8771-190x300.jpg)](/blog/een-vaardigheid-om-god-te-ontmoeten/) Een vaardigheid om God te ontmoeten – over de rol van het gezin in geloofsopvoeding

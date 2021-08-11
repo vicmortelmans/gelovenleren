@@ -8,7 +8,7 @@ tags:
 coverImage: "8b22cmanutergium.jpg"
 ---
 
-\[caption id="" align="alignright" width="320"\][![Manutergium](images/8b22cmanutergium.jpg)](http://blog.adw.org/2010/06/lost-liturgies-file-the-maniturgia/) Manutergium\[/caption\]
+[![Manutergium](images/8b22cmanutergium.jpg)](http://blog.adw.org/2010/06/lost-liturgies-file-the-maniturgia/) Manutergium
 
 [Sublieme eenvoud met een ontroerende schoonheid](http://blog.adw.org/2010/06/lost-liturgies-file-the-maniturgia/ "The Manutergium").
 

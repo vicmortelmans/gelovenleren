@@ -13,7 +13,7 @@ Het Gloria is één van de vaste gebeden van de zondagsmis. Binnenkort is het Ad
 
 Als je het in verzen neerschrijft, valt het gloria mooi uiteen in vijf drieledige blokken. Dat is wellicht geen toeval. Het is de moeite waard om het eens wat dichter te bekijken. Tussen de lijnen van het gebed lees je immers veel over Gods heilswerk.
 
-\[caption id="attachment\_1146" align="aligncenter" width="689"\][![Gloria](images/eeraangod.png)](/wp-content/uploads/2014/12/eeraangodindenhogestrak.pdf) Gloria\[/caption\]
+[![Gloria](images/eeraangod.png)](https://storage.googleapis.com/geloven-leren/printerboekjes/eeraangodindenhogestrak.pdf) Gloria
 
 Centraal in het gebed staan de drie verzen die de kern van ons geloof uitdrukken: Jezus die ons verlost van de zonde. Opvallend in de verwoording is de stijlfiguur van het parallellisme:
 
@@ -31,7 +31,7 @@ De structuur van het hele gebed geeft weer hoe Gods heilswerk verloopt. Het begi
 
 Je kan zelfs in meer detail gaan en in het gebed een korte inhoud van de ganse bijbel herkennen:
 
-Eer aan God in den hoge **\[God schept het heelal, als God ergens eer uit haalt, is het uit zijn schepping\]** en vrede op aarde **\[God schept het aards paradijs\]** aan de mensen **\[God schept de mens\]** die Hij liefheeft **\[God sluit een verbond met zijn volk\]**. Wij loven U. Wij  prijzen en aanbidden U. Wij verheerlijken U en zeggen U dank voor uw grote heerlijkheid. **\[koningen en profeten aanbidden hun God\]** Heer God, hemelse Koning, God almachtige Vader **\[God wordt "vader" door de boodschap aan Maria\]**; Heer, eniggeboren Zoon, Jezus Christus **\[Jezus wordt geboren\]**; Heer God, Lam Gods **\[Johannes de Doper noemt Jezus het "Lam Gods"\]**, Zoon van de Vader **\[Johannes doopt Jezus en God noemt Hem "mijn Zoon"\]**; Gij die wegneemt de zonden der wereld, ontferm U over ons **\[Jezus sterft aan het kruis en neemt onze zonden weg\]**; Gij die wegneemt de zonden der wereld, aanvaard ons gebed **\[hier staat eigenlijk 'smeken' ipv 'gebeden'; het is Jezus die verrezen is en aan zijn leerlingen laat zien dat zij de macht krijgen de zonden te vergeven\]**; Gij die zit aan de rechterhand van de Vader, ontferm U over ons **\[Jezus gaat terug naar de Hemel, waar de H. Stefanus Hem ziet tronen aan Gods rechterhand\]**. Want Gij alleen zijt de Heilige. Gij alleen de Heer. Gij alleen de Allerhoogste: Jezus Christus. Met de Heilige Geest **\[Jezus zendt de Heilige Geest\]** in de heerlijkheid van God de Vader **\[de volmaking van de schepping is dat ze terugkeert in Gods heerlijkheid\]**. Amen.
+Eer aan God in den hoge **** en vrede op aarde **** aan de mensen **** die Hij liefheeft ****. Wij loven U. Wij  prijzen en aanbidden U. Wij verheerlijken U en zeggen U dank voor uw grote heerlijkheid. **** Heer God, hemelse Koning, God almachtige Vader ****; Heer, eniggeboren Zoon, Jezus Christus ****; Heer God, Lam Gods ****, Zoon van de Vader ****; Gij die wegneemt de zonden der wereld, ontferm U over ons ****; Gij die wegneemt de zonden der wereld, aanvaard ons gebed ****; Gij die zit aan de rechterhand van de Vader, ontferm U over ons ****. Want Gij alleen zijt de Heilige. Gij alleen de Heer. Gij alleen de Allerhoogste: Jezus Christus. Met de Heilige Geest **** in de heerlijkheid van God de Vader ****. Amen.
 
 Merk op dat het Gloria als onderdeel van de mis veel ouder is dan bijvoorbeeld de geloofsbelijdenis! In wezen is het een soort van proto-credo én een geheugensteun voor de gelovigen om kort te resumeren wat hun geloof precies inhoudt en waarom ze bijeenkomen in het sacrament van de eucharistie.
 
@@ -43,4 +43,4 @@ Niet verwonderlijk dat deze uitdrukkingrijke tekst zo snel een vaste plaats heef
 
 Download deze catechese of [andere catecheseartikels](/page/katholieke-printerboekjes/) in PDF-formaat:
 
-\[portfolio display\_types=false display\_tags=false include\_tag=catechese-eer-aan-god-in-den-hoge columns=3\]
+

@@ -18,7 +18,7 @@ Hij zei: "Meneer, u kent me niet, maar ik ben de soldaat voor wie uw zoon zijn l
 
 "Hij sprak vaak over u en over uw liefde voor kunst." De jongeman reikte nu zijn pak aan. "Ik weet dat het niet veel waard is en ik ben geen goed kunstenaar, maar ik denk dat uw zoon gewild zou hebben dat u dit kreeg."
 
-\[caption id="attachment\_3712" align="alignright" width="187"\]![](images/portrait-of-a-young-man-187x300.jpg) Portrait of a Young Man 1910, Denman Waldo Ross, Museum of Fine Arts, Boston\[/caption\]
+![](images/portrait-of-a-young-man-187x300.jpg) Portrait of a Young Man 1910, Denman Waldo Ross, Museum of Fine Arts, Boston
 
 De vader opende het pak. Het was een portret van zijn zoon, geschilderd door de jongeman. Hij staarde in bewondering naar het schilderij, waarin de soldaat de persoonlijkheid van zijn zoon treffend tot uitdrukking had gebracht.
 

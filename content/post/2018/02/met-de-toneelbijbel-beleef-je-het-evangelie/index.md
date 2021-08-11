@@ -20,7 +20,7 @@ De toneelbewerking van het Evangelie is niet bedoeld om uit te voeren voor groot
 
 De uitgave is [beschikbaar in boekvorm](http://toneelbijbel.gelovenleren.net/) (aan kostprijs) en de afzonderlijke verhalen kan je [gratis downloaden](/page/bijbeltoneel/) (met uitzondering van het verrijzenisverhaal).
 
-\[caption id="attachment\_3875" align="alignright" width="247"\][![](images/cover-3d-247x300.png)](http://toneelbijbel.gelovenleren.net/) De Toneelbijbel\[/caption\]
+[![](images/cover-3d-247x300.png)](http://toneelbijbel.gelovenleren.net/) De Toneelbijbel
 
 Dit zijn de gebeurtenissen die je met De Toneelbijbel kan beleven:
 

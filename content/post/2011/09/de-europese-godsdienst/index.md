@@ -10,7 +10,7 @@ coverImage: "image01.jpg"
 
 De promotiecampagne van Geert Lernouts boek ter verdediging van het secularisme loopt op volle toeren, met vrije tribunes in [De Morgen](/2011/08/31/secularisme-ter-ziele/) en nu ook in [De Standaard](http://www.demorgen.be/dm/nl/2461/De-Gedachte/article/detail/1312031/2011/08/31/God-heeft-het-druk-de-laatste-tijd.dhtml). Hij trekt ten strijde tegen het christelijk (politkek) fundamentalisme in de VS, maar of het daarbij blijft...
 
-\[caption id="attachment\_137" align="alignleft" width="150" caption="Fundamentalisme"\][![](/wp-content/uploads/2014/12/image00.jpg?w=150 "image00")](/wp-content/uploads/2014/12/image00.jpg)\[/caption\]
+[![](images/image00.jpg?w=150 "image00")](images/image00.jpg)
 
 Enkele opmerkelijke citaten uit zijn laatste stuk, over christelijk fundamentalisme in de VS: “Zij geloven echt dat de wereld zesduizend jaar geleden geschapen is, dat Jezus uit de doden is opgestaan, dat homoseksualiteit een van de zwaarste zonden is en dat het einde der tijden nabij is” en “zij vinden dat iedereen het recht heeft om wapens te dragen, die net zo weinig in evolutie geloven als in de opwarming van de aarde of in sociale rechtvaardigheid, die na lang talmen eindelijk de rassengelijkheid hebben aanvaard, maar die nog altijd moeite hebben met vrouwenrechten of het homohuwelijk.”
 
@@ -18,7 +18,7 @@ Daarbij stelt hij: “dit christendom heeft heel weinig te maken met Europese go
 
 Ik vermoed dat veel goedmenende katholieken die Lernouts stukjes lezen zullen beamen: ja, gelukkig zijn wij, in Europa, helemaal niet zo gek als die Amerikanen. Klinkt leuk, maar is het je opgevallen wat een ratjetoe van ‘fundamentalismen’ hij opsomt?
 
-\[caption id="attachment\_138" align="alignleft" width="68" caption="Verrijzenis (El Greco)"\][![](/wp-content/uploads/2014/12/image01.jpg?w=68 "image01")](/wp-content/uploads/2014/12/image01.jpg)\[/caption\]
+[![](images/image01.jpg?w=68 "image01")](images/image01.jpg)
 
 In zijn opsomming van ‘fundamentalistische geloofsartikelen’ zet Lernout de verwerping van de opwarming van de aarde en de vrije wapendracht zonder verpinken naast de verrijzenis van Jezus Christus. Niet onbewust, vanzelfsprekend, want hij zal ook wel weten dat vrije wapendracht of klimaatverandering nu niet meteen kernpunten zijn van de “Europese godsdienst”, waaronder we voorlopig in brede zin het katholicisme/protestantisme zullen verstaan, maar de verrijzenis van Christus is dat natuurlijk juist wel. Als er één geloofspunt is waarover katholieken en protestanten, zowel in Europa als in Amerika, op  één lijn zouden moeten staan, is dat toch het geloof in de verrijzenis?
 

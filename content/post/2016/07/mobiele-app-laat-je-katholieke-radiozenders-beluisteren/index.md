@@ -10,7 +10,7 @@ tags:
 coverImage: "Katholieke-Radio-tablet.png"
 ---
 
-\[caption id="attachment\_2527" align="alignright" width="179"\][![Katholieke Radio](images/Katholieke-Radio-179x300.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio\[/caption\]
+[![Katholieke Radio](images/Katholieke-Radio-179x300.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio
 
 Nu ik toch op dreef ben met XDK, heb ik ook maar de app Katholieke Radio een nieuwe beurt gegeven. De [bijhorende website](http://radio.gelovenleren.net/) waar je kan zappen tussen katholieke radiozenders bestond al, en is nu ook beschikbaar als [app op Android](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio).
 

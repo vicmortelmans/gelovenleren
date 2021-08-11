@@ -1,12 +1,17 @@
 ---
 title: "Katholiek Kwartetten"
 date: "2015-04-22"
+categories: "tools"
 coverImage: "drie-kaarten.png"
 ---
 
+Katholiek Kwartetten is een **klassiek kwartetspel** met als thema het katholieke geloof. Het spel is gekoppeld aan een [**website**](http://kwartet.gelovenleren.net/ "Katholiek Kwartetten") via een unieke QR-code op de rugzijde van elke kaart. 
+
+<!--more-->
+
 ![Katholiek Kwartetten](images/het-spel1-150x150.png)
 
-Katholiek Kwartetten is een **klassiek kwartetspel** met als thema het katholieke geloof. Het spel is gekoppeld aan een [**website**](http://kwartet.gelovenleren.net/ "Katholiek Kwartetten") via een unieke QR-code op de rugzijde van elke kaart. De website bevat **catechetisch materiaal** om het onderwerp van de kaart te verdiepen. Bovendien kan je op de website de [**online spelvariant**](/blog/katholiek-kwartetten-met-online-kwis "Kwatholiek Kwartetten met online kwis") activeren om God in je spel te betrekken!
+De website bevat **catechetisch materiaal** om het onderwerp van de kaart te verdiepen. Bovendien kan je op de website de [**online spelvariant**](/blog/katholiek-kwartetten-met-online-kwis "Kwatholiek Kwartetten met online kwis") activeren om God in je spel te betrekken!
 
 ### Het kwartetspel zelf afdrukken
 

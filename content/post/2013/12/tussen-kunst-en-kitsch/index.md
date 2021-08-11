@@ -12,4 +12,4 @@ Staat jullie kerststalletje er al? Bij ons staan er twee. Eentje van karton waar
 
 Maar wat vind je van dit stalletje? Het summum van minimalistisch design. Of voor wie er problemen van zou maken of kindje Jezus al dan niet blauwe ogen heeft, maar dat vind ik zelf nogal vergezocht:
 
-\[caption id="attachment\_639" align="aligncenter" width="450"\][![De eenvoudigste kerststal ter wereld](images/3023356slideemilievoirinnativity4.jpg)](http://www.fastcodesign.com/3023356/the-simplest-nativity-scene-weve-ever-seen) De eenvoudigste kerststal ter wereld\[/caption\]
+[![De eenvoudigste kerststal ter wereld](images/3023356slideemilievoirinnativity4.jpg)](http://www.fastcodesign.com/3023356/the-simplest-nativity-scene-weve-ever-seen) De eenvoudigste kerststal ter wereld

@@ -21,4 +21,4 @@ Dan lééft onze ziel, ook al verkeert zij in druk en duister. Dan zal in droefh
 
 _Willem Grossouw_
 
-[Over Innerlijk Leven](http://www.gelovenleren.net/2014/11/27/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)
+[Over Innerlijk Leven](/blog/een-jaar-lang-innerlijk-leven-op-geloven-leren/) - [Abonneren per email (dagelijks van 30/11/2014 tot 29/11/2015)](http://eepurl.com/9P3DT)

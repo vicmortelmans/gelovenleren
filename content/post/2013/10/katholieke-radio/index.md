@@ -12,4 +12,4 @@ coverImage: "katholiekeradiopromo.png"
 
 Alle feedback is welkom, maar merk op dat de website enkel werkt op recente browsers.
 
-\[caption id="attachment\_553" align="aligncenter" width="180"\][![Katholieke Radio](images/katholiekeradiopromo.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio\[/caption\]
+[![Katholieke Radio](images/katholiekeradiopromo.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) Katholieke Radio

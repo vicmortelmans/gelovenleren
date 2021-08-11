@@ -24,7 +24,7 @@ Ongewild hebben de Femen-activista's de gelegenheid geschapen waarin aartsbissch
 
 "Vrede laat Ik u; mijn vrede geef Ik u", klinkt het elke zondag in de kerk, en ik heb me al vaak afgevraagd waar die 'vrede' precies voor staat.
 
-\[caption id="" align="aligncenter" width="300"\]![Mgr. Leonard kust een lege flacon in de vorm van de H.Maagd na de aanslag](images/leonard1-300x225.jpg) "Nieuwsfoto van de dag" (Anton de Wit)\[/caption\]
+![Mgr. Leonard kust een lege flacon in de vorm van de H.Maagd na de aanslag](images/leonard1-300x225.jpg) "Nieuwsfoto van de dag" (Anton de Wit)
 
 In een wereld beheerst door vluchtige opinies lijkt de vrede bereikt te worden als de tegenstrijdigheid van opinies gesmoord kan worden in een compromis waarin iedereen min of meer zijn eigen positie kan handhaven. Of het gaat over een flauw debat in de krant, over politiek overleg of over oplossing van oorlogsconflicten: we zoeken een manier waarop iedereen een beetje kan scoren en beschouwen het conflict als van de baan. De mening is herleid tot marketing, maar toch levert deze eenpak een pragmatisch oplossing om tot een bepaalde vorm van vrede te komen, en wel op een beschaafde manier (wat sommige actiegroepen vreemd is).
 

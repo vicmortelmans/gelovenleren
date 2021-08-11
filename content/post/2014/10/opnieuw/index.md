@@ -8,7 +8,7 @@ tags:
 coverImage: "jansen1.jpg"
 ---
 
-\[caption id="attachment\_1140" align="alignright" width="246"\]![Cornelius Jansenius, professor aan de KULeuven en bisschop van Ieper](images/jansen1.jpg) Cornelius Jansenius, professor aan de KULeuven en bisschop van Ieper\[/caption\]
+![Cornelius Jansenius, professor aan de KULeuven en bisschop van Ieper](images/jansen1.jpg) Cornelius Jansenius, professor aan de KULeuven en bisschop van Ieper
 
 Van dit artikel had ik al een opzetje gemaakt, maar het ging helemaal de verkeerde kant op. Ik mag opnieuw beginnen. Mijn insteek was het jansenisme. Het woord had een paar keer mijn pad gekruist in lezingen en artikels en hoemeer ik erover begon op te zoeken, hoe minder ik de achterliggende mengelmoes van spiritualiteit, theologie, ideologie en politiek kon begrijpen. Een kleine oefening… Vind jij dat de bisschoppen meer beslissingsmacht moeten krijgen, los van Rome? Vind jij dat de biecht een zaak moet zijn van oprecht berouw en niet ingegeven vanuit angst voor een straffende God? Vind jij dat de Kerk zich best niet teveel bemoeit met zaken die de burgerlijke overheid regelt? Lees jij wel eens graag een stukje Augustinus? Vind jij jezuïeten soms nogal rare geestelijken? Zoja, welkom bij het jansenisme, maar weet wel: eigenlijk zijn het verkapte calvinisten!
 

@@ -41,7 +41,7 @@ De statische en dynamische moraalleer is gedurende twee millennia theologisch on
 
 ### De kat van Schrödinger
 
-\[caption width="220" id="attachment\_3325" align="alignright"\]![](images/220px-Schrödinger_cat.png) De kat van Schrödinger\[/caption\]
+![](images/220px-Schrödinger_cat.png) De kat van Schrödinger
 
 De mechanica kent tenslotte nog de quantummechanica. Misschien ken je het gedachtenexperiment van Schrödinger, die een beetje de draak steekt met het onzekerheidsprincipe van Heisenberg? Hij sluit een kat op in een doos samen met een recipiënt gif dat geactiveerd wordt door het verval van een elementair deeltje. Na verloop van tijd zijn er verschillende mogelijkheden: ofwel is het radioactief materiaal vervallen, waardoor het mechanisme in werking treedt en de kat komt te sterven, ofwel is er niks gebeurd. Vermits volgens de quantummechanica de toestand van het deeltje onmeetbaar is, zegt hij, is de kat **tegelijk dood en levend** zolang de doos gesloten blijft.
 

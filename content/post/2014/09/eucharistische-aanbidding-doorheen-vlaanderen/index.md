@@ -32,6 +32,6 @@ Ken je een aanbiddingsuur dat nog niet op de kaart staat, kan dat via dit formul
 
 Je kan ook evenementen toevoegen en zelfs wijzigen, door gebruik te maken van de twee ikoontjes die rechts onderaan het scherm verschijnen.
 
-\[caption id="attachment\_1040" align="aligncenter" width="660"\][![Aanbidding in Vlaanderen](images/aanbiddinginvlaanderenradiomaria.png)](http://adoremus.maptiming.com/#50.841098,4.725889,12z,681px/all/location/sint-michael-en-renildiskerk-radio-maria-sint-reneldisplein-23-leuven-belgium) Aanbidding in Vlaanderen\[/caption\]
+[![Aanbidding in Vlaanderen](images/aanbiddinginvlaanderenradiomaria.png)](http://adoremus.maptiming.com/#50.841098,4.725889,12z,681px/all/location/sint-michael-en-renildiskerk-radio-maria-sint-reneldisplein-23-leuven-belgium) Aanbidding in Vlaanderen
 
 (1) Communio, 2013 nr. 2 "Rituelen: cultuurfilosofisch bekeken"

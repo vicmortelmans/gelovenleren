@@ -13,17 +13,17 @@ tags:
 coverImage: "lijdensverhaaltoneel-e1423688975580.png"
 ---
 
-\[caption id="attachment\_2688" align="alignleft" width="209"\][![](images/synopsis-van-het-lijdensverhaal-in-toneelvorm.pdf-209x300.png)](/portfolio/lijdensverhaal/) Het lijdensverhaal in toneelvorm\[/caption\]
+[![](images/synopsis-van-het-lijdensverhaal-in-toneelvorm.pdf-209x300.png)](/portfolio/lijdensverhaal/) Het lijdensverhaal in toneelvorm
 
 Voor de passieweek heeft Geloven Leren een [reeks bijzondere publicaties](/page/bijbeltoneel/) in petto: het lijdensverhaal gepresenteerd als toneelstuk. De basis is de synopsis van de vier Evangelies volgens Mattheus, Markus, Lukas en Johannes. In de synopsis worden de verhaallijnen van de Evangelies samengesmolten tot een enkele verhaallijn die alle elementen bevat uit de afzonderlijke Evangelies en die uit overlappende verhaallijnen degene kiest die het meest geschikt is voor dramatisering. Zowat alle dialogen zijn reeds uitgeschreven door de evangelisten, dus de omzetting naar toneel is rechttoe-rechtaan en het resultaat is een toneelscript dat haast helemaal is samengesteld uit letterlijke bijbelfragmenten. De publicatie geeft bij elk element van de dialoog en bij elke regieaanwijzing de referentie naar de brontekst.
 
-\[caption id="attachment\_4154" align="alignright" width="300"\][![](images/De-Passie-300x63.png)](https://www.depassie.be/) Reclame voor een echt passiespel\[/caption\]
+[![](images/De-Passie-300x63.png)](https://www.depassie.be/) Reclame voor een echt passiespel
 
 De toneelbewerking van het Evangelie is niet bedoeld om als passiedrama uit te voeren voor groot publiek, maar aarzel niet om bij gelegenheid samen met de kinderen thuis, in de catechesegroep of in de klas een of meerdere bedrijven uit te voeren om het bijbelverhaal wat leven in te blazen. Of neem het stuk zelf bij de hand als alternatieve bijbellezing!
 
 Slechts op een plaats is noodgedwongen een element aan de dialoog toegevoegd dat niet alsdusdanig in het evangelie is opgenomen in de passage waar Jezus de eucharistie instelt! Er staat geschreven, bijvoorbeeld in Marcus 14:22, _"Terwijl ze aten, nam hij een brood,_ _sprak het zegengebed uit__, brak het brood, deelde het uit en zei: ‘Neem hiervan, dit is mijn lichaam.’"_ Alle elementen van het verhaal staan in de bijbel neergeschreven als dialoog en zijn dus letterlijk over te nemen, maar het zegengebed dat Jezus uitsprak niet. Erg veel moeite vergt het echter niet om te achterhalen welk gebed Jezus uitsprak, want [joden bidden nog steeds hetzelfde psalmgebed voor de maaltijd](http://www.joodsleven.nl/Encyclopedie/Kasjroet/Kasjroet-18.htm):
 
-\[caption id="attachment\_867" align="alignright" width="300"\][![Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes](images/SFA02_1002050_01_X-300x230.jpg)](http://www.geheugenvannederland.nl/?/nl/zoekresultaten/pagina/1/passiespelen/%28passiespelen%29/&colcount=0&wst=passiespelen) Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes\[/caption\]
+[![Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes](images/SFA02_1002050_01_X-300x230.jpg)](http://www.geheugenvannederland.nl/?/nl/zoekresultaten/pagina/1/passiespelen/%28passiespelen%29/&colcount=0&wst=passiespelen) Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes
 
 _"Gezegend bent U, Eeuwige onze God, Koning van de wereld, die brood voortbrengt uit de aarde."_ (voor het eten van brood)
 

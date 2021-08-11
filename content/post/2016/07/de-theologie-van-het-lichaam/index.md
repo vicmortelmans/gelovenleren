@@ -87,7 +87,7 @@ Christus heeft zich niet verenigd met een vrouw, maar zijn bruid zijn wij. Door 
 
 > De [redevoering](https://w2.vatican.va/content/john-paul-ii/nl/speeches/1985/may/documents/hf_jp-ii_spe_19850517_popolazione-anversa.html) die paus Johannes-Paulus uitsprak op de Grote Markt van Antwerpen, in het Nederlands, op 17 mei 1985, bij zijn bezoek aan de Nederlanden.
 
-\[embed\]https://gelovenleren.net/wp-content/uploads/2016/06/Paus-in-Antwerpen-17-mei-1985-Grote-Markt.mp3\[/embed\]
+[Paus-in-Antwerpen-17-mei-1985-Grote-Markt.mp3](https://storage.googleapis.com/geloven-leren/audiobooks/Paus-in-Antwerpen-17-mei-1985-Grote-Markt.mp3)
 
 > Dit is een meer uitgebreide reportage van het bezoek aan België.
 

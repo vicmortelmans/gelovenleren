@@ -8,13 +8,13 @@ coverImage: "thumb_jp2a16495.jpeg"
 
 Volgende zondag begint de Advent en dus een nieuw kerkelijk jaar.
 
-Op deze website verschijnt vanaf zondag 30 november 2014 gedurende het ganse liturgische jaar dagelijks een artikel uit het meditatieboek "Innerlijk Leven" van Willem Grossouw. Een overzicht van die artikels vindt u "[onder de categorie "Innerlijk Leven"](/categories/innerlijk-leven/)".
+Op deze website verschijnt vanaf zondag 30 november 2014 gedurende het ganse liturgische jaar dagelijks een artikel uit het meditatieboek "Innerlijk Leven" van Willem Grossouw. Een overzicht van die artikels vindt u [onder de categorie "Innerlijk Leven"](/categories/innerlijk-leven/).
 
 De artikels zijn opnieuw gebundeld en [beschikbaar als eboek](/portfolio/innerlijk-leven/).
 
 Innerlijk Leven
 
-De oplettende lezer van dit blog heeft de voorbije jaren reeds gemerkt dat citaten uit dit boek regelmatig in artikels verschijnen. Digitale uitgaven van de tekst als e-boek (epub) zijn bovendien al geruime tijd te downloaden bij de "[Katholieke e-boeken](/e-boeken/ "Katholieke e-boeken")".
+De oplettende lezer van dit blog heeft de voorbije jaren reeds gemerkt dat citaten uit dit boek regelmatig in artikels verschijnen. Digitale uitgaven van de tekst als e-boek (epub) zijn bovendien al geruime tijd te downloaden bij de "[Katholieke e-boeken](/page/e-boeken/ "Katholieke e-boeken")".
 
 De artikels uit "Innerlijk Leven" verschijnen dagelijks en lopen samen met de kalender van het liturgische jaar. Omdat het oorspronkelijke boek verscheen in de late jaren '40 van vorige eeuw, wordt de kalender gebruikt van wat tegenwoordig de 'buitengewone vorm' van de latijnse ritus heet, de tridentijnse ritus. De meditaties verwijzen regelmatig naar de teksten uit het missaal, maar de inhoud komt ook zonder vertrouwdheid met deze ritus volledig tot zijn recht.
 

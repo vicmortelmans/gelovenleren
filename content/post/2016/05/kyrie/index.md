@@ -52,19 +52,19 @@ Dit zijn enkele vaak gebruikte toonzettingen van het Kyrie:
 
  
 
-\[caption id="attachment\_2383" align="aligncenter" width="605"\][![Voor zondagen in de Paastijd, uit het Kyriale I, Lux et Origo](images/image05.png)](http://www.gregorianbooks.com/p.php?p=YTnQ8JvhBKhnE,YTKnBzUj_K3Ic,LU16%7C0%7C547%7C664%7C360) Voor zondagen in de Paastijd, uit het Kyriale I, Lux et Origo\[/caption\]
+[![Voor zondagen in de Paastijd, uit het Kyriale I, Lux et Origo](images/image05.png)](http://www.gregorianbooks.com/p.php?p=YTnQ8JvhBKhnE,YTKnBzUj_K3Ic,LU16%7C0%7C547%7C664%7C360) Voor zondagen in de Paastijd, uit het Kyriale I, Lux et Origo
 
  
 
-\[caption id="attachment\_2384" align="aligncenter" width="607"\][![Voor feesten, uit het Kyriale VIII, De Angelis](images/image01.png)](http://www.gregorianbooks.com/p.php?p=MPswy/kyrie8_2013-11-01.mp3,GRx28%7C0%7C750%7C754%7C360,GRx29%7C0%7C104%7C750%7C208) Voor feesten, uit het Kyriale VIII, De Angelis\[/caption\]
+[![Voor feesten, uit het Kyriale VIII, De Angelis](images/image01.png)](http://www.gregorianbooks.com/p.php?p=MPswy/kyrie8_2013-11-01.mp3,GRx28%7C0%7C750%7C754%7C360,GRx29%7C0%7C104%7C750%7C208) Voor feesten, uit het Kyriale VIII, De Angelis
 
  
 
-\[caption id="attachment\_2385" align="aligncenter" width="609"\][![Voor zondagen in de tijd doorheen het jaar, uit Kyriale XI, Orbis Factor](images/image03.png)](http://www.gregorianbooks.com/p.php?p=MPswy/kyrie11.mp3,MPswy/kyrie11_no_organ.mp3,GRx38%7C0%7C854%7C756%7C256,GRx39%7C0%7C112%7C750%7C232) Voor zondagen in de tijd doorheen het jaar, uit Kyriale XI, Orbis Factor\[/caption\]
+[![Voor zondagen in de tijd doorheen het jaar, uit Kyriale XI, Orbis Factor](images/image03.png)](http://www.gregorianbooks.com/p.php?p=MPswy/kyrie11.mp3,MPswy/kyrie11_no_organ.mp3,GRx38%7C0%7C854%7C756%7C256,GRx39%7C0%7C112%7C750%7C232) Voor zondagen in de tijd doorheen het jaar, uit Kyriale XI, Orbis Factor
 
  
 
-\[caption id="attachment\_2386" align="aligncenter" width="607"\][![Voor zondagen van de Advent en de Veertigdagentijd, uit Kyriale XVII (melodie)](images/image00.png)](http://www.gregorianbooks.com/p.php?p=GRx56|0|145|750|359) Voor zondagen van de Advent en de Veertigdagentijd, uit Kyriale XVII (melodie)\[/caption\]
+[![Voor zondagen van de Advent en de Veertigdagentijd, uit Kyriale XVII (melodie)](images/image00.png)](http://www.gregorianbooks.com/p.php?p=GRx56|0|145|750|359) Voor zondagen van de Advent en de Veertigdagentijd, uit Kyriale XVII (melodie)
 
  
 

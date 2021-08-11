@@ -19,4 +19,4 @@ Ik legde uit wat hier gebeurt. Het is Jezus die de leerlingen vanalles wil leren
 
 _"Dat is net als_ [_ROX_](https://www.ketnet.be/kijken/rox)_!"_, kreeg ik terstond te horen. Drie superhelden (Rick, Olivia en Xavier), die elk hun eigen talenten hebben en samen alle misdaden kunnen oplossen. Ik had er niks meer aan toe te voegen...
 
-\[caption id="attachment\_511" align="aligncenter" width="360"\]![GOD komt eraan!](images/trinity-signum.png) GOD komt eraan!\[/caption\]
+![GOD komt eraan!](images/trinity-signum.png) GOD komt eraan!

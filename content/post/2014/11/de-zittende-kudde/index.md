@@ -12,17 +12,17 @@ Onlangs viel ik in verbazing. Ik was bijeen met een dertigtal mensen die in de p
 
 Niet dat God uiterlijk vertoon nodig heeft om ons te aanhoren ([Lc 11:37-41](http://bijbel.net/wb/?p=page&i=66276,66293 "Aanklacht tegen farizeeën en wetgeleerden")), maar als je met een vriend in gesprek gaat, neem je toch ook een houding aan die de wederzijdse aandacht beklemtoont: je neemt dezelfde positie aan en kijkt mekaar in de ogen. Is het dan niet goed je een houding aan te meten als je met God in gesprek gaat, ook al kan je Hem niet in de ogen kijken en ook al kan je je niet op dezelfde hoogte plaatsen?
 
-\[caption id="attachment\_1166" align="alignright" width="169"\]![Leuvense studenten houden een sit-in in de jaren zestig... hebben ze het daar geleerd?](images/dsw9_gdc1rcfsn1dsw_louvainlaneuve1.jpg) Leuvense studenten houden een sit-in in de jaren zestig... hebben ze het daar geleerd?\[/caption\]
+![Leuvense studenten houden een sit-in in de jaren zestig... hebben ze het daar geleerd?](images/dsw9_gdc1rcfsn1dsw_louvainlaneuve1.jpg) Leuvense studenten houden een sit-in in de jaren zestig... hebben ze het daar geleerd?
 
 Eenzelfde fenomeen merk ik elke zondag in de kerk. We hebben een nogal gemengd publiek van gelovigen, waardoor niet iedereen dezelfde geplogendheden gewoon is. De Afrikanen richten zich met opstaan en knielen op het missaalgebed. De Vlamingen volgen de "Vlaamse theaterritus" en zitten dus zoveelmogelijk op hun achterste. Ook de priesters staan niet helemaal op één lijn. De ene zegt al direct na het kruisteken "gaat u nu maar zitten", alsof het hem ergert dat we überhaupt (voor hem?) zijn rechtgestaan bij de intrede, en als het aan hem lag bleven we voor de rest van de mis op onze stoel om flink te luisteren naar de mooie teksten die hij voor ons heeft uitgezocht. Van de andere priester merk je dat hij probeert om tenminste de misdienaars ertoe aan te zetten recht te staan en te knielen op de momenten dat dit voor het gebed van het missaal gepast is.
 
 Eigenlijk heb ik wel eens zin om na de mis een kleine enquete te houden, om te peilen naar de diepere beleving van de gebedshoudingen bij de gelovigen, met volgende meerkeuzevragen (meerdere goede antwoorden mogelijk):
 
-**\[voor de Afrikanen\] U bent tijdens de gebeden opgestaan en hebt tijdens de consecratie geknield, waarom was dat?**
+** U bent tijdens de gebeden opgestaan en hebt tijdens de consecratie geknield, waarom was dat?**
 
 **☐** omdat we het nooit anders gedaan hebben! **☐** omdat onze ouders van jullie nonkel pater goeie manieren hebben geleerd. **☐** omdat wij hopen dat er dan ook nog wat gezongen en gedanst zal worden! **☐** omdat we nog niet even ver ontwikkeld zijn in ons geloof als jullie **☐** _come on, Jezus is there, right in front of us!_
 
-**\[voor de Vlamingen\] U bent tijdens de gebeden blijven neerzitten en slechts voor de consecratie even opgestaan, waarom was dat?**
+** U bent tijdens de gebeden blijven neerzitten en slechts voor de consecratie even opgestaan, waarom was dat?**
 
 **☐** omdat ik al veel verder ontwikkeld ben in mijn geloof dan die Afrikanen **☐** omdat ik vijftig jaar geleden het recht heb bevochten om voor niemand meer te knielen! **☐** omdat Jezus mijn vriend is en bij vrienden thuis mag ik ook altijd op een stoel zitten. **☐** omdat ik van de bisschop een indulgentie heb vanwege mijn hoge leeftijd **☐** omdat ik solidair ben met de oude mevrouw die het vorige antwoord aankruiste **☐** ik wilde wel opstaan, maar ik durf niet als ik de enige ben
 

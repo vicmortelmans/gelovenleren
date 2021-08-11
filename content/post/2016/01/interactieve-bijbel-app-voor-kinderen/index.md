@@ -17,4 +17,4 @@ Er kwam een tip binnen over een goeie [bijbel-app voor kinderen](https://www.bib
 
 In een veertigtal verhalen doorkruis je de belangrijkste verhalen van het Oude en het Nieuwe Testament van de Bijbel. Elk verhaal is geillustreerd en je kan kiezen of je de tekst zelf voorleest of de app laten voorlezen. Bovendien bevat elk verhaal een kwis of een spelletje waarmee je punten kan verdienen om toegang te krijgen tot "de wapenuitrusting van God" of "de gaven van de Heilige Geest".
 
-\[caption id="attachment\_2050" align="alignnone" width="300"\]![Isaac gered van het offer](images/Screenshot_2016-01-12-20-37-02-300x169.png) Isaac gered van het offer\[/caption\]
+![Isaac gered van het offer](images/Screenshot_2016-01-12-20-37-02-300x169.png) Isaac gered van het offer

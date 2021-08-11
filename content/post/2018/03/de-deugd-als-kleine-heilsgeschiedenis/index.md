@@ -22,7 +22,7 @@ Het is prachtig hoe de ganse heilsgeschiedenis van de mensheid op die manier tot
 
 Jeremia geeft in dat korte zinnetje een perfecte definitie van wat een **deugd** is!
 
-\[caption id="attachment\_4306" align="alignright" width="225"\][![](images/goddelijke-deugden-225x300.jpeg)](http://prentencatechismus.org/uncategorized/de-deugden-de-goddelijke-deugden/) De goddelijke deugden: geloof, hoop en liefde\[/caption\]
+[![](images/goddelijke-deugden-225x300.jpeg)](http://prentencatechismus.org/uncategorized/de-deugden-de-goddelijke-deugden/) De goddelijke deugden: geloof, hoop en liefde
 
 De [catechismus](https://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1&id=1285) bepaalt als volgt de deugd:
 

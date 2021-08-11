@@ -10,7 +10,7 @@ coverImage: "healing-the-blind-man-by-edy-legrand-jpg-885×885-.png"
 
 Vandaag leerde ik weer iets bij tijdens het voorlezen aan de kinderen. In het bijbelverhaal uit het lectionarium geneest Jezus een man die blind was vanaf zijn geboorte door zijn ogen met slijk in te smeren. Ik heb nooit begrepen wat dat slijk erbij kwam doen. Bij andere genezingen kwamen er toch geen hulpmiddelen aan te pas? Wat is er dan bijzonder aan dit verhaal?
 
-\[caption id="attachment\_3618" align="alignright" width="300"\]![](images/genezing-van-de-blinde-300x300.jpg) Legrand Edy La Bible- Nouvelle traduction de François Amiot et Robert Tamisier Illustrée par Edy Legrand \_ Club bibliophile de France et club du livre -1950\[/caption\]
+![](images/genezing-van-de-blinde-300x300.jpg) Legrand Edy La Bible- Nouvelle traduction de François Amiot et Robert Tamisier Illustrée par Edy Legrand \_ Club bibliophile de France et club du livre -1950
 
 Het is om te beginnen een lang verhaal. De pastoor suggereerde zelfs dat we tijdens de lezing mochten gaan zitten, als het te vermoeiend zou zijn recht te blijven staan. De genezing is niet zozeer de kern van het verhaal, wel de _va-et-vient_ die zich bij het huis van de farizeeën voltrekt. Zij willen van iedereen gehoord hebben wat er nu precies is gebeurd met die blinde man, maar willen niet aannemen dat Jezus een man van God is, terwijl iedereen dat juist wel beweert. Uiteindelijk zetten ze ook de man die blind was aan de deur, en wel met de beschuldiging dat hijzelf een zondaar is, omdat zijn blindheid -volgens hen- een straf van God moet zijn.
 

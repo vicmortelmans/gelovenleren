@@ -10,7 +10,7 @@ coverImage: "paulinathens.jpg"
 
 De pastorale strategie van de Paus in zijn voormalige rol van aartsbisschop was "[naar buiten te gaan](http://nikolaassintobin.blogspot.be/2013/03/de-pastorale-strategie-van-kardinaal.html)". Naar buiten, dat is waar de rand-gelovigen en de onverschilligen zijn. Een Kerk die op zichzelf geplooid is, wordt immers snel oud. Mooi zo. Maar wat moeten we daar dan zeggen of doen, als we buiten staan? Dat is nogal vaag...
 
-\[caption id="attachment\_1872" align="alignleft" width="300"\]![Saint Paul Preaching on the Areopagus (Leonoard Porter, 2010)](images/paulinathens-300x225.jpg) Saint Paul Preaching on the Areopagus (Leonoard Porter, 2010)\[/caption\]
+![Saint Paul Preaching on the Areopagus (Leonoard Porter, 2010)](images/paulinathens-300x225.jpg) Saint Paul Preaching on the Areopagus (Leonoard Porter, 2010)
 
 Een gebruiksklare handleiding voor evangelisatie is er niet. Als er één gouden regel is, dan is het in te spelen op de omstandigheden, maar toch direct _to the point_ te komen. De apostel Paulus was daar een krak in. Van hem vinden we in het boek _Handelingen van de apostelen_ ook het enige uitgeschreven verslag hoe de apostelen ongelovigen evangeliseerden. Veruit de meeste toespraken of brieven zijn immers gericht aan joden of aan reeds bekeerde christenen.
 

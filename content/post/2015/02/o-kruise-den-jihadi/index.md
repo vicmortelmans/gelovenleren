@@ -12,7 +12,7 @@ tags:
 coverImage: "DSC_0116.jpg"
 ---
 
-\[caption id="attachment\_726" align="alignright" width="150"\]![Gedachtenisprentje van martelaarschap](images/picture11-150x150.jpg) Gedachtenisprentje van martelaarschap\[/caption\]
+![Gedachtenisprentje van martelaarschap](images/picture11-150x150.jpg) Gedachtenisprentje van martelaarschap
 
 Moslimstrijders worden vereerd als martelaren voor het geloof. Daarmee lijken ze sterk op de talrijke christelijke martelaren die onze heiligenkalender bevolken. Of zijn ze toch net een tikje anders?
 
@@ -24,11 +24,11 @@ Groter dan deze overeenkomsten is echter het verschil in de manier waarop iemand
 
 Het christendom heeft [ook zijn gewelddadige hoofdstukken](http://www.nieuwwij.nl/interview/karen-armstrong-niets-in-islam-gewelddadiger-christendom/) in de geschiedenis gekend. De wreedheden van de Islamitische Staat lijken op het eerste zicht hun gelijke in het christelijke geschiedenisboekje niet te kennen, maar er kan best heel wat [geweld dat gepleegd is vanwege het geloof en dat gerechtvaardigd werd door de kerk](http://www.doorbraak.be/nl/nieuws/de-interne-vijand), uit de geschiedenisboeken zijn weggefilterd.
 
-\[caption id="attachment\_728" align="alignleft" width="205"\]![Singhet ende weset vro +](images/DSC_0114-205x300.jpg) Singhet ende weset vro +\[/caption\]
+![Singhet ende weset vro +](images/DSC_0114-205x300.jpg) Singhet ende weset vro +
 
 Ideologisch staat één en ander niet zo ver van ons af als we wel zouden denken. Ik ken een heel mooi lied dat, als je de tekst leest, precies hetzelfde verhaal weergeeft als dat van de moeder van de gesneuvelde syriëstrijder die in witte boerka daarvan kennis geeft. De titel is "O Kruise den Vlaming" en de tekst vind je op de [website van de Chiro](http://chiro.leefdaal.com/php-form/liedjes_detail2.php?recnr=610). Het beknopte verhaal: de Kerk wordt bedreigd (in case: door de Franse bezetter); jonge Vlamingen (geradikaliseerd?) nemen het geweer op en trekken met de zegen van hun moeder ten strijde; allen sneuvelen en de eenzame moeder is getroost dat haar zoons de marteldood stierven.
 
-\[caption id="attachment\_727" align="alignright" width="300"\][![O Kruise den Vlaming](images/DSC_0116-300x225.jpg)](images/DSC_0116.jpg) O Kruise den Vlaming\[/caption\]
+[![O Kruise den Vlaming](images/DSC_0116-300x225.jpg)](images/DSC_0116.jpg) O Kruise den Vlaming
 
 De [boerenkrijg](http://historiek.net/de-boerenkrijg/8675/) mag dan al wel meer dan 200 jaar in het verleden liggen, geromantiseerd leeft hij voort in het hart van elke rechtgeaarde katholiek die dit lied [niet zonder emotie](http://theater.uantwerpen.be/etc/page.py?f=2007-04_jg25_nr106_72-75.xml) zal zingen, al is het maar in het besef dat we van uitzonderlijk geluk mogen spreken nooit een soortgelijke situatie te hebben ervaren.
 

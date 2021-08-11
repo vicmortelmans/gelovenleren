@@ -13,7 +13,7 @@ Het gebeurt dat ik het zo'n beetje gehad heb met de klassieke bijbelverhalen. Je
 
 Wit is de kleur (jaja, technisch gezien is het geen kleur, voor dit onderzoek even wel) die het meest voorkomt, met 66 treffers, dichtbij gevolgd door groen, met 60 treffers. Dan komt rood, 30 keer gevonden en verderop zwart, 19 keer. Andere kleuren komen minder vaak voor, of toch niet in betekenisvolle context.
 
-\[caption id="attachment\_2422" align="aligncenter" width="300"\]![Hoogtes en laagtes van het bijbels zieleleven](images/kleuren-in-de-bijbel1-300x300.png) Hoogtes en laagtes van het bijbels zieleleven\[/caption\]
+![Hoogtes en laagtes van het bijbels zieleleven](images/kleuren-in-de-bijbel1-300x300.png) Hoogtes en laagtes van het bijbels zieleleven
 
 Ik heb op eigen houtje uit de zoekresultaten telkens vijf relevante resultaten geselecteerd, en getracht de kleur symbolisch te duiden. Vermits de bijbel het verhaal is van de heilsgeschiedenis van de mens, krijgen de kleuren in die context elk hun eigen rol.
 

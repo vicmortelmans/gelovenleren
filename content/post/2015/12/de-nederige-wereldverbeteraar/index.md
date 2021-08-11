@@ -8,7 +8,7 @@ coverImage: "PeaceonEarth9x16JPG_lg.jpg"
 
 Jaap schreef een [mooi stukje bijeen op Broodje Paap](http://broodjepaap.nl/2015/12/10/over-een-brandende-wereld-en-hoopvolle-katholieken/) over dat we als gelovigen de vreugde en de hoop niet moeten verliezen, ook al lijkt de wereld in brand te staan. Zeker nu niet, in de Advent, wanneer we uitkijken naar de komst van de Heer.
 
-\[caption id="attachment\_1976" align="alignright" width="300"\]![Het mag voor mij best wat minder ambitieus](images/PeaceonEarth9x16JPG_lg-300x169.jpg) Het mag voor mij best wat minder ambitieus\[/caption\]
+![Het mag voor mij best wat minder ambitieus](images/PeaceonEarth9x16JPG_lg-300x169.jpg) Het mag voor mij best wat minder ambitieus
 
 Ik moet zeggen dat me de laatste weken een soortgelijk gevoel overviel als dat Jaap beschrijft, zij het vanuit een andere insteek. Iedereen heeft alle aandacht voor allerhande crisissen om en nabij in de wereld en oplossingen worden uitgewerkt om terug vrede in de wereld te maken. We zijn daar intussen heel bekwaam in, het oplossen van wereldproblemen. We voelen ons daar ook goed bij, zo'n belangrijke projecten te kunnen schragen, zelfs al is het maar door onze aandacht eraan te verlenen. En als de wereldvrede als eens net iets te hoog gegrepen is, geen nood, dan nemen we toch gewoon het klimaat even onder handen!
 

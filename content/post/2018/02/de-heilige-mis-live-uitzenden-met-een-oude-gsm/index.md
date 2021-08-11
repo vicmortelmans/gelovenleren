@@ -47,16 +47,16 @@ Om alle onderdelen aan mekaar te hangen zal je hier of daar nog wel wat verloops
 
 Echt veel keuze heb je niet om te gaan streamen. Er zijn heel wat professionele aanbieders, maar daar betaal je maandelijkse abonnementskosten die snel oplopen. Zelfs YouTube is geen voor de hand liggende optie, want voor je kan gaan streamen moet je al beschikken over een videokanaal met meer dan 25 abonnees. Eigenlijk blijft enkel Facebook over als je meteen aan de slag wil. Je maakt best een pagina aan voor je parochie en via de Facebook-app [Paginabeheer](https://play.google.com/store/apps/details?id=com.facebook.pages.app&hl=nl) kan je met twee klikken "live gaan". Je opname wordt dan live uitgezonden via je pagina op Facebook en na afloop kunnen bezoekers ze ook opnieuw afspelen.
 
-\[appbox googleplay com.facebook.pages.app\]
+
 
 ### Bediening
 
 Vermits de camera-gsm permament wordt opgesteld op een misschien moeilijk bereikbare positie, moet je die vanop afstand kunnen bedienen. Daarvoor bestaan heel handige apps. Op de camera-gsm kan je [TeamViewer Host](https://play.google.com/store/apps/details?id=com.teamviewer.host.market) installeren. De persoon (of personen) die de opnames zullen starten en stoppen, moeten op hun gsm [TeamViewer for Remote Control](https://play.google.com/store/apps/details?id=com.teamviewer.teamviewer.market.mobile&hl=nl) installeren. Als je daarmee inlogt op de camera-gsm kan je die volledig bedienen alsof je hem in je hand hebt.
 
-\[appbox googleplay com.teamviewer.host.market\]
 
-\[appbox googleplay com.teamviewer.teamviewer.market.mobile\]
+
+
 
 Zo, dat zijn onze plannen. Het materiaal ligt gereed. Hopelijk hoor (en zie) je spoedig meer, via [https://www.facebook.com/antonius.heilighart.antwerpen/](https://www.facebook.com/antonius.heilighart.antwerpen/)
 
-\[caption id="attachment\_4220" align="aligncenter" width="169"\]![](images/Screenshot_20180211-085230-169x300.png) Go Live!\[/caption\]
+![](images/Screenshot_20180211-085230-169x300.png) Go Live!

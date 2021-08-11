@@ -21,7 +21,7 @@ En neem er ook nog maar de 'officiele' broertjes bij:
 - [Kerknet - uw parochie](http://kerknet.be/zoek_parochie.php?allbisdom=1)
 - De verbeelding van Antwerpen (tijdelijk buiten dienst)
 
-\[caption id="" align="alignright" width="270"\] Digitaal aggiornamento\[/caption\]
+ Digitaal aggiornamento
 
 Databanken vol praktische informatie om antwoorden te geven op vragen als "Waar is hier de dichtsbijzijnde kerk?", "Waar en wanneer kan ik op zaterdagavond nog naar de mis?", "Is er in de buurt ergens een rozenkrans-gebedsuur?", "Wat voor kapelletje is dat hier?", "Waar kan ik biechten?". Dat is informatie die men altijd en overal bij de hand zou moeten hebben! Niet alleen thuis, als je voor de mis in je eigen parochie verhinderd bent, maar bijvoorbeeld ook als je op uitstap bent, of als je naar een huwelijk moet en de kerk niet weet liggen. Al de antwoorden op die vragen zitten in die sites, maar...
 
@@ -44,4 +44,4 @@ Goed, we  hebben weer even gelucht. Er zijn natuurlijk lichtpuntjes. Kleine of 
 
 En natuurlijk mogen we de inmiddels vaste ster aan het firmament [Radio Maria](http://vicmortelmans.github.io/catholic-radio-stations-html5-phonegap) ook niet vergeten, radio is misschien geen hip medium, maar toch nog steeds heel effectief om aan geloofsverkondiging te doen, en je kan de zender desgewenst _streamen_ op je mobiel :).
 
-\[caption id="" align="alignnone" width="540"\] A brief catholic history of the internet\[/caption\]
+ A brief catholic history of the internet

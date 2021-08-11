@@ -7,7 +7,7 @@ tags:
   - "traditie"
 ---
 
-\[caption id="attachment\_2173" align="alignright" width="225"\]![](images/confession-225x300.jpg) Rara....\[/caption\]
+![](images/confession-225x300.jpg) Rara....
 
 Ben jij ook zo'n gelovige die actief wil deelnemen aan de sacramenten? Die zelf wil bijdragen aan de inhoud en die niet zomaar alles aan de priester wil overlaten? Die wat meer spontaneïteit in de kerk wil? Vind je geen spirituele inspiratie in het 's zondags monotoon declameren van altijd dezelfde gebeden uit de groene losbladige kaftjes met groot-dankgebeden?
 

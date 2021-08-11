@@ -11,7 +11,7 @@ coverImage: "naardemis-tablet2.png"
 
 <table class="widget"><tbody><tr><td><a href="https://play.google.com/store/apps/details?id=net.credomobiel.masses"><img src="images/naardemis.png" alt="naardemis" width="42" height="42"></a></td><td><a href="https://play.google.com/store/apps/details?id=net.credomobiel.masses">Naar de mis (Android)</a> in Vlaanderen</td></tr></tbody></table>
 
-\[caption id="attachment\_2518" align="alignright" width="178"\][![naardemis-phone](images/naardemis-phone-178x300.png)](https://play.google.com/store/apps/details?id=net.credomobiel.masses) naar de mis\[/caption\]
+[![naardemis-phone](images/naardemis-phone-178x300.png)](https://play.google.com/store/apps/details?id=net.credomobiel.masses) naar de mis
 
 Voor de [website "naar de mis"](/blog/kerknet-gehackt-om-naar-de-mis-te-gaan/) heb ik de gegevens over de uren van de zondagsmissen in Vlaanderen van het oude Kerknet geplunderd om ze weer te geven in een gebruiksvriendelijke omgeving. Die website is nu ook verpakt als een [app voor Android](https://play.google.com/store/apps/details?id=net.credomobiel.masses). Als je die op je gsm installeert, moet je nooit meer in paniek schieten als je je afvraagt of je in de buurt nog ergens naar de mis kan gaan.
 

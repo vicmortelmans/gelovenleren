@@ -4,7 +4,7 @@ date: "2015-10-05"
 coverImage: "chinacitywok.png"
 ---
 
-\[caption id="attachment\_1702" align="alignright" width="300"\]![China City Wok te Dordrecht, met in de achtergrond een protestantse kerk](images/chinacitywok-300x159.png) China City Wok te Dordrecht, met in de achtergrond een protestantse kerk\[/caption\]
+![China City Wok te Dordrecht, met in de achtergrond een protestantse kerk](images/chinacitywok-300x159.png) China City Wok te Dordrecht, met in de achtergrond een protestantse kerk
 
 Enkele weken geleden brachten we een aangenaam weekendje door in Dordrecht. Zaterdagavond aten we bij de Chinees net om de hoek van onze B&B. Naast ons zat aan een lange tafel een gezelschap van wel een vijftigtal mensen. Blijkbaar katholieken, want onder hen bevond zich een priester (herkenbaar aan zijn boord, zoals dat hoort) en die voerde met iedereen gesprekken. Al snel bleek dat de aanwezigen leden waren van parochies die net een fusie achter de rug hadden en afscheid hadden moeten nemen van hun eigen parochie en/of kerk.
 

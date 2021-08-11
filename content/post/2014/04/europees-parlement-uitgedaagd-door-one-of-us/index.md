@@ -8,7 +8,7 @@ tags:
 coverImage: "one_of_us_logo1.png"
 ---
 
-\[caption id="attachment\_703" align="alignright" width="223"\][![One of Us](images/one_of_us_logo1.png)](/wp-content/uploads/2014/12/one_of_us_logo1.png) One of Us\[/caption\]
+[![One of Us](images/one_of_us_logo1.png)](images/one_of_us_logo1.png) One of Us
 
 Het zal u misschien ontgaan zijn, maar een burgerinitietief onder de naam "[One of Us](http://www.oneofus.eu/)" heeft gedurende de laatste maanden meer dan 1.7 miljoen handtekeningen van Europese burgers verzameld, om een hoorzitting te verkrijgen in het Europees Parlement over een [voorstel van decreet](http://ec.europa.eu/citizens-initiative/public/documents/1569) met als kernpunt: _"Er zal geen budget worden gereserveerd voor de financiering van activiteiten die menselijke embryo's vernietigt, of waarbij hun vernietiging verondersteld kan worden."_ De voornaamste toepassingsgebieden zijn wetenschappelijk onderzoek en ontwikkelingshulp.
 

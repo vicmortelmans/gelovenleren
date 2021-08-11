@@ -114,7 +114,7 @@ En eigenlijk, nu ik toch zo ver ben, zou het niet slecht zijn om bij elk mariafe
     De devotie tot het Onbevlekt Hart van Maria heeft zich ten gevolge van de verschijningen van de Maagd in Fatima in 1917 zeer verbreid. Bij de vijfentwintigste verjaardag hiervan in 1942 wijdde Pius XII de Kerk en de mensheid toe aan het Onbevlekt Hart van Maria en in 1944 werd het feest van het Onbevlekt Hart van Maria uitgebreid tot heel de Kerk.  
     [rkliturgie.nl](https://rkliturgie.nl/kerkelijk-jaar-jaar-c/gedachtenis-van-het-onbevlekt-hart-van-maria)
 
-Bovenstaande afbeelding kan je [downloaden in PDF-formaat](/wp-content/uploads/2019/11/liturgische-seizoenen.pdf).
+Bovenstaande afbeelding kan je [downloaden in PDF-formaat](https://storage.googleapis.com/geloven-leren/printerboekjes/liturgische-seizoenen.pdf).
 
 Voor een volledig overzicht van de liturgische kalender vond ik dit document op Kerknet. Er zijn nog meer mariafeesten dan die op het schema worden weergegeven, zoek ze maar op!
 

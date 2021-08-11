@@ -12,7 +12,7 @@ Op 12 oktober 2012 begint voor de katholieke Kerk in de hele wereld het '[Jaar v
 
 [Prentencatechismus.org](http://www.prentencatechismus.org) is een project dat voortkomt vanuit het initiatief van enkele jonge ouders en kadert zich met de goedkeuring van de aartsbisschop van Mechelen-Brussel in het wereldwijde kerkelijke jaarthema van de 'nieuwe evangelisatie'. Het project omvat een website die een prentencatechismus uit grootvaders tijd gebruikt als toegangspoort tot de actuele geloofsleer van de Kerk.
 
-\[caption id="" align="alignleft" width="180"\][![Prentencatechismus](images/01b-page0011-500x667.jpg "Prentencatechismus")](http://prentencatechismus.org/2011/01/01/inleiding/) Prentencatechismus\[/caption\]
+[![Prentencatechismus](images/01b-page0011-500x667.jpg "Prentencatechismus")](http://prentencatechismus.org/2011/01/01/inleiding/) Prentencatechismus
 
 De catechismus is een belangrijk middel om het geloof van de katholieke Kerk uit te dragen. Het is -met de woorden van de paus- "een boek dat de kracht en schoonheid van het geloof voor alle gelovigen uiteenzet". De meest recente uitgave van de [_'Catechismus van de Katholieke Kerk'_](http://rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1) is nu precies twintig jaar jong, met afgeleide publicaties, zoals de recent in meerdere talen verschenen jongerencatechismus [_'YouCat'_](http://rkdocumenten.nl/rkdocs/index.php?mi=600&doc=4005).
 
@@ -20,7 +20,7 @@ Honderdtwintig jaar geleden verscheen zo ook in Parijs _'Le Grand Catéchisme en
 
 Deze catechismus is bedoeld als aanvullend hulpmiddel bij catechese en uniek in zijn soort door het prentenmateriaal, maar is ook een historisch document. Om de begeleidende teksten toegankelijk te maken, werden ze door een team van vrijwilligers hertaald naar hedendaagse taalnormen. De publicatie wordt aangevuld met historische en theologische reflecties.
 
-\[caption id="" align="alignright" width="180"\][![Derde artikel (vervolg) – Die geboren is uit de maagd Maria](images/042b-png-500x667.jpg "Derde artikel (vervolg) – Die geboren is uit de maagd Maria")](http://prentencatechismus.org/2011/01/04/derde-artikel-die-geboren-is-uit-de-maagd-maria/) Derde artikel (vervolg) – Die geboren is uit de maagd Maria\[/caption\]
+[![Derde artikel (vervolg) – Die geboren is uit de maagd Maria](images/042b-png-500x667.jpg "Derde artikel (vervolg) – Die geboren is uit de maagd Maria")](http://prentencatechismus.org/2011/01/04/derde-artikel-die-geboren-is-uit-de-maagd-maria/) Derde artikel (vervolg) – Die geboren is uit de maagd Maria
 
 [Prentencatechismus.org](http://www.prentencatechismus.org) biedt aantrekkelijk materiaal om kinderen van alle leeftijden over het geloof te vertellen. Elk van de zeventig prenten bevat verschillende bijbelse of allegorische taferelen die in begeleidende catechetische uiteenzetting worden verklaard. Naast de tekst verschijnen koppelingen naar overeenkomstige artikelen in de hedendaagse uitgave van Catechismus van de Katholieke Kerk en andere eigentijdse bronnen. Daarom zullen ook volwassen gelovigen door de ongewone invalshoek en door de toetsing aan de actuele leerpunten van de katholieke Kerk, aanknopingspunten vinden om de inhoud van hun geloof te verdiepen en in een breder perspectief te plaatsen.
 

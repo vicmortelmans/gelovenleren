@@ -18,7 +18,7 @@ Het mag geen wonder heten dat het passiespel in alle tijden populair is: de bijb
 
 Een goeie tekst vinden die het drama van het lijdensverhaal ten volle brengt en die niet teveel last heeft van fantasie, is niet zo gemakkelijk, daarom heb ik op basis van een [synopsis](http://noemewv.nl/Bijbel/Lijdensynopsis.htm "Lijdensverhalen van de vier evangelisten naast elkaar (Synopsis)") van de evangelies, een selectie gemaakt van de dialogen, zodat het ganse lijdensverhaal, in al zijn details en op een bijbelgetrouwe manier als toneelscript gepresenteerd wordt. Hoewel het resultaat tekstueel 100% bijbelvast is, verrast het hoe geladen het drama zich voltrekt.
 
-\[caption id="attachment\_2688" align="aligncenter" width="209"\][![](images/synopsis-van-het-lijdensverhaal-in-toneelvorm.pdf-209x300.png)](/portfolio/lijdensverhaal/) Synopsis van het lijdensverhaald omgezet tot een toneel\[/caption\]
+[![](images/synopsis-van-het-lijdensverhaal-in-toneelvorm.pdf-209x300.png)](/portfolio/lijdensverhaal/) Synopsis van het lijdensverhaald omgezet tot een toneel
 
  
 
@@ -26,4 +26,4 @@ Een goeie tekst vinden die het drama van het lijdensverhaal ten volle brengt en 
 > 
 > Laten afdrukken en levering per post:
 > 
-> \[lijdensverhaal-toneel\]
+> 

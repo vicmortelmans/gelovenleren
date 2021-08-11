@@ -14,7 +14,7 @@ Op 10 juni vieren we de gedachtenis van de zalige priester Edward Poppe. Hij lee
 
 ### **Biografie**
 
-\[caption id="attachment\_2470" align="alignright" width="200"\]![Edward Poppe](images/poppe_edward.jpg) Edward Poppe\[/caption\]
+![Edward Poppe](images/poppe_edward.jpg) Edward Poppe
 
 Edward Poppe wordt op 18 december 1890 te Temse geboren. Hij is het derde kind en de eerste zoon in een bakkersgezin dat elf kinderen zal tellen. Drie zusters treden in het klooster en een broer wordt priester-minderbroeder. Edward studeert aan het seminarie in Gent en aan de Katholieke Universiteit Leuven van 1910 tot 1916 en wordt op 1 mei 1916 in Gent tot priester gewijd.
 
@@ -40,7 +40,7 @@ Priester Poppe heeft ook een bijzonder uitgesproken voorliefde tot Onze Lieve Vr
 
 In de advent van 1912, tijdens zijn voorbereiding tot het priesterschap, voelt hij zich 'opnieuw geboren', in de zin van Jezus' woorden tot de verbaasde Nicodemus: "Alleen wie opnieuw geboren wordt, kan het Rijk Gods zien." Hij schrijft het zo op in zijn dagboek:
 
-_"Ik, Edward Johannes Maria Poppe, ontrouw en zondig als ik ben, hernieuw en bekrachtig heden in uw handen de beloften van mijn doopsel. Ik verzaak voor altijd aan Satan, aan zijn begoochelingen en zijn gedoe, en ik geef mij geheel en al aan Jezus Christus, de mens geworden Wijsheid, om achter Hem mijn kruis te dragen, alle dagen van mijn leven, en om Hem voortaan trouwer te dienen... En nu kies ik u, in tegenwoordigheid van heel de gemeenschap van de heiligen, tot mijn moeder en meesteres. Als slaaf geef ik u en wijd ik u toe mijn lichaam en mijn ziel, mijn innerlijke en uiterlijke goederen, zelfs de waarde van mijn goede werken in verleden, heden en toekomst. \[...\] Dat ik door uw tussenkomst en door uw voorbeeld kom tot de volheid van zijn leven op aarde en van zijn glorie in de hemel. Amen."_
+_"Ik, Edward Johannes Maria Poppe, ontrouw en zondig als ik ben, hernieuw en bekrachtig heden in uw handen de beloften van mijn doopsel. Ik verzaak voor altijd aan Satan, aan zijn begoochelingen en zijn gedoe, en ik geef mij geheel en al aan Jezus Christus, de mens geworden Wijsheid, om achter Hem mijn kruis te dragen, alle dagen van mijn leven, en om Hem voortaan trouwer te dienen... En nu kies ik u, in tegenwoordigheid van heel de gemeenschap van de heiligen, tot mijn moeder en meesteres. Als slaaf geef ik u en wijd ik u toe mijn lichaam en mijn ziel, mijn innerlijke en uiterlijke goederen, zelfs de waarde van mijn goede werken in verleden, heden en toekomst.  Dat ik door uw tussenkomst en door uw voorbeeld kom tot de volheid van zijn leven op aarde en van zijn glorie in de hemel. Amen."_
 
 Hij herneemt in zijn dagboek deze toewijdingstekst, die hij al tweemaal bij bedevaarten naar Scherpenheuvel gebruikt had, en hij zet er opnieuw plaats en datum bij en ondertekent. Hij maakt er telkens een officiële akte van.
 
@@ -58,7 +58,7 @@ Er zijn vele getuigenissen van een buitengewone, bovennatuurlijke aantrekkingskr
 
 ### **Het gevecht om de christelijke opvoeding**
 
-\[caption id="attachment\_2468" align="alignright" width="221"\][![Zonneland, tijdschrift van de Eucharistische Kruistocht met als bijzonder werkpuntje van de week: N.K. oftewel: niet klagen!](images/niet-klagen-221x300.jpg)](images/niet-klagen.jpg) Zonneland, tijdschrift van de Eucharistische Kruistocht met als bijzonder werkpuntje van de week: N.K. oftewel: niet klagen!\[/caption\]
+[![Zonneland, tijdschrift van de Eucharistische Kruistocht met als bijzonder werkpuntje van de week: N.K. oftewel: niet klagen!](images/niet-klagen-221x300.jpg)](images/niet-klagen.jpg) Zonneland, tijdschrift van de Eucharistische Kruistocht met als bijzonder werkpuntje van de week: N.K. oftewel: niet klagen!
 
 De [Eucharistische Kruistocht](http://users.telenet.be/katholieke-informatie/Poppe/De%20Euch.%20kruistocht.html) wordt in Vlaanderen gesticht in 1920 door de norbertijnen van Averbode, met de bedoeling de communiedecreten van Paus Pius X van 1910 meer ingang te doen vinden, waardoor kinderen op jongere leeftijd hun eerste communie kunnen doen, zoals nu nog de gewoonte is. De bedoeling is de leden te brengen tot het volledige eucharistische leven, ze moeten leren de grote genadebron ten volle benuttigen om te komen tot gelijkvormigheid aan Christus.
 

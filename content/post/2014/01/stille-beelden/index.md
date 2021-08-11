@@ -23,7 +23,7 @@ Ik vond op internet een [interview](http://kerknet.be/admin/files/assets/subsite
 
 > 'De architectuur in de pelgrimskapel is bewust zeer sober gehouden. Materialen zijn zoveel mogelijk in hun oorspronkelijke staat behouden: een boomstam voor het dak, een andere boomstam als bank, een gestampte aarden vloer en een soliede inkomdeur. Vader abt Manu Vanhecke merkt op dat de vier elementen in deze nieuwe kapel voluit kunnen spelen: licht, water, vuur en lucht. „Hier vind je de schepping in haar totaliteit. Hier kan het contact met de aarde, met de ander en met God worden hersteld. De Moeder Gods is voor ons op die weg een vaste hulp en toevlucht”'
 
-\[caption id="attachment\_659" align="alignright" width="224"\]![Pelgrimskapel in Westvleteren gevuld met 'nieuwe mensen'](images/pict02072b2528225291.jpg) Pelgrimskapel in Westvleteren gevuld met 'nieuwe mensen'\[/caption\]
+![Pelgrimskapel in Westvleteren gevuld met 'nieuwe mensen'](images/pict02072b2528225291.jpg) Pelgrimskapel in Westvleteren gevuld met 'nieuwe mensen'
 
 Al die elementen 'betekenen' dus iets, en die betekenissen zijn op zich zeer waardevol, maar bij de werkzaamheid ervan in de geest van een gewone katholiek die niet reeds volledig getransformeerd is in 'nieuwe mens' (of die dit artikeltje uit het parochieblad niet had gelezen), stel ik me vragen.
 
@@ -47,7 +47,7 @@ Geloof heeft verbeelding nodig (geen fantasie, da's iets anders), want wat we ge
 
 >  
 > 
-> \[caption id="attachment\_897" align="alignright" width="225"\][![Journeying toward God in the barque of Peter](/wp-content/uploads/2014/12/barque_v1.png?w=225)](http://catholicview.wordpress.com/2009/08/25/diagrams-revised-set/) Journeying toward God in the barque of Peter\[/caption\]
+> [![Journeying toward God in the barque of Peter](images/barque_v1.png?w=225)](http://catholicview.wordpress.com/2009/08/25/diagrams-revised-set/) Journeying toward God in the barque of Peter
 > 
 >  
 > 
@@ -57,6 +57,6 @@ Geloof heeft verbeelding nodig (geen fantasie, da's iets anders), want wat we ge
 
 Nummer 1326 van de Catechismus van de Katholieke Kerk zegt het zo: _"Tenslotte verenigen wij ons door de Eucharistieviering nu reeds met de hemelse liturgie en lopen wij vooruit op het eeuwig leven, wanneer God alles in allen zal zijn. (1 Kor. 15, 28)"_.
 
-\[caption id="attachment\_660" align="aligncenter" width="360"\]![The Ministerial Priesthood (Monsignor Anthony La Femina, 2002)](images/theministerialpriesthoodmonsignoranthonylafemina20021.jpg) The Ministerial Priesthood (Monsignor Anthony La Femina, 2002)\[/caption\]
+![The Ministerial Priesthood (Monsignor Anthony La Femina, 2002)](images/theministerialpriesthoodmonsignoranthonylafemina20021.jpg) The Ministerial Priesthood (Monsignor Anthony La Femina, 2002)
 
 Maar nummer 1327 vervolgt nuchter: _"Kortom, de Eucharistie is de samenvatting van ons geloof: "Onze manier van denken stemt overeen met de Eucharistie, en omgekeerd bevestigt de Eucharistie onze manier van denken"."_

@@ -19,9 +19,9 @@ Weet u een programma of een zender die online te beluisteren is en die nog niet 
 
 Klik hier om de website te bezoeken of de app te installeren:
 
-\[caption id="attachment\_59" align="aligncenter" width="180"\][![WEBSITE](images/katholiekeradiopromo.png)](http://radio.gelovenleren.net) radio.gelovenleren.net\[/caption\]
+[![WEBSITE](images/katholiekeradiopromo.png)](http://radio.gelovenleren.net) radio.gelovenleren.net
 
-\[caption id="attachment\_59" align="aligncenter" width="180"\][![WEBSITE](images/katholiekeradiopromo.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) GOOGLE PLAY STORE\[/caption\]
+[![WEBSITE](images/katholiekeradiopromo.png)](https://play.google.com/store/apps/details?id=net.credomobiel.katholiekeradio) GOOGLE PLAY STORE
 
 Een overzicht van de aangeboden zenders, zoals ze zichzelf beschrijven op hun websites:
 

@@ -16,7 +16,7 @@ Je hebt al enkele [kaartensets uit _Katholiek Kwartetten_](/tag/kwartet/ "Kathol
 
 ### Wat heb je nodig
 
-\[caption id="attachment\_999" align="alignright" width="195"\][![Screenshot van de website met de schakelaar op "Spelen"](images/online-spelen-195x300.png)](http://kwartet.gelovenleren.net/) Screenshot van de website met de schakelaar op "Spelen"\[/caption\]
+[![Screenshot van de website met de schakelaar op "Spelen"](images/online-spelen-195x300.png)](http://kwartet.gelovenleren.net/) Screenshot van de website met de schakelaar op "Spelen"
 
 - **het kaartspel**. Je kan de [kaarten zelf afdrukken of online bestellen](/katholiek-kwartetten/ "Katholiek Kwartetten"). Als je zelf je kwartetten afdrukt mag je kiezen welke kwartetten je gebruikt. Je hoeft ze niet alle 13 te gebruiken, en als er later nieuwe kwartetten worden gepubliceerd mag je die ook toevoegen. Eigenlijk zorg je best dat iedere speler 10 tot 15 kaarten heeft na het uitdelen.
 - **een mobieltje** met internettoegang, een camera en een QR-scanner-app. Iedereen mag desgewenst ook zijn eigen mobieltje gebruiken. Heb je nog geen app om QR-codes te scannen, installeer dan NeoReader: [Google Play](https://play.google.com/store/apps/details?id=de.gavitec.android&hl=nl) - [iTunes](https://itunes.apple.com/us/app/neoreader-qr-mobile-barcode/id284973754?mt=8)
@@ -28,7 +28,7 @@ Je hebt al enkele [kaartensets uit _Katholiek Kwartetten_](/tag/kwartet/ "Kathol
 
 Je speelt het spel volgens de gewone spelregels, maar om de laatste kaart van een kwartet te bemachtigen, grijp je je mobiel!
 
-\[caption id="attachment\_1006" align="alignright" width="300"\]![Scan de rugzijde van één van jouw kaarten met je mobiel.](images/drie-kaarten-omgedraaid-300x214.png) Scan de rugzijde van één van jouw kaarten met je mobiel.\[/caption\]
+![Scan de rugzijde van één van jouw kaarten met je mobiel.](images/drie-kaarten-omgedraaid-300x214.png) Scan de rugzijde van één van jouw kaarten met je mobiel.
 
 Leg de drie kaarten van je onvolledig kwartet gedekt op tafel. Je vertelt over welk kwartet het gaat, zodat ook de speler die de vierde kaart heeft, die gedekt op tafel kan leggen. Open de QR-scanner en scan de code op een van jouw kaarten. Leg je mobiel nu zichtbaar op tafel. Je mobiel zal je een van de kaarten uit het kwartet tonen, of een van de godsbeelden.
 

@@ -30,4 +30,4 @@ Enkele hoogtepunten:
 
 [Het sterfbed](http://www.youtube.com/watch?feature=player_detailpage&v=3ev27xhW96I#t=502 "Het sterfbed")
 
-\[caption id="attachment\_585" align="aligncenter" width="236"\]![Jozef de Veuster als seminarist](/wp-content/uploads/2014/12/damienseminarian1.jpg?w=236) Jozef de Veuster als seminarist\[/caption\]
+![Jozef de Veuster als seminarist](images/damienseminarian1.jpg?w=236) Jozef de Veuster als seminarist

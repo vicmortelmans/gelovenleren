@@ -16,11 +16,11 @@ Parochies kunnen onderling heel sterk verschillen. De demografische samenstellin
 
 Misschien heeft het bewustzijn van deze nieuwe uitdagingen mee de aanzet gegeven tot een andere hervorming in het bisdom. Die is minder zichtbaar en betreft de vicariaten. Een vicariaat voert het beleid van de bisschop uit en wordt bestuurd door een vicaris of bisschoppelijk gedelegeerde. Naar gewoonte krijgt elke vicaris, net als een minister, zijn eigen gespecialiseerde bevoegdheden, zoals onderwijs, kerkfabrieken, ziekenhuizen, de kerkelijke rechtbank, oecumene, priesteropleiding, enzovoort.
 
-\[caption id="attachment\_1265" align="alignright" width="300"\][![Mgr. Bonny, bisschop van Antwerpen](/wp-content/uploads/2014/12/60c4c2a211d311e4ac9e6ca0cd28b430_web_scale_02_02__1.jpeg?w=300)](http://nl.wikipedia.org/wiki/Johan_Bonny) Mgr. Bonny, bisschop van Antwerpen\[/caption\]
+[![Mgr. Bonny, bisschop van Antwerpen](images/60c4c2a211d311e4ac9e6ca0cd28b430_web_scale_02_02__1.jpeg?w=300)](http://nl.wikipedia.org/wiki/Johan_Bonny) Mgr. Bonny, bisschop van Antwerpen
 
 Mgr. Johan Bonny kiest nu voor een radikaal andere indeling van de vicariale bevoegdheden. In zijn bisdom ziet hij niet enkel de verscheidenheid tussen parochies onderling, waarmee de teams van de pastorale eenheden te worstelen hebben, maar hij ziet ook de verscheidenheid tussen de Antwerpse stadsregio en de steden en gemeenten van de Kempen. De nieuwe bestuursploeg krijgt daarom drie vicariaten: het vicariaat Antwerpen en het vicariaat Kempen, die voor beide regio's een specifiek beleid kunnen bepalen, en een derde vicariaat voor de gezamenlijke diocesane diensten.
 
-\[caption id="attachment\_1266" align="alignleft" width="300"\]![Kan. Bart Paepen, vicaris bevoegd voor de stadsregio Antwerpen](/wp-content/uploads/2014/12/foto_12990602671.jpg?w=300) Kan. Bart Paepen, vicaris bevoegd voor de stadsregio Antwerpen\[/caption\]
+![Kan. Bart Paepen, vicaris bevoegd voor de stadsregio Antwerpen](images/foto_12990602671.jpg?w=300) Kan. Bart Paepen, vicaris bevoegd voor de stadsregio Antwerpen
 
 Om deze nieuwe structuur verder toe te lichten, mogen we vicaris Bart Paepen enkele vragen stellen, waarbij onze focus ligt op het stadsvicariaat, dat hij zal leiden:
 

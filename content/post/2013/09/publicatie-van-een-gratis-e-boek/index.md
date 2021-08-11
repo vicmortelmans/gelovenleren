@@ -10,7 +10,7 @@ coverImage: "cc_ebibleiphone21.jpg"
 
 > Alvorens tot het onderwerp van dit artikel over te gaan, een korte nieuwsflits over een nieuw item in [Credomobiel](/page/mobiele-websites/). De gebruikers van mobiel en tablet kunnen sinds kort ook volwaardig gebruik maken van de webstek [RKDocumenten.nl](http://www.rkdocumenten.nl/rkdocs/). De inhoud blijft hetzelfde, nu ook op het kleine scherm!
 
-\[caption id="attachment\_484" align="alignright" width="150"\]![e-boek](/wp-content/uploads/2014/12/cc_ebibleiphone21.jpg?w=150) e-boek\[/caption\]
+![e-boek](images/cc_ebibleiphone21.jpg?w=150) e-boek
 
 Over nu tot het publiceren van een e-boek. Deze markt stijgt gestaag en tegen 2017 zou het aandeel van e-boeken in de verkoop het klassieke gedrukte boek moeten evenaren. Dat geldt voor het commerciële werk. Wie boeken gratis wil verspreiden is natuurlijk het meest gebaat met dit nieuwe platform. En voor de gebruiker zijn de troeven legio, zeker als je denkt aan boeken waaruit je dagelijks een klein stukje wil lezen, zoals de dagelijkse meditaties van Grossouw in "Innerlijk Leven".
 
@@ -70,9 +70,9 @@ Google is, zoals in vele zaken, nog steeds het meest open platform. Spijtig geno
 
 <table style="text-align:center;" border="1" cellspacing="0" cellpadding="3"><tbody><tr><td></td><td>pro</td><td>con</td></tr><tr><td>uitgever</td><td>platform-onafhankelijk zonder registratiekost per platform</td><td>publicatie vanuit België wordt nog niet&nbsp;<a href="https://support.google.com/books/partner/answer/2987594">ondersteund</a></td></tr><tr><td>gebruiker</td><td>downloaden en lezen op al je toestellengebruikers kunnen PDF downloaden</td><td>gebruikers moeten een Google-account hebben en de&nbsp;<a href="https://play.google.com/store/apps/details?id=com.google.android.apps.books">Google Play Books app</a>&nbsp;installeren</td></tr></tbody></table>
 
-\[update 20140609: uitgeven in Google Books vanuit België is intussen ondersteund. Ook de [e-boekversies van de Navolging van Christus en van Innerlijk Leven](/e-boeken/) zijn er beschikbaar.\]
 
-\[caption id="attachment\_473" align="alignright" width="90"\][![Google Play Books](/wp-content/uploads/2014/12/googleplaybooks1.png?w=150)](https://play.google.com/store/apps/details?id=com.google.android.apps.books) Google Play Books\[/caption\]
+
+[![Google Play Books](images/googleplaybooks1.png?w=150)](https://play.google.com/store/apps/details?id=com.google.android.apps.books) Google Play Books
 
 Ondertussen ben ik trouwens helemaal in de wolken van Googles e-boek-lezer [Google Play Books](https://play.google.com/store/apps/details?id=com.google.android.apps.books). Op Credomobiel staan de links naar de [versies  voor Android en Apple](/page/e-boeken/). Toch merkwaardig hoe ze er bij Google (bijna) steeds in slagen om een tool te distilleren tot het enige dat een gebruiker nodig heeft: functionaliteit. En dat is deze e-boek-lezer weer ten voeten uit. Google laat ook toe eigen e-boeken op te laden, zodat ze vanuit 'the cloud' beschikbaar komen op al je toestellen, een functie die Amazon's Kindle ook al aanbood.
 

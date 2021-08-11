@@ -13,7 +13,7 @@ tags:
 coverImage: "v3_s2ew_consultazione1.jpg"
 ---
 
-\[caption id="attachment\_862" align="alignright" width="300"\][![Synode 2014-2015](images/v3_s2ew_consultazione1-300x125.jpg)](http://www.familiam.org/famiglia_eng/church/00005685_Synod_on_the_Family.html) Synode 2014-2015\[/caption\]
+[![Synode 2014-2015](images/v3_s2ew_consultazione1-300x125.jpg)](http://www.familiam.org/famiglia_eng/church/00005685_Synod_on_the_Family.html) Synode 2014-2015
 
 Het jaar is nog maar net begonnen, en het is weeral maart. Nog maar even en de zomervakantie begint en ---hop--- het zal zo weer oktober zijn. De tijd is kort, zal de Geest wel zijn werk kunnen doen? In oktober zal immers de échte gezinssynode plaatsvinden! Tijd dus om nog eens één en ander op een rijtje te zetten.
 
@@ -42,9 +42,9 @@ Wat me opvalt is dat de Relatio Synodi ---gelukkig--- de onontbindbaarheid van h
 
 ### Het voorstel-Kasper
 
-\[caption id="attachment\_860" align="alignleft" width="174"\][![Kardinaal Kasper in gezelschap van kardinaal Danneels, die voor het betere lobbywerk instaat](images/330px-Kardinaal_III_Danneels_en_Kasper1-174x300.jpg)](http://en.wikipedia.org/wiki/Walter_Kasper) Kardinaal Kasper in gezelschap van kardinaal Danneels, die voor het betere lobbywerk instaat\[/caption\]
+[![Kardinaal Kasper in gezelschap van kardinaal Danneels, die voor het betere lobbywerk instaat](images/330px-Kardinaal_III_Danneels_en_Kasper1-174x300.jpg)](http://en.wikipedia.org/wiki/Walter_Kasper) Kardinaal Kasper in gezelschap van kardinaal Danneels, die voor het betere lobbywerk instaat
 
-Zullen deze ideeën in oktober gebruikt worden om de impasse los te wrikken waarin de discussie rond het [fel](https://catholicismpure.wordpress.com/2014/04/03/dr-john-rist-cardinal-kaspers-new-approach-to-the-remarried-has-shaky-historical-foundations/) [betwiste](http://www.ncregister.com/daily-news/cardinals-collaborate-on-book-to-defend-church-doctrine-on-divorce-remarria) [standpunt van kardinaal Kasper](https://www.commonwealmagazine.org/interview-cardinal-walter-kasper) zich bevindt? Zijn voorstel is beknopt weergegeven in het verworpen artikel 52: _"Een niet algemeen toelaten tot de tafel van de eucharistie in bepaalde bijzondere omstandigheden en op zeer precieze voorwaarden, \[...\]. Een eventueel naderen tot de sacramenten zou voorafgegaan dienen te worden door **een weg van penitentie** onder verantwoordelijkheid van de diocesane bisschop."_ Blijkbaar is het dus iets genuanceerder dan het simplistische "iedereen heeft recht ter communie te gaan", waarover iedereen het heeft en waarmee verwachtingen worden gewekt die nooit zullen worden ingevuld.
+Zullen deze ideeën in oktober gebruikt worden om de impasse los te wrikken waarin de discussie rond het [fel](https://catholicismpure.wordpress.com/2014/04/03/dr-john-rist-cardinal-kaspers-new-approach-to-the-remarried-has-shaky-historical-foundations/) [betwiste](http://www.ncregister.com/daily-news/cardinals-collaborate-on-book-to-defend-church-doctrine-on-divorce-remarria) [standpunt van kardinaal Kasper](https://www.commonwealmagazine.org/interview-cardinal-walter-kasper) zich bevindt? Zijn voorstel is beknopt weergegeven in het verworpen artikel 52: _"Een niet algemeen toelaten tot de tafel van de eucharistie in bepaalde bijzondere omstandigheden en op zeer precieze voorwaarden, . Een eventueel naderen tot de sacramenten zou voorafgegaan dienen te worden door **een weg van penitentie** onder verantwoordelijkheid van de diocesane bisschop."_ Blijkbaar is het dus iets genuanceerder dan het simplistische "iedereen heeft recht ter communie te gaan", waarover iedereen het heeft en waarmee verwachtingen worden gewekt die nooit zullen worden ingevuld.
 
 Er is wel iets te zeggen voor Kaspers voorstel!
 
@@ -54,7 +54,7 @@ Kasper zegt dus _niet_ dat vanaf morgen alle hertrouwde echtgescheidenen plots 
 
 ### Geen vooruitgang?
 
-\[caption id="attachment\_859" align="alignright" width="300"\]![Een beproefde weg van penitentie, maar misschien niet wat kardinaal Kasper bedoelt?](images/8C742BCDFBA576368AFE1F071248F9A1-veurne-boeteprocessie1-300x168.jpg) Een beproefde weg van penitentie, maar misschien niet wat kardinaal Kasper bedoelt... wat bedoelt hij dan wel?\[/caption\]
+![Een beproefde weg van penitentie, maar misschien niet wat kardinaal Kasper bedoelt?](images/8C742BCDFBA576368AFE1F071248F9A1-veurne-boeteprocessie1-300x168.jpg) Een beproefde weg van penitentie, maar misschien niet wat kardinaal Kasper bedoelt... wat bedoelt hij dan wel?
 
 Twee nieuwe vragen werpen zich evenwel op: wat mag zo'n "weg van penitentie" wel inhouden? en hoe zal dit worden gepercipieerd? Ik kan me alvast voorstellen dat dit "progressieve" voorstel niet aanzien zal worden als een _vooruitgang_ in tal van Westeuropese bisdommen, waar in de praktijk voor het sacrament van de eucharistie al lang geen vragen meer worden gesteld bij ongeregelde huwelijken en waar de biecht is uitgestorven... Tenzij de verantwoordelijke bisschop die "weg van penitentie" herleidt tot een nietsbetekenende soort van algemene absolutie, maar dat was de bedoeling niet, toch?
 

@@ -41,7 +41,7 @@ Progressieven tegenover conservatieven, daar gaan we weer..., ja, het is een bru
 
 Ik denk dat ik stilaan beter begin te begrijpen waar het principe van de "onderscheiding" om draait. Eigenlijk is het heel eenvoudig te verwoorden als: "eerst denken, dan doen". Het is een ziekte van de tijd (of van alle tijden, wie weet?) om die eerste stap te willen overslaan. Eerder deze week had ik nog een heel korte twitterdiscussie die dit perfect illustreert:
 
-\[caption id="attachment\_6964" align="aligncenter" width="400"\][![](images/Vic-Mortelmans-ن-on-Twitter-Vanheeswijck-in-Tertio…--238x300.png)](https://twitter.com/vicmortelmans/status/1014454475547987968) DOE LIEF!\[/caption\]
+[![](images/Vic-Mortelmans-ن-on-Twitter-Vanheeswijck-in-Tertio…--238x300.png)](https://twitter.com/vicmortelmans/status/1014454475547987968) DOE LIEF!
 
 Guido Vanheeswijck is blijkbaar ook een supporter van het verfoeide systeemdenken in de Kerk, vind je niet? Niet zo! Waartoe hij oproept is een evenwicht, tussen denken en doen. Je kan niet zomaar het goede _doen_, zonder daar eerst ten gronde over _na te denken_. Door na te denken kan je immers pas leren wat het _verschil_ (het "onderscheid") is tussen het goede en het kwade. Zonder na te denken loop je het ernstige risico dat je het kwade doet, terwijl je ervan overtuigd bent het goede te doen!
 

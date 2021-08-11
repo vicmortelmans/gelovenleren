@@ -29,4 +29,4 @@ De Heilige Schrift, vertaling uit de grondtekst in opdracht van de Apologetische
 
 Oorspronkelijke uitgave 1939
 
-Lees [meer over deze publicatie op de blog](/post/2016/08/2016-08-05-bijbelvertaling-petrus-canisius-studiebijbel-gratis-downloaden/).
+Lees [meer over deze publicatie op de blog](/blog/bijbelvertaling-petrus-canisius-studiebijbel-gratis-downloaden/).

@@ -26,11 +26,11 @@ Het is niet dat ik onverdraagzaam ben tegenover andere vormen van liturgie. Nog 
 
 Wanneer de anglo-Afrikanen vieren, staat de kerk helemaal op stelten, met opzwepende muziek, tribale klederdracht en rituele dansen. Dat heb ik allemaal doorstaan en ik herinner me niet me ook maar één ogenblik daaraan te hebben geërgerd, maar ik voel nog wel wel hoe mijn hart meermaals opsprong van ontzag, bijvoorbeeld wanneer het evangelieboek op onbeschrijflijk imponerende wijze werd aangebracht.
 
-\[caption id="attachment\_619" align="aligncenter" width="450"\]![Mgr. Bonny snijdt de taart aan na de viering van de anglo-Afrikaanse gemeenschap](images/naamloos.png) Mgr. Bonny snijdt de taart aan na de viering van de anglo-Afrikaanse gemeenschap\[/caption\]
+![Mgr. Bonny snijdt de taart aan na de viering van de anglo-Afrikaanse gemeenschap](images/naamloos.png) Mgr. Bonny snijdt de taart aan na de viering van de anglo-Afrikaanse gemeenschap
 
 Wanneer de grieks-katholieke Witrussen vieren ben je helemaal het noorden kwijt, want hun ritus is orthodox en alles gebeurt achter hun nieuwe iconostase en zelfs met een de volledige tekst van de liturgie in de hand is het haast onmogelijk te volgen wat er gebeurt. Zij gebruiken trouwens ook geen gewoon hostiebrood, wist je dat? En rode wijn in plaast van witte. Opnieuw dezelfde ervaring: geen spiertje ergernis tijdens een dienst van bijna twee uur lang, en talrijke ogenblikken van diep ontzag.
 
-\[caption id="attachment\_618" align="aligncenter" width="450"\][![Mgr. Bonny gaat voor in de liturgie van de Grieks-katholieke Witrussische gemeenschap](images/dsc_01491.jpg)](/wp-content/uploads/2014/12/dsc_01491.jpg) Mgr. Bonny gaat voor in de liturgie van de Grieks-katholieke Witrussische gemeenschap, of beter: hij celebreert de goddelijke liturgie van de heilige Johannes Chrysostomus\[/caption\]
+[![Mgr. Bonny gaat voor in de liturgie van de Grieks-katholieke Witrussische gemeenschap](images/dsc_01491.jpg)](images/dsc_01491.jpg) Mgr. Bonny gaat voor in de liturgie van de Grieks-katholieke Witrussische gemeenschap, of beter: hij celebreert de goddelijke liturgie van de heilige Johannes Chrysostomus
 
 Maar tijdens de 'gewone' Vlaamse viering van vorige zaterdag heb ik van begin tot einde 'mijn kas zitten opfretten', zoals ze hier zeggen… Wat loopt er mis?
 
@@ -38,7 +38,7 @@ Maar tijdens de 'gewone' Vlaamse viering van vorige zaterdag heb ik van begin to
 
 Voor zover ik op mijn vertwijfelde vragen antwoord krijg, lijkt het dat men andere teksten wil dan die uit het missaal, omdat die te moeilijk te begrijpen zijn. Vindt men het missaal moeilijk omdat het woorden gebruikt als 'ootmoed' of 'lankmoedigheid', die niet meer in ons alledaags taalregister zitten? Of wegens zinsconstructies die net iets complexer zijn dan wat we in het VRT-journaal te horen krijgen? Dat kan, geloof ik, toch geen voldoende reden zijn om een gans missaal bij het oud papier te zetten? Zou niet, eerder dan de taal, de inhoud het probleem zijn? De inhoud van het missaal is de uitdrukking van het geloof, dus dat die woorden "moeilijk te begrijpen zijn", zou toch niet mogen verbazen.
 
-\[caption id="attachment\_622" align="alignright" width="300"\]![Het missaal: een 'moeilijk' boek](/wp-content/uploads/2014/12/amx1.jpg?w=300) Het missaal: een 'moeilijk' boek\[/caption\]
+![Het missaal: een 'moeilijk' boek](images/amx1.jpg?w=300) Het missaal: een 'moeilijk' boek
 
 In tegenstelling tot de andere aanwezigen, die dankzij de nieuwe teksten "de mis goed konden begrijpen", begreep ik er niks van en ging met veel vertwijfeling naar huis. Ik heb immers nooit dat gevoel het allemaal goed te begrijpen, wanneer ik uit de kerk kom. Het geloof is zo vol van mysterie, en de eucharistie als sacrament niet in het minst. Moet ik dan blij zijn voor de anderen die het hele mysterie wel blijken te begrijpen, dankzij hun "eigen" mis, netjes ontdaan van alles wat tot onbegrip aanleiding kan geven en aangevuld met een handvol eigen symbolen, ook allemaal klip en klaar uitgelegd, zodat we ze allemaal goed begrijpen? Ik snap er niks meer van.
 

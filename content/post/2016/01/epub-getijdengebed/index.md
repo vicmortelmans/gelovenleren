@@ -9,7 +9,7 @@ tags:
 coverImage: "getijdengebed.png"
 ---
 
-\[caption id="attachment\_1162" align="alignright" width="300"\]![Mgr. Punt stelt met een druk op de knop de getijdengebedapp beschikbaar](images/getijdengebed_lancering_tiltenberg1-300x200.jpg) Mgr. Punt stelt met een druk op de knop de getijdengebedapp beschikbaar\[/caption\]
+![Mgr. Punt stelt met een druk op de knop de getijdengebedapp beschikbaar](images/getijdengebed_lancering_tiltenberg1-300x200.jpg) Mgr. Punt stelt met een druk op de knop de getijdengebedapp beschikbaar
 
 De nieuwsbrief van het [getijdengebed-team](http://www.tiltenberg.org/getijdengebed/Download.php?request=%2Fgetijdengebed%2Findex.php) bericht dat de e-books voor 2016 klaar zijn voor download. Nieuw dit jaar is een versie in EPUB-formaat, dat je in de meeste (gratis) e-bookapps kan lezen. Tot vorig jaar was enkel een versie in het Isilo-formaat beschikbaar, waarvoor je je een speciale app moest aanschaffen.
 

@@ -22,7 +22,7 @@ Een concreet voorbeeld: het pastorale zwaartepunt in mijn parochie ligt bij een 
 
 ### Medegebruik wordt kerngebruik
 
-\[caption id="attachment\_3091" align="alignright" width="225"\][![Het Antwerps Kerkenplan (eind 2016) toont nog veel studiewerk.](images/1476277535289-225x300.jpeg)](images/1476277535289.jpeg) Het Antwerps Kerkenplan (eind 2016) toont nog veel studiewerk.\[/caption\]
+[![Het Antwerps Kerkenplan (eind 2016) toont nog veel studiewerk.](images/1476277535289-225x300.jpeg)](images/1476277535289.jpeg) Het Antwerps Kerkenplan (eind 2016) toont nog veel studiewerk.
 
 Het kerkenplan dat nu voorligt, zet in op de aanwezigheid van andere christelijke gemeenschappen om de kerkgebouwen voor de toekomst te vrijwaren. In zijn [korte inleiding](https://www.kerknet.be/bisdom-antwerpen/nieuws/parochiekerkenplan-voor-antwerpen-voorgesteld-door-bisdom-en-stad) maakte mgr. Bonny een krachtig statement: **"een katholieke kerk die geen gastkerk wil zijn voor een andere gemeenschap, is niet katholiek"**. Vervolgens somde hij op welke christelijke gemeenschappen er zoal in aanmerking komen. Om te beginnen de anderstalige rooms-katholieke en niet-latijnse katholieke gemeenschappen. Vervolgens christelijke gemeenschappen met wie de Kerk oecumenische banden heeft: de orthodoxe kerk en de protestantse kerk. Tot slot, en dat is nieuw, verschijnen ook de evangelische kerken in het blikveld van de bisschop, met wie de Kerk geen relaties heeft, bij gebrek aan overkoepelende gesprekspartner. Hoe wil hij met hen in zee gaan? Gaan ook zij binnenkort in een katholiek kerkgebouw een plaats kunnen vinden? Misschien wel, als daarmee het kerkgebouw van verkoop of afbraak gevrijwaard kan worden?
 

@@ -1,6 +1,8 @@
 ---
 title: "PRIVACY POLICY MODEL FOR MOBILE APPLICATIONS"
 date: "2015-05-15"
+aliases:
+ - /privacy-policy-model-for-mobile-applications/
 ---
 
 This privacy policy governs your use of the software application Mechelse Catechismus(“Application”) for mobile devices that was created by Geloven Leren. The Application is A tool for studying the catechism of the catholic church.

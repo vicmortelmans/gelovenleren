@@ -38,7 +38,7 @@ Wat is het dan? [Vinden gelovige ouders](https://www.ncregister.com/blog/msgr-po
 
 Wat hier de kop opsteekt, is een ideologische definitie van vrijheid. Vrijheid van geloof wordt zodanig verabsoluteerd dat zelfs het kleinste kind er onvoorwaardelijk aanspraak op kan maken, terwijl juist aangevoerd is dat in een gezonde opvoeding elke vrijheid voorwaardelijk is, zeker de "belangrijke".
 
-\[caption id="attachment\_2312" align="aligncenter" width="300"\]![Interreligieuze dialoog](images/16-300x139.jpg) Vrijheid van geloof is een "belangrijke" verantwoordelijkheid\[/caption\]
+![Interreligieuze dialoog](images/16-300x139.jpg) Vrijheid van geloof is een "belangrijke" verantwoordelijkheid
 
 Onlangs hoorde ik het verhaal van een joodse intellectueel die erg actief is in de interreligieuze dialoog en als een heel open persoon bekend staat, maar die als vader zijn eigen kinderen een heel gesloten opvoeding geeft, waarbij ze haast geen contact hebben met niet-joden.
 

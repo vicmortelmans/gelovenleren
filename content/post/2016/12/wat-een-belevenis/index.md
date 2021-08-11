@@ -14,7 +14,7 @@ coverImage: "giphy-1.gif"
 
 Hoe is het echter mogelijk de wekelijkse bijeenkomst als "saai" te evalueren, waarmee gelovigen wereldwijd tweeduizend jaar lang ingaan op de vraag die Jezus zijn leerlingen (en ons met hen) stelde op het Laatste Avondmaal? Hoe kan je het grootse wonder dat tijdens de eucharistie voor onze ogen werkelijk wordt, "saai" noemen, dat niets minder inhoudt dan de zelfopoffering van de Zoon van God aan het kruis en de daardoor verkregen genade van eeuwig leven bevrijd van onze zonden?
 
-\[caption id="attachment\_3226" align="aligncenter" width="300"\]![Wat is de eucharistie?](images/what-is-mass-300x300.jpg) Wat is de eucharistie?\[/caption\]
+![Wat is de eucharistie?](images/what-is-mass-300x300.jpg) Wat is de eucharistie?
 
 ### Menselijk
 
@@ -44,7 +44,7 @@ Wel kunnen we Christus' nederige gestalte waardig beantwoorden met een expressie
 
 Ook het verloop van de liturgie kent een aantal geplogendheden als het op lichaamshouding aankomt. Die beschreef ik reeds in mijn [Praktische gids bij gebedshoudingen in de liturgie](http://gelovenleren.net/praktische-gids-bij-gebedshoudingen-in-de-liturgie). Dat lijkt misschien allemaal overbodig, maar het is een hulp om God te (h)erkennen in ons gebed zodat het niet gewoon iets tussen mensen onderling wordt. Een hulp om de persoonlijke relatie met Jezus in de liturgie te tonen.
 
-\[caption id="attachment\_3225" align="aligncenter" width="480"\]![Het grootste Wonder](images/giphy-1.gif) Het grootste Wonder\[/caption\]
+![Het grootste Wonder](images/giphy-1.gif) Het grootste Wonder
 
 Op die manier ben je geen toeschouwer van de mis, maar een deelnemer. Eén van de belangrijkste argumenten voor de _ad-orientem-_oriëntatie van het altaar is dat de priester daarmee dezelfde gebedshouding aanneemt als de gelovigen. Hij gaat  niet alleen _voor_, maar hij gaat samen met de gelovigen _op_ in het gebed van de Kerk. Dat kan je niet zeggen van de _versus-populum-_oriëntatie, waar de persoon van de priester veel meer aandacht opeist.
 
@@ -54,4 +54,4 @@ Je kan naar de kerk gaan om bevriende medegelovigen te onmoeten, omdat je van de
 
 * * *
 
-\[portfolio display\_types=false display\_tags=false include\_tag=parels-belevenis columns=3\]
+

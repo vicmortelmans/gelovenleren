@@ -8,7 +8,7 @@ tags:
 coverImage: "image02.png"
 ---
 
-\[Update: vanaf oktober 2015 is Yahoo Pipes gestopt. Onderstaand artikel is dus voor een groot stuk niet langer relevant.\]
+
 
 Sta me toe even de technische toer op te gaan. Het gaat over de informatiestroom op internet. Het web is gebaseerd op een _pull_\-model. Dat wil zeggen dat je als gebruiker van het web pas nieuwe informatie krijgt, als je een website gaat bezoeken. Een blogger mag nog zo'n overvloed aan informatie _online_ zetten, zijn informatie zal jou niet bereiken als je niet zelf zijn website gaat bezoeken.
 
@@ -22,13 +22,13 @@ Ik ga nu beknopt uitleggen hoe je daar een mouw aan kan passen, met gebruik van 
 
 De eerste stap is het opzetten van een Yahoo Pipe. Let op: hoewel het op het eerste zicht gemakkelijk zal lijken, is een stevige voorkennis vereist van de structuur van een RSS-bestand, want dat is het concept waarrond Yahoo Pipes is opgebouwd. Wat doet nu zo'n Pipe? Je kan haar bijvoorbeeld programmeren om op een website bepaalde informatie op te halen, en die om te zetten naar een RSS-bestand. Ik heb hier bijvoorbeeld zo'n Pipe die op heiligen.net gaat kijken naar de pagina met de heiligen van vandaag, vervolgens de inhoud van de pagina's met de heiligenlevens overneemt, en dit omzet naar een RSS-bestand. En daar één voor beeldmeditaties.nl. Pipes programmeer je niet met code, maar met grafische instructieblokken die je aan mekaar hangt om stap voor stap de informatie te verwerken.
 
-\[caption id="attachment\_1069" align="aligncenter" width="404"\]![Yahoo Pipes](images/image01.png) Yahoo Pipes\[/caption\]
+![Yahoo Pipes](images/image01.png) Yahoo Pipes
 
 Een RSS-bestand kan je toevoegen aan je nieuwslezer om elke dag de heiligenlevens op een schoteltje te krijgen!
 
 Wat als je geen nieuwslezer gebruikt en de artikels liever per mail krijgt? Je kan [IFTTT](https://ifttt.com) gebruiken. "IFTTT" staat voor "if this then that". In IFTTT kan je inputs aan outputs koppelen. Zo'n input is bijvoorbeeld bovenstaand RSS-bestand, en als output kan je er je email aan koppelen. IFTTT gaat regelmatig naar de input kijken, en zodra er nieuwe informatie is zet hij die op email. De gebruikersomgeving van IFTTT straalt eenvoud uit, met grote visuele blokken en minimale tekst:
 
-\[caption id="attachment\_1068" align="aligncenter" width="492"\]![IFTTT](images/image00.png) IFTTT\[/caption\]
+![IFTTT](images/image00.png) IFTTT
 
 Je zou nog een stap verder kunnen gaan en met [MailChimp](http://mailchimp.com/) een heuse mailing opzetten, ook weer gekoppeld aan hetzelfde RSS-bestand. Dan kan iedereen zich aanmelden om dezelfde emails te ontvangen.
 

@@ -42,9 +42,9 @@ Jezus heeft tot aan de vooravond van zijn dood vaak 'versluierende taal' gebruik
 
 De voorzichtigheid heeft echter haar grenzen, en als Jezus explicieter wordt in zijn uitspraken, keren velen Hem de rug toe (Joh 6:64-66). Wat er ook toe zal leiden dat Hij uiteindelijk als 'schandaal' voor de joden aan het kruis gedood werd.
 
-Zo zegt Hij over zichzelf: "_Gelukkig is degene die aan mij geen aanstoot neemt"_ (Mt 11:6), en maar Hij waarschuwt tegelijk _"Wie over deze steen valt \[sprekend over zichzelf als de hoeksteen\], valt te pletter, en als hij op je valt, word je vermorzeld"_ (Mt 21:44).
+Zo zegt Hij over zichzelf: "_Gelukkig is degene die aan mij geen aanstoot neemt"_ (Mt 11:6), en maar Hij waarschuwt tegelijk _"Wie over deze steen valt , valt te pletter, en als hij op je valt, word je vermorzeld"_ (Mt 21:44).
 
-\[caption id="attachment\_1643" align="alignright" width="244"\]![](images/jesus-rebukes-peter-244x300.jpg) Ergernis over het kruis bij Petrus\[/caption\]
+![](images/jesus-rebukes-peter-244x300.jpg) Ergernis over het kruis bij Petrus
 
 Het kruis was ook een bron van ergernis, zelfs bij zijn eigen leerlingen. Wanneer Jezus voor de eerste keer openlijk met de leerlingen over zijn einde praat, en Petrus daaraan aanstoot neemt, antwoordt Jezus met de meest krasse taal _"Weg daar, achter Mij, satan. Je bent een struikelblok voor Mij, want jouw gedachten zijn niet Gods gedachten, maar die van mensen."_ (Mt 16:23) … de ergernis van Petrus, de ergernis van de mens over het offer van de Mensenzoon, is een schandaal voor God.
 
@@ -70,7 +70,7 @@ Dat is de boodschap van Jezus, voor de mensen een vat vol tegenstrijdigheden en 
 
 ### Hoe doet-ie-het?
 
-\[caption id="attachment\_6937" align="alignright" width="199"\]![](images/pope-francis-smiling-150x150.jpg) Hoe kan deze man je ergeren?\[/caption\]
+![](images/pope-francis-smiling-150x150.jpg) Hoe kan deze man je ergeren?
 
 Ondertussen is er wel iemand die er wonderwel in slaagt om geen ergernis te wekken, hoewel zijn boodschap in deze tijd toch schandaal is voor velen. Het is paus Franciscus, die op wonderlijke wijze  erin slaagt te spreken over heikele thema's uit de katholieke leer, zonder heel de pers over zich heen te krijgen.
 
@@ -90,4 +90,4 @@ Hopelijk kunnen de leerlingen van Jezus het onderscheid maken tussen ergernis en
 
 * * *
 
-\[portfolio display\_types=false display\_tags=false include\_tag=parels-ergernis columns=3\]
+

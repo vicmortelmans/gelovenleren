@@ -40,7 +40,7 @@ Paus Benedictus XVI
 
 Ook de paus erkent in deel I van “Jezus van Nazareth” dat het niet eenvoudig is om goed te bidden. Bidden mag geen “praatzucht zijn, de woordenvloed waarin de geest verstikt”, want dan prevelen we gebeden terwijl onze geest heel ergens anders is. Het meest present zijn we als we uit innerlijke nood om iets vragen, of God blij gestemd danken voor het goede dat ons overkwam. Dan lijkt het alsof je geen gebed meer nodig hebt, want dan is de gerichtheid op God verankerd in je ziel en de dragende grond van je bestaan. Maar kan dat wel, zeggen “mijn leven is mijn gebed”? De paus zegt: nee! Ook die gerichtheid op God heeft voeding nodig en aanknopingspunten in gebedsformuleringen waarin de Kerk als geheel of individuele gelovigen hun ontmoeting met God hebben neergelegd. “Want zonder die hulp bij het gebed wordt ons eigen bidden, en ons Godsbeeld, subjectief. Dan zegt het tenslotte meer over onszelf dan over de levende God.”
 
-![Jezus met de Samaritaanse vrouw](/wp-content/uploads/2014/12/sundayofthesamaritanwoman.jpg?w=254)
+![Jezus met de Samaritaanse vrouw](images/sundayofthesamaritanwoman.jpg?w=254)
 
 Jezus met de Samaritaanse vrouw
 

@@ -18,7 +18,7 @@ Een andere term die je dan wel eens tegenkomt is de [fenomenologie](http://nl.wi
 
 Het zal al duidelijk zijn dat beide perceptiestrategieen niet gericht zijn op het vinden van een objectieve waarheid, maar sterk neigen naar een subjectieve interpretatie. Ik zou nu kunnen beginnen drammen over de kwaal van het relativisme, maar hou me nog even in. Ik besef immers wel dat ook mijn godsdiensbeleving hermeneutisch en fenomenologisch is, al zou ik het zelf niet bedenken die termen te gebruiken.
 
-[![](/wp-content/uploads/2014/12/jezusindetempel1.jpg?w=300)](/wp-content/uploads/2014/12/jezusindetempel1.jpg)
+[![](/blog/de-fenomenologie-van-autisme-2-0/images/jezusindetempel1.jpg)](/blog/de-fenomenologie-van-autisme-2-0/images/jezusindetempel1.jpg)
 
 Maria vindt Jezus in de tempel
 

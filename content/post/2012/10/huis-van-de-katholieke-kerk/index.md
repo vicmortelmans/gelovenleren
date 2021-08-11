@@ -11,7 +11,7 @@ Met zo'n infrastructuur moet het een plezier zijn om actief kerkelijk te zijn en
 
 Ik heb natuurlijk ook even op de bijhorende [webstek](http://www.hdkk-stuttgart.de/index.php) rondgesnuisterd en wat ik dan vaak even doe is misschien een blijk van een slecht karakter, maar ik vraag me dan af of er naast het ruime aanbod van ontmoetingen en lezingen ook praktische informatie te vinden is voor de actieve gelovige, want daar durft het in zo'n onthaalcentrum dan wel eens aan schorten. "Waar kan ik op zondagavond nog naar de mis gaan", of "waar kan ik terecht voor de biecht?". Het komt me dan vreemd voor dat dit soort informatie vaak ver zoek is. Als je de zoektermen _"Sakrament der Versöhnung"_ of _"Beichte"_ ingeeft, is het resultaat inderdaad: _"Leider wurde mit Ihrer Suchangabe nichts gefunden."_ Toch jammer mocht er iemand op zoek gaan naar deze informatie, hoe klein die kans misschien ook is...
 
-\[caption id="" align="alignleft" width="288"\]![Haus der Katholischen Kirche in aanbouw](images/288px-Stuttgart_St_Eberhard_Seitenansicht.jpg "Haus der Katholischen Kirche in aanbouw") Zijaanzicht van de Domkirche bij de bouw van het "Haus der Katholischen Kirche". De witte zijgevel is nu volledig ingevat in het nieuwe gebouw.\[/caption\]
+![Haus der Katholischen Kirche in aanbouw](images/288px-Stuttgart_St_Eberhard_Seitenansicht.jpg "Haus der Katholischen Kirche in aanbouw") Zijaanzicht van de Domkirche bij de bouw van het "Haus der Katholischen Kirche". De witte zijgevel is nu volledig ingevat in het nieuwe gebouw.
 
 Nu gebiedt de eerlijkheid toe te geven dat wie wat doorklikt, toegang verkrijgt tot een andere kerkelijke [website](http://www.kath-kirche-stuttgart.de/gottesdienste/), waar wel gecentraliseerde informatie te vinden is over de agendering van misdiensten, biechtgelegenheid, rozenkransgebed en andere liturgische activiteiten in de Stuttgartse kerken. En dat is zelfs al een hele stap vooruit als je dezelfde data zoekt in Vlaanderen, waar je hoogstens de uren van de misdiensten kan vinden, en dan nog op een heel gebruiksonvriendelijke manier, door op kerknet.be één voor één al de parochies in de stad aan te klikken. Met de parochiale mobiliteit van de hedendaagse gelovige in het achterhoofd is de informatie op kerknet onbruikbaar, zeker in stedelijke context.
 
@@ -23,6 +23,6 @@ PS. om niet alleen maar kritiek te uiten, heb ik de daad bij het woord gevoegd e
 
 http://misvieringen.my28msec.com/misvieringen.html
 
-\[caption id="" align="alignnone" width="417"\]![Misvieringen in Vlaanderen](images/2012-10-17_0807.png "Misvieringen in Vlaanderen") Misvieringen in Vlaanderen\[/caption\]
+![Misvieringen in Vlaanderen](images/2012-10-17_0807.png "Misvieringen in Vlaanderen") Misvieringen in Vlaanderen
 
-\[update: intussen is er ook het platform [MapTiming](http://www.maptiming.com/ "MapTiming"), waarop events zoals misvieringen op de kaart kunnen worden gezet, voorlopig zijn echter enkel [aanbiddingen in Vlaanderen](https://adoremus.maptiming.com "Aanbidding in Vlaanderen") opgenomen\]
+

@@ -7,7 +7,7 @@ tags:
   - "islam"
 ---
 
-\[caption id="attachment\_2037" align="alignleft" width="254"\]![Belofte](images/sterwerk_tweedester_welp-254x300.jpg) Belofte\[/caption\]
+![Belofte](images/sterwerk_tweedester_welp-254x300.jpg) Belofte
 
 In tegenstelling tot Chiro, is Scouts en Gidsen Vlaanderen wel [gewonnen voor een allochtone jeugdbeweging](http://standaard.be/artikel/detail.aspx?artikelid=DMF20120202_141&word=chiro). Wil de Chiro dan niet dat allochtonen naar de jeugdbeweging gaan? Natuurlijk wel, maar ze willen gewoon dat ze naar de Vlaamse jeugdbeweging komen.
 
@@ -21,7 +21,7 @@ Als je in je vrije tijd jezelf al niet meer kan zijn!
 
 ‘We moeten ons blijven inspannen voor een multiculturele maatschappij waarin we echt samenleven’ Het klinkt mooi uit de mond van de Chirodirecteur, maar wat levert het op voor de kinderen en hun cultuur? Multiculturele ijveraars lopen niet over van respect voor eigen noch vreemde cultuur, want ze zijn blind voor het culturele relativisme dat nodig is om hun project te doen slagen. Netto-effect: nog meer vervreemding.
 
-Een jeugdbeweging is een vrijwilligersbeweging en berust op het engagement van de leden. Zullen er veel leiders gevonden worden voor zo'n multicultureel project? Of is het precies dat wat de directeur bekent als hij zegt: ‘Alleen is er meer nood aan structurele middelen om \[multiculturele\] Chirogroepen te begeleiden.’ Kan dus de 'multiculturele' jeugdbeweging niet meer zonder professionalisering? Dan doet ze zichzelf de das om! Deze jeugdbeweging is geen vrije 'jeugd'-beweging meer, maar een verkapte overheidsinstelling die geld en personeel krijgt om een slechte oplossing te bieden aan het migratiesamenlevingsprobleem.
+Een jeugdbeweging is een vrijwilligersbeweging en berust op het engagement van de leden. Zullen er veel leiders gevonden worden voor zo'n multicultureel project? Of is het precies dat wat de directeur bekent als hij zegt: ‘Alleen is er meer nood aan structurele middelen om  Chirogroepen te begeleiden.’ Kan dus de 'multiculturele' jeugdbeweging niet meer zonder professionalisering? Dan doet ze zichzelf de das om! Deze jeugdbeweging is geen vrije 'jeugd'-beweging meer, maar een verkapte overheidsinstelling die geld en personeel krijgt om een slechte oplossing te bieden aan het migratiesamenlevingsprobleem.
 
 Teveel tijd, teveel geld
 
@@ -33,7 +33,7 @@ Imamfaculteit
 
 Iedereen mag mee uit de pot eten, met een nieuwe imamfaculteit als laatst opgediende schotel. Maar al die begunstigden moet wel netjes binnen de lijntjes kleuren van de 'waarden van de verlichting'... want Vlaanderen vindt dat zo'n faculteit nodig is omdat de 'import'-imams niet voldoen aan de ideologische inzichten van... het Vlaamse parlement.
 
-\[caption id="" align="alignleft" width="97"\]![Alma Mater](images/931989-024601aecdd5f2c2174b1ec807096f78.gif "Alma Mater") Alma Mater\[/caption\]
+![Alma Mater](images/931989-024601aecdd5f2c2174b1ec807096f78.gif "Alma Mater") Alma Mater
 
 Ik zeg: droogleggen, die handel! Laat religies, culturen en aanverwante verenigingen zelf hun boontjes doppen en hun eigen cultuur verrijken. Het zal voor de katholieke 'zuil', het verwende nest, ook een lesje zijn. Schaf de faculteit van 'theologie en religiewetenschap' aan de KU Leuven gewoon af, want hoe kan je nu het geloof -vanuit het geloof, en dat is theologie- bestuderen aan een universiteit die zelfs geen banden met de kerk wil? Of was dat misschien de doorslaggevende reden om de 'K' te bewaren: het dreigende verlies van een faculteit (en bijhorend overheidsgeld)? Kerkelijke seminaries zijn immers veel geëigender plaatsen om theologie te onderwijzen, en dat geldt analoog vanzelsprekend ook voor een imamfaculteit.
 

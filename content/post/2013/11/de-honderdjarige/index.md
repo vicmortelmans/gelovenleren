@@ -10,7 +10,7 @@ coverImage: "omslag_dh_3d_web3269x3001.jpg"
 
 ### Bomans
 
-\[caption id="attachment\_595" align="alignright" width="197"\]![Godfried Bomans](/wp-content/uploads/2014/12/7421.jpg?w=197) Godfried Bomans\[/caption\]
+![Godfried Bomans](images/7421.jpg?w=197) Godfried Bomans
 
 Godfried Bomans zou dit jaar 100 worden. In Nederland (en wellicht ook in Vlaanderen) was hij voor de generatie van mijn ouders een gevierd sprookjesauteur en een populaire humoristische tv-personaliteit. Hij overleed vrij jong, in 1971, en daarna taande zijn bekendheid snel. Ik herinner me vaag dat we in mijn schooltijd (jaren '80) nog steeds Erik of het klein insectenboek lazen, maar in Vlaanderen lopen we altijd enkele decennia achter op onze noorderburen…
 
@@ -36,4 +36,4 @@ Naar het slot van de roman maakt de honderdjarige Bomans een ietwat cultuur-pess
 
 Het ziet er in het boek niet naar uit dat de mopperende honderdjarige spoedig zal sterven… hij lijkt wel eeuwig. En de vraag wie nu wie in de Kerk in de kou zet, zal ook wel eeuwig blijven zorgen voor ergernis. Misschien maar goed ook, want een katholiek _"hoeft zich geen zorgen te maken [wanneer de kerk hem ergert](http://blog.adw.org/2013/11/a-meditation-on-love-and-lament-for-the-church/ "A Meditation on Love and Lament for the Church By: Msgr. Charles Pope"). Hij moet zich pas zorgen gaan maken wanneer zij dat niet meer doet."_
 
-![De honderdjarige](/wp-content/uploads/2014/12/omslag_dh_3d_web3269x3001.jpg?w=134)Anton de Wit, _De honderdjarige_, ePUB, 15 euro (tot 30 november geldt een korting)
+![De honderdjarige](images/omslag_dh_3d_web3269x3001.jpg?w=134)Anton de Wit, _De honderdjarige_, ePUB, 15 euro (tot 30 november geldt een korting)

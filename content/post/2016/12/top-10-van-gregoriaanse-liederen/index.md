@@ -20,7 +20,7 @@ Vroeger werd elke mis of vesper afgesloten met een mariale antifoon en klonk het
 
 Een garantie op succes is het evenwel niet. Met de introductie van het nieuwe Onze Vader dacht ik: nu hebben ze me niet meer liggen! Nog voor de nieuwe versie goed en wel officieel van kracht ging, kon ik de gepubliceerde toonzetting al netjes uit het hoofd zingen. En dan kom je in een mis terecht waar men voor de eerste keer het nieuwe Onze Vader gaat zingen… op een toonzetting die een of andere lokale componist heeft opgesteld. Hoe verdienstelijk die ook moge zijn, in liturgische context is het een domper van formaat. Dan doe je eens je best, en sta je toch weer met je mond vol tanden. Contraproductieve creativiteit, vind ik dat. Ze zullen het ook nooit leren! Hou het dan liever bij gregoriaans...
 
-\[caption width="214" id="attachment\_3233" align="alignright"\][![](images/lof.pdf-214x300.png)](/portfolio/gregoriaanse-liederen/) Lof - gregoriaanse liederen\[/caption\]
+[![](images/lof.pdf-214x300.png)](/portfolio/gregoriaanse-liederen/) Lof - gregoriaanse liederen
 
 Zoals gewoonlijk proberen we het de lezer wat gemakkelijker te maken, dus kan je onder de rubriek "[Katholieke boekjes om zelf af te drukken](http://gelovenleren.net/katholieke-printerboekjes/)" nu een nieuwe publicatie vinden onder de titel "[Gregoriaanse liederen](/portfolio/gregoriaanse-liederen/)", die volgende ---volledig subjectieve--- top-10 van Latijnse liederen bevat:
 
@@ -41,4 +41,4 @@ Je vindt er versies van het boekje om te bestellen, online te lezen en af te dru
 
 Geen excuus meer om bij de volgende gelegenheid nog met de mond vol tanden te staan meeneuriën!!
 
-\[portfolio display\_types=false display\_tags=false include\_tag=lof columns=3\]
+

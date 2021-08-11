@@ -11,7 +11,7 @@ tags:
 
 Staat jouw parochierk op de kaart? En zoniet, hoe kan je ze er zelf opzetten?
 
-_[Download meteen de instructies als PDF](/wp-content/uploads/2014/12/zetjekerkopdekaart.pdf "Zet je kerk op de kaart!")._
+_[Download meteen de instructies als PDF](https://storage.googleapis.com/geloven-leren/printerboekjes/zetjekerkopdekaart.pdf "Zet je kerk op de kaart!")._
 
 Ga naar [google maps](https://maps.google.be/) en geef de zoekopdracht "kerk antwerpen", maar dan voor je eigen gemeente, en bekijk de resultaten op de kaart. Er is een grote kans dat je je kerk niet zal vinden, of hoogstens een bushalte die de naam 'kerk' draagt. Da's toch niet normaal, als je ziet dat de bakker om de hoek en de kapper in de straat wel op google maps zitten?
 
@@ -31,7 +31,7 @@ Het is immers niet Google zelf dat deze gegevens 'uitvindt', maar de gebruikers 
 
 Dat de kerk van Wommelgem in de eerst getoonde zoekresultaten verscheen is omdat ik ze er gisteren zelf aan heb toegevoegd. Dat de Heilig Hartkerk als 'katholieke kerk' herkend wordt, is omdat ikzelf die categorie heb aangebracht. Iemand anders moet hetzelfde hebben gedaan voor de Sint-Michiels-en-Sint-Pieterkerk in Antwerpen Zuid.
 
- \[update\] Op [deze kaart](/wp-content/uploads/2014/12/katholiekekerkeningooglemapmaker20130716.pdf "Katholieke kerken in google mapmaker op datum van 16 juli 2013") zie je de geregistreerde 'katholieke kerken' als rode bolletjes, op datum van 16 juli 2013.
+ \[update\] Op [deze kaart](https://storage.googleapis.com/geloven-leren/printerboekjes/katholiekekerkeningooglemapmaker20130716.pdf "Katholieke kerken in google mapmaker op datum van 16 juli 2013") zie je de geregistreerde 'katholieke kerken' als rode bolletjes, op datum van 16 juli 2013.
 
 ## Een nieuwe locatie aanmaken
 

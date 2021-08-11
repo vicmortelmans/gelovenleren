@@ -20,7 +20,7 @@ De website van Geloven Leren, de blog met "opinie en tools voor de katholieke ge
 
 De layout van de blog was dit jaar al eens gewijzigd. De overstap naar een eigen wordpressserver geeft echter veel meer vrijheid, en daarom is er nu weer een nieuwe layout, geïnspireerd op [Google's nieuwe layoutstandaard 'material design'](http://www.google.com/design/). Ik zweer bij Google, want dit bedrijf focust op wat essentieel is in hun producten. Voor een blog over geloof is dat geen gemakkelijke opdracht: focussen op wat essentieel is.
 
-\[caption id="attachment\_538" align="alignnone" width="640"\]![Material Design](images/nieuwe-layout-1024x568.png) Material Design\[/caption\]
+![Material Design](images/nieuwe-layout-1024x568.png) Material Design
 
 Jarenlang heb ik dankbaar gebruik gemaakt van [wordpress.com](http://store.wordpress.com/) als een heel toegankelijk blogplatform, tot een lezer me erop attent maakte dat sommige van de advertenties die wordpress.com op de blog zet aanstootgevende inhoud bevatten. Die advertenties zijn nodig, omdat bloggen op wordpress.com gratis is. "Gratis", zolang je netjes binnen de lijntjes kleurt! Voor de minste aanpassing moet je langs de kassa passeren: een eigen domeinnaam (zelfs als je die elders registreert!), een aanpassing van de layout, het afkopen dat de advertenties worden verwijderd,... Het zijn allemaal geen grote bedragen, maar je zit al snel aan 30 tot 40 euro per jaar.
 

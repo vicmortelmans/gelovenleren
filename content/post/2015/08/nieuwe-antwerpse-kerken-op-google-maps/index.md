@@ -14,7 +14,7 @@ In een [vorig artikel](/blog/voeg-je-kerk-toe-aan-google-maps/) zette ik uiteen 
 
 Niet enkel de gebruikers van Google Maps vinden zo je kerk, ook via de gewone Google zoekopdrachten krijg je meteen een kaartje met de locatie van je zoekresultaat:
 
-\[caption id="attachment\_1592" align="aligncenter" width="640"\][![Resultaat van een zoekopdracht naar een kerk die op Google Maps bekend is](images/search-kerk-1024x518.png)](https://www.google.be/search?q=sint-eligiuskerk+antwerpen&oq=sint-eligiuskerk+antwerpen) Resultaat van een zoekopdracht naar een kerk die op Google Maps bekend is\[/caption\]
+[![Resultaat van een zoekopdracht naar een kerk die op Google Maps bekend is](images/search-kerk-1024x518.png)](https://www.google.be/search?q=sint-eligiuskerk+antwerpen&oq=sint-eligiuskerk+antwerpen) Resultaat van een zoekopdracht naar een kerk die op Google Maps bekend is
 
 Dit zijn de nieuwe Antwerpse kerken op Google Maps:
 

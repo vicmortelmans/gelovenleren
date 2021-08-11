@@ -28,15 +28,15 @@ Why a Bible reading personal assistant? Because it's fun! I like technology proj
 
 **Entities** are 'things' you want the personal assistant to understand. In my case I need the assistant to understand which book of the Bible must be read, so I have defined an entity "bible-book" and supplied it with the names of all books in the Bible. A book can be known under different names. The user can ask for _"the gospel of John"_, or just for _"John"_. By defining the entities, the assistant will be able to identify the book and the synoyms help to distinguish between _"John"_ (i.e. the gospel) and _"the first letter of John"_.
 
-\[caption id="attachment\_3462" align="alignnone" width="640"\]![](images/image04-1024x858.png) Entity "bible-book"\[/caption\]
+![](images/image04-1024x858.png) Entity "bible-book"
 
 More experimental is the entity "bible-story", which lists titles for Bible stories. This entity is much less well-defined. There are hundreds of 'stories' in the Bible and they can have many different names. I found some lists of Bible stories on the web, but there's no canonical reference for this. Chances are that the user will use a name for a story that is not understood, like _"the woman at the well"_ i.o. _"the Samaritan woman"_. The only way to solve this is to keep track of the input once the assistant is released and to gradually improve the definitions in the entity. It would take an artificial intelligence that understands the stories of the Bible to get around this.
 
-\[caption id="attachment\_3463" align="alignnone" width="782"\]![](images/image02.png) Entity "bible-story"\[/caption\]
+![](images/image02.png) Entity "bible-story"
 
 The entity "reading-type" on the other hand is very simple. It defines the three different lectures during Holy Mass, each with its synonyms.
 
-\[caption id="attachment\_3464" align="alignnone" width="803"\]![](images/image00.png) Entity "reading-type"\[/caption\]
+![](images/image00.png) Entity "reading-type"
 
 ### Intents
 
@@ -68,11 +68,11 @@ Here's a simple example: the assistant may be programmed to ask a yes or no type
 
 To design the intents, I first made a drawing of some typical dialog flows:
 
-\[caption id="attachment\_3465" align="alignnone" width="640"\]![](images/image03-1024x1009.png) Dialog flows\[/caption\]
+![](images/image03-1024x1009.png) Dialog flows
 
 Then in a new drawing, the intents are layed out with their actions (webhooks), input contexts and output contexts:
 
-\[caption id="attachment\_3466" align="alignnone" width="986"\]![](images/image01.png) Intents\[/caption\]
+![](images/image01.png) Intents
 
 It looks quite complex, but when you're building it up, it grows organically.
 

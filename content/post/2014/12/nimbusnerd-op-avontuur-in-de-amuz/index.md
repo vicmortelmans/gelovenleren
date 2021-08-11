@@ -11,23 +11,23 @@ coverImage: "amuz_201008240031.jpg"
 
 Ik geef toe, wat hier volgt zal u ongetwijfeld worst wezen, maar bij wijze van _spielerei_ publiceer ik het toch, al is  het maar omdat dit blog [in beginsel over de verbeelding van het geloof gaat](/?s=verbeelding) als hulpmiddel om het geloof te begrijpen en over te dragen.
 
-\[caption id="attachment\_1280" align="alignleft" width="225"\][![Vierde artikel – Die geleden heeft onder Pontius Pilatus, gekruisigd is, gestorven en begraven](/wp-content/uploads/2014/12/05bpng500x667.jpg?w=225)](http://prentencatechismus.org/uncategorized/vierde-artikel-die-geleden-heeft-onder-pontius-pilatus-gekruisigd-is-gestorven-en-begraven/) Vierde artikel – Die geleden heeft onder Pontius Pilatus, gekruisigd is, gestorven en begraven\[/caption\]
+[![Vierde artikel – Die geleden heeft onder Pontius Pilatus, gekruisigd is, gestorven en begraven](images/05bpng500x667.jpg?w=225)](http://prentencatechismus.org/uncategorized/vierde-artikel-die-geleden-heeft-onder-pontius-pilatus-gekruisigd-is-gestorven-en-begraven/) Vierde artikel – Die geleden heeft onder Pontius Pilatus, gekruisigd is, gestorven en begraven
 
 De vraag is: _moet op een voorstelling van Jezus' begrafenis het dode lichaam voorzien zijn van een nimbus (aureool), of juist niet?_
 
 Vorige week bekeken we in onze oude prentencatechismus de prent van het vierde artikel van de geloofsbelijdenis, ["Die geleden heeft onder Pontius Pilatus, gekruisigd is, gestorven en begraven"](http://prentencatechismus.org/uncategorized/vierde-artikel-die-geleden-heeft-onder-pontius-pilatus-gekruisigd-is-gestorven-en-begraven/). De prent toont vier taferelen: links boven wordt Jezus gegeseld, rechts boven wordt Jezus op het kruis genageld, centraal sterft Jezus aan het kruis (en ---voor de liefhebbers--- links onderaan [gaan op dat ogenblik de graven open van veel gestorven heiligen](http://www.verhoevenmarc.be/PDF/graven-geopend.pdf), Mt 27:53) en rechts onderaan wordt Jezus begraven.
 
-\[caption id="attachment\_1282" align="alignright" width="150"\]![De begrafenis van Jezus, het lichaam krijgt geen nimbus!](/wp-content/uploads/2014/12/05bpng.jpg?w=150) De begrafenis van Jezus, het lichaam krijgt geen nimbus!\[/caption\]
+![De begrafenis van Jezus, het lichaam krijgt geen nimbus!](images/05bpng.jpg?w=150) De begrafenis van Jezus, het lichaam krijgt geen nimbus!
 
 Eén van de kinderen viel iets op wat mij tot nu toe ontging: op de eerste drie taferelen krijgt Jezus een nimbus, maar op het vierde niet!
 
 De tekenaar moet dit wel met opzet zo voorzien hebben. Zijn redenering was ongetwijfeld dat Jezus' dode lichaam geen nimbus behoeft omdat zijn Ziel het lichaam verlaten heeft. Die toefde immers in het dodenrijk ("die neergedaald is ter helle", zoals de geloofsbelijdenis het verwoordt).
 
-\[caption id="attachment\_1283" align="alignleft" width="225"\][![Vijfde artikel – Die nedergedaald is ter helle](/wp-content/uploads/2014/12/06bpng500x6671.jpg?w=225)](http://prentencatechismus.org/uncategorized/vijfde-artikel-die-nedergedaald-is-ter-helle/) Vijfde artikel – Die nedergedaald is ter helle\[/caption\]
+[![Vijfde artikel – Die nedergedaald is ter helle](images/06bpng500x6671.jpg?w=225)](http://prentencatechismus.org/uncategorized/vijfde-artikel-die-nedergedaald-is-ter-helle/) Vijfde artikel – Die nedergedaald is ter helle
 
 Dat tafereel toont dezelfde prentencatechismus op de volgende bladzijde met een heel mooie prent, die Jezus' ziel afbeeldt die het dodenrijk binnentreedt, met het kruis nog in de hand, om aan te tonen dat het een zinnebeeldige voorstelling betreft. Op deze prent krijgt Jezus wel de nimbus.
 
-\[caption id="attachment\_1293" align="alignright" width="200"\][![Een blik in de foyer van Amuz. Als je goed kijkt zie je rechts onder Christus die ten grave wordt gedragen mét nimbus!](/wp-content/uploads/2014/12/amuz_201008240031.jpg?w=200)](/wp-content/uploads/2014/12/amuz_201008240031.jpg) Een blik in de foyer van Amuz. Als je goed kijkt zie je rechts onder Christus die ten grave wordt gedragen mét nimbus!\[/caption\]
+[![Een blik in de foyer van Amuz. Als je goed kijkt zie je rechts onder Christus die ten grave wordt gedragen mét nimbus!](images/amuz_201008240031.jpg?w=200)](images/amuz_201008240031.jpg) Een blik in de foyer van Amuz. Als je goed kijkt zie je rechts onder Christus die ten grave wordt gedragen mét nimbus!
 
 Het toeval wil dat ik 's anderendaags in de voormalige Antwerpse Sint-Augustinuskerk (nu: Amuz) een concert bijwoonde. De foyer van de concertzaal is een vroegere kapel met prachtige wandschilderingen, waaronder een voorstelling van Christus die begraven wordt... mét nimbus!
 
@@ -58,4 +58,4 @@ Misschien is het dan toch nog goed om af en toe eens over iets onbenulligs het h
 
 Tot slot de beloofde illustraties waarop Jezus' lichaam wordt afgebeeld mét nimbus:
 
-![20120507-burial%20Hungarianpraymanuscript1192-1195%202[1]](/wp-content/uploads/2014/12/20120507burial20hungarianpraymanuscript119211952021.jpg?w=150)![the-burial-of-jesus[1]](/wp-content/uploads/2014/12/theburialofjesus11.jpg?w=97)![foot-crossmain3[1]](/wp-content/uploads/2014/12/footcrossmain31.jpg?w=99)![burial11[1]](/wp-content/uploads/2014/12/burial111.jpg?w=150)![Christ's_burial[1]](/wp-content/uploads/2014/12/christs_burial1.jpg?w=108)![tekening](/wp-content/uploads/2014/12/tekening.png?w=150)![Burial_of_Christ_(Epitaphios,_Inscription_in_Greek)[1]](/wp-content/uploads/2014/12/burial_of_christ_epitaphios_inscription_in_greek1.jpg?w=150)
+![20120507-burial%20Hungarianpraymanuscript1192-1195%202[1]](images/20120507burial20hungarianpraymanuscript119211952021.jpg?w=150)![the-burial-of-jesus[1]](images/theburialofjesus11.jpg?w=97)![foot-crossmain3[1]](images/footcrossmain31.jpg?w=99)![burial11[1]](images/burial111.jpg?w=150)![Christ's_burial[1]](images/christs_burial1.jpg?w=108)![tekening](images/tekening.png?w=150)![Burial_of_Christ_(Epitaphios,_Inscription_in_Greek)[1]](images/burial_of_christ_epitaphios_inscription_in_greek1.jpg?w=150)

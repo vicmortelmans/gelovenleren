@@ -18,11 +18,11 @@ De gegevens voor biechtgelegenheid pluk ik van de website van het Nederlandse [S
 
 Zo zien de kaartjes er uit, en als je erop klikt, kom je op de 'live' versie:
 
-\[caption id="attachment\_3343" align="alignnone" width="640"\][![](images/Naar-de-mis-in-Vlaanderen-biechtgelegenheid-1024x501.png)](http://naar-de-mis.maptiming.com/50.973188,4.087053,9z,676px/all/biecht) Biechtgelegenheid in Vlaanderen\[/caption\]
+[![](images/Naar-de-mis-in-Vlaanderen-biechtgelegenheid-1024x501.png)](http://naar-de-mis.maptiming.com/50.973188,4.087053,9z,676px/all/biecht) Biechtgelegenheid in Vlaanderen
 
  
 
-\[caption id="attachment\_3344" align="alignnone" width="640"\][![](images/Naar-de-mis-in-Vlaanderen-tridentijns-1024x501.png)](http://naar-de-mis.maptiming.com/50.973188,4.087053,9z,676px/all/hash/tridentijns) Tridentijnse Missen in Vlaanderen\[/caption\]
+[![](images/Naar-de-mis-in-Vlaanderen-tridentijns-1024x501.png)](http://naar-de-mis.maptiming.com/50.973188,4.087053,9z,676px/all/hash/tridentijns) Tridentijnse Missen in Vlaanderen
 
 Wie correcties of aanvullende gegevens heeft, mag die altijd doorspelen naar [info@gelovenleren.net](mailto:info@gelovenleren.net). Je kan ze ook [zelf invoeren](http://www.maptiming.com/nl/category/help-nl/).
 

@@ -24,7 +24,7 @@ Voor je naar een priester stapt, moet je eerst de keuze maken hoe je wil biechte
 
 **Biechtstoel**
 
-![Evenement-biechtstoelen](/wp-content/uploads/2014/12/1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg?w=150)
+![Evenement-biechtstoelen](images/1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg?w=150)
 
 Evenement-biechtstoelen
 
@@ -75,15 +75,15 @@ Heel concreet over een goed gewetensonderzoek en over het verloop van de biecht:
 - [Biechtspiegel aan de hand van je gelaat](https://www.lambertuskerk-rotterdam.nl/biechtspiegel.html)
 - [Biechtspiegel](http://users.telenet.be/katholieke-informatie/Biecht/Biechtspiegel.html)
 
-[![](images/biechtspiegel_voor_kinderen1-700x350.jpg)](/wp-content/uploads/2019/05/biecht_kinderen_nieuw.pdf)
+[![](images/biechtspiegel_voor_kinderen1-700x350.jpg)](images/biecht_kinderen_nieuw.pdf)
 
 Biechtspiegel voor kinderen
 
-[![](images/biechtspiegel_voor_jongeren1-700x350.jpg)](/wp-content/uploads/2019/05/biecht_jongeren_nieuw.pdf)
+[![](images/biechtspiegel_voor_jongeren1-700x350.jpg)](images/biecht_jongeren_nieuw.pdf)
 
 Biechtspiegel voor jongeren
 
-[![](images/biechtspiegel_voor_volwassenen1-700x350.jpg)](/wp-content/uploads/2019/05/biecht_volwassenen_nieuw.pdf)
+[![](images/biechtspiegel_voor_volwassenen1-700x350.jpg)](images/biecht_volwassenen_nieuw.pdf)
 
 Biechtspeigel voor volwassenen
 

@@ -20,16 +20,16 @@ Geen verwijt echter naar de liturgisten. Als er een verwijt te maken valt, is he
 
 Goed, aan het werk dus. Partituur bij de hand, even beluisteren op Youtube, en studeren die handel. Dat het niet tot Pasen duurt voor je het van buiten kent!
 
-\[embed\]https://youtu.be/UmSCdkHh0Kw?t=133\[/embed\]
+https://youtu.be/UmSCdkHh0Kw?t=133
 
-\[caption id="attachment\_3062" align="aligncenter" width="434"\][![Partituur van het nieuwe Onze Vader](images/PartituurOnzevader.jpg)](https://www.kerknet.be/kerknet-redactie/audio/leer-het-nieuwe-onzevader-zingen-met-partituur) Partituur van het nieuwe Onze Vader\[/caption\]
+[![Partituur van het nieuwe Onze Vader](images/PartituurOnzevader.jpg)](https://www.kerknet.be/kerknet-redactie/audio/leer-het-nieuwe-onzevader-zingen-met-partituur) Partituur van het nieuwe Onze Vader
 
 Wat mij bij het beluisteren (en meezingen) van het nieuwe Onze Vader meteen opviel, is het ontbreken van het "amen" na de [doxologie](https://meneergodsdienst.wordpress.com/2013/04/30/waarom-is-het-onze-vader-langer-in-de-mis/) "Want van U is het koninkrijk, en de kracht en de heerlijkheid,..." Nu kan ik me vergissen, maar ik meende toch dat we vroeger in de mis bij het zingen van het Onze Vader er altijd een "amen" op lieten volgen. En wat blijkt! In de liturgie hoort er achter het Onze Vader helemaal geen "amen". Toch is dat blijkbaar in onze gewesten zodanig de gewoonte geworden, dat zelfs mijn Latijn-Nederlands missaal in de kolom voor het Nederlands netjes een "amen" toevoegt dat er in het Latijn helemaal niet staat. Nu zal je zeggen: "waar die zich druk om maakt", maar ik ben toch blij dat de liturgisten van vandaag iets zorgvuldiger omgaan met de universaliteit van de heilige Mis. Ons Vlaamse kerkje is immers geen buurtspeeltuin. Wat meer achtergrond over dat mysterieuze "amen" vind je hier.
 
-\[caption id="attachment\_3061" align="aligncenter" width="640"\]!["amen" na het Onze Vader](images/20160925_223128-1024x576.jpg) "amen" na het Onze Vader\[/caption\]
+!["amen" na het Onze Vader](images/20160925_223128-1024x576.jpg) "amen" na het Onze Vader
 
 Voor wie dit allemaal veel te ingewikkeld is, meer van eenvoudige melodieën houdt en bij het oude blijft: er is ook nog de gregoriaanse versie van het Pater Noster, die je gerust nog eens mag opfrissen, want je zal ze vroeg of laat in de liturgie zeker nog eens tegenkomen:
 
-\[embed\]https://www.youtube.com/watch?v=fCyFbLMepZ0\[/embed\]
+https://www.youtube.com/watch?v=fCyFbLMepZ0
 
-\[caption id="attachment\_3063" align="aligncenter" width="434"\][![Partituur van het Pater Noster](images/Pater-Noster-864x1024.jpg)](images/Pater-Noster.jpg) Partituur van het Pater Noster\[/caption\]
+[![Partituur van het Pater Noster](images/Pater-Noster-864x1024.jpg)](images/Pater-Noster.jpg) Partituur van het Pater Noster

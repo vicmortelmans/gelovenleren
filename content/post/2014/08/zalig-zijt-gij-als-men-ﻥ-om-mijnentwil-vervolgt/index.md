@@ -10,7 +10,7 @@ coverImage: "minimierennest.png"
 
 Persoonlijk volg ik de gebeurtenissen in Syrie, Irak en de Gazastrook niet in detail. Het zijn conflicten die al jarenlang aanslepen, en dat ongetwijfeld nog jarenlang zullen blijven. De kinderen zaten deze week toevallig te lezen in het Mini-mierennest van Suske en Wiske, waarin de Israelische kwestie gepersifleerd wordt… een strip van 1967 nog steeds brandend actueel. Dat ontneemt mij de illusie dat de moeite die ik erin zou steken om deze actualiteit op de voet te volgen nuttig kan zijn.
 
-\[caption id="attachment\_971" align="aligncenter" width="525"\][![uit "Het mini-mierennest"(Willy Vandersteen)](/wp-content/uploads/2014/12/minimierennest.png?w=525)](/wp-content/uploads/2014/12/minimierennest.png) uit "Het mini-mierennest" (Willy Vandersteen)\[/caption\]
+[![uit "Het mini-mierennest"(Willy Vandersteen)](images/minimierennest.png?w=525)](images/minimierennest.png) uit "Het mini-mierennest" (Willy Vandersteen)
 
 Niettemin lijkt er toch één factor te zijn die vandaag meer en meer de hoofdrol krijgt: godsdienst. De oorsprong van de joodse staat is niet zozeer religieus, maar veeleer etnisch en nationalistisch. De Israelische kwestie is er een van grond, niet van geloof. Maar de jongste decennia is in de politiek, zowel in Israel als in de buurlanden, religie een factor van belang geworden.
 
@@ -18,7 +18,7 @@ Dat maakt het voor het Westen een pak moeilijker om in te grijpen. In een territ
 
 Dus evenmin als ikzelf behoefte voel om het conflict te analyseren, lijkt de politiek geneigd om zich erg met de zaken in te laten. Als buitenlandminister neemt Didier Reynders in het religieuze conflict zelf geen positie in, maar [doet beroep op de religieuze gemeenschappen](http://www.standaard.be/cnt/dmf20140731_01198841) om vanuit België een veroordeling te laten weerklinken, onder het motto: die het schoentje past, hij trekke het aan. Zelfs de paus, herder van de vervolgde gemeenschap, [blijft voorzichtig op de vlakte](http://www.news.va/en/news/pope-calls-for-dialogue-in-iraq). Is dan de enige troost voor vervolgde christenen de belofte die Christus in de [bergrede](http://www.willibrordbijbel.nl/index.php?p=page&i=64073,64088) jegens hen uitsprak?
 
-\[caption id="attachment\_973" align="aligncenter" width="525"\][![Now leaving Mosul (Gary Varvel, @varvel)](images/nowleavingmosulgaryvarvelvarvel.jpg)](/wp-content/uploads/2014/12/nowleavingmosulgaryvarvelvarvel.jpg) Now leaving Mosul (Gary Varvel, @varvel)\[/caption\]
+[![Now leaving Mosul (Gary Varvel, @varvel)](images/nowleavingmosulgaryvarvelvarvel.jpg)](images/nowleavingmosulgaryvarvelvarvel.jpg) Now leaving Mosul (Gary Varvel, @varvel)
 
 Het enige verschil dat we kunnen maken, is oog te hebben voor de voornaamste slachtoffers: de burgers. Maar ook daar wordt het een beetje moeilijk het juiste evenwicht te zoeken in de verdeling van de aandacht. Bloggers Anton de Wit en Mark van de Voorde winden zich terecht op omdat de systematisch vervolging van christenen in de conflictgebieden een blinde vlek lijkt in het oog van het Westen. Frankrijk neemt gelukkig de voorhoede door [asiel aan te bieden voor gevluchte christenen](http://www.redstate.com/2014/07/30/france-offers-asylum-iraqi-christians-obama-turns-back/).
 

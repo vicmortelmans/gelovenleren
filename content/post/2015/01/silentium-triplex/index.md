@@ -17,7 +17,7 @@ Te weinig tijd vind ik om nieuwe artikeltjes voor mijn blog te schrijven. Nochta
 
 **Katholiekst Vlaams Hoogstudentenverbond**
 
-\[caption id="attachment\_582" align="alignright" width="288"\]![Katholiek student zit op zijn paard na uitlating van bisschop](images/verbondswacht-op-leeuw-fre-288x300.png) Katholiek student zit op zijn paard na uitlating van bisschop\[/caption\]
+![Katholiek student zit op zijn paard na uitlating van bisschop](images/verbondswacht-op-leeuw-fre-288x300.png) Katholiek student zit op zijn paard na uitlating van bisschop
 
 Een eerste artikel zou er komen naar aanleiding van de fameuze [persmededeling van het KVHV](http://newsmonkey.be/article/27700 "KVHV Antwerpen: ‘Monseigneur Bonny, wat u voorstelt is niet katholiek!’"), die intussen ook weeral oud nieuws is geworden, maar ik had al een lijstje opgesteld met redenen waarom ik die stok in het hoenderhok wel kon waarderen.
 
@@ -31,7 +31,7 @@ Goed, dat was dus het eerste artikel.
 
 **Zwijgen**
 
-\[caption id="attachment\_3103" align="alignleft" width="237"\]![Maria bewaarde dit alles in haar hart en dacht erover na](images/maria-bewaarde-alles-in-haar-hart-237x300.jpg) Maria bewaarde dit alles in haar hart en dacht erover na\[/caption\]
+![Maria bewaarde dit alles in haar hart en dacht erover na](images/maria-bewaarde-alles-in-haar-hart-237x300.jpg) Maria bewaarde dit alles in haar hart en dacht erover na
 
 Het tweede artikel had moeten gaan over het concept 'zwijgen' in het geloof. Het toeval wil dat ik op enkele dagen tijd meermaals iets over 'zwijgen' las… en dan begin je verbanden te zien (waar ze niet zijn).
 
@@ -39,7 +39,7 @@ Het begon met het feest dat de kerk viert op 1 januari, en dat is niet 'nieuwjaa
 
 Daags nadien kwam de uitnodiging voor de lezingen aan het UCSIA, waar ik me ingeschreven heb voor "[Zwijgen over God](http://www.ucsia.org/main.aspx?c=*UCSIA2&n=121011&ct=121011)", een lezing over ‘negatieve theologie’ en _‘wovon man nicht sprechen kann, darüber muss man schweigen’_. Precies wat Maria ook deed! Is Onze-Lieve-Vrouw dan de pionier van de 'negatieve theologie'? Dat zal ik op 19 februari misschien te weten komen…
 
-Enkele dagen later, op de vooravond van driekoningen, schrijft Grossouw in zijn bezinning voor _Innerlijk Leven_ over het [Goddelijke Zwijgen](/blog/het-goddelijke-zwijgen/): _"Slechts in diepe ingetogenheid en in het eerbiedig zwijgen van onze geest waartoe de liturgie ons wil leiden, zullen wij deel hebben aan het mysterie van Gods komst. \[...\] O, niet enkel de vertedering om het Kindje dat koude lijdt, niet enkel bekering der harten tot verzoening en goedheid betekent kerstmis, — maar allereerst: verschijning van het Woord die onze geest verlicht met een hemels licht en onze ogen verblindt met bovenaardse luister en onze onrust vangt in het eeuwige zwijgen van het goddelijk geheim."_ Een subtiele manier om te zeggen dat bezig zijn met moraal wel goed is, maar dat dit het geloof niet mag overschaduwen, of als ik daarop voortbouw: dat het geen zin heeft om ons bij gebrek aan geloof slechts met moraal bezig te houden om onze religie vorm te geven.
+Enkele dagen later, op de vooravond van driekoningen, schrijft Grossouw in zijn bezinning voor _Innerlijk Leven_ over het [Goddelijke Zwijgen](/blog/het-goddelijke-zwijgen/): _"Slechts in diepe ingetogenheid en in het eerbiedig zwijgen van onze geest waartoe de liturgie ons wil leiden, zullen wij deel hebben aan het mysterie van Gods komst.  O, niet enkel de vertedering om het Kindje dat koude lijdt, niet enkel bekering der harten tot verzoening en goedheid betekent kerstmis, — maar allereerst: verschijning van het Woord die onze geest verlicht met een hemels licht en onze ogen verblindt met bovenaardse luister en onze onrust vangt in het eeuwige zwijgen van het goddelijk geheim."_ Een subtiele manier om te zeggen dat bezig zijn met moraal wel goed is, maar dat dit het geloof niet mag overschaduwen, of als ik daarop voortbouw: dat het geen zin heeft om ons bij gebrek aan geloof slechts met moraal bezig te houden om onze religie vorm te geven.
 
 ****Zekerheden****
 
