@@ -20,4 +20,3 @@ Op deze website vind je het [Lijdensverhaal](/portfolio/lijdensverhaal/) en tal 
 
 Je kan de scripts zelf afdrukken en gebruiken in de klas in de lagere school of in de godsdienstles of met de kinderen thuis of op de parochie om het Lijdensverhaal beter te beleven. Of je dat inkleedt met een verkleedpartij, is je eigen keuze, maar het hoeft niet. Ga er ongedwongen me aan de slag!
 
-\[portfolio display\_types=false display\_tags=false include\_tag=toneel-lijdensverhaal columns=3\]

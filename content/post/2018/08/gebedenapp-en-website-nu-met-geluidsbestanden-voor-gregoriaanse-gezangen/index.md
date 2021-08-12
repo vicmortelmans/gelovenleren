@@ -15,4 +15,4 @@ De website [gebeden.gelovenleren.net](https://gebeden.gelovenleren.net) bevat nu
 
 Dezelfde wijzigingen zijn beschikbaar in de Android-app [Katholieke Gebeden](https://play.google.com/store/apps/details?id=net.gelovenleren.gebeden).
 
-\[appbox googleplay net.gelovenleren.gebeden\]
+{{< appbox googleplay net.gelovenleren.gebeden >}}

@@ -23,7 +23,7 @@ https://www.youtube.com/watch?v=tQoZW0HBuPs
 
 Afgeleid van de gelijknamige website. Heb je behoefte aan een kort ogenblik gebed of bezinning, open de app en met één klik krijg je toepasselijke inhoud voorgeschoteld.  
 
-\[appbox googleplay net.gelovenleren.alledaags\]
+{{< appbox googleplay net.gelovenleren.alledaags >}}
 
 ## 5 Nieuwe kaarten op "Alledaags Geloven"
 
@@ -37,7 +37,7 @@ De liturgische kalender van de webiste [Missale](http://www.missale.net/nl) is a
 
 Het volledige Kyriale is nu opgenomen op de [website met katholieke gebeden](https://gebeden.gelovenleren.net/#) en alle liederen zijn voorzien van een geluidsbestand, zowel op de website als in de Android app.  
 
-\[appbox googleplay net.gelovenleren.gebeden\]
+{{< appbox googleplay net.gelovenleren.gebeden >}}
 
 ## Bijbelverwijzingen op Prentencatechismus werken weer
 

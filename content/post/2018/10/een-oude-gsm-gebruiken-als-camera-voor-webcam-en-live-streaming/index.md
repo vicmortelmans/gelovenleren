@@ -114,7 +114,15 @@ De meeste hulpstukken vind je bij [https://www.allekabels.nl](https://www.allek
 
 Dit zijn de benodigde apps:
 
-\[appbox googleplay com.teamviewer.host.market\] \[appbox googleplay com.teamviewer.teamviewer.market.mobile\] \[appbox googleplay com.google.android.youtube\] \[appbox googleplay com.facebook.pages.app\] \[appbox googleplay com.llamalab.automate\]
+{{< appbox googleplay com.teamviewer.host.market>}} 
+
+{{< appbox googleplay com.teamviewer.teamviewer.market.mobile >}}
+
+{{< appbox googleplay com.google.android.youtube>}}
+
+{{< appbox googleplay com.facebook.pages.app >}}
+
+{{< appbox googleplay com.llamalab.automate >}}
 
 Zo ziet een scriptje op Automate eruit, dat voor de registratie van de webcambeelden zorgt:
 

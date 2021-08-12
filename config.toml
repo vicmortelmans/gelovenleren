@@ -22,7 +22,7 @@ copyrightHolder = 'info@gelovenleren.net'
 # Navigation menu 
 # -----------------------------------------------------------------------
 [[menu.nav]]
-  name = "Opinie"
+  name = "Artikels"
   pre = "<i class='fas fa-home la-lg'></i>"
   weight = -110 
   identifier = "artikels"

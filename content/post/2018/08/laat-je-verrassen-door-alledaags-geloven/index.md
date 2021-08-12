@@ -17,7 +17,7 @@ Op de website [Alledaags Geloven](http://alledaags.gelovenleren.net/), vind je t
 
 Omdat de keuze overweldigend is, zie je op verschillende plaatsen op de website het icoon van een duif: het symbool van de Heilige Geest. Als je daarop klikt, krijg je willekeurige inhoud te zien. Ik zeg "willekeurig", en in termen van het achterliggende computeralgoritme is dat natuurlijk zo, maar de praktijk leert dat je net dan vaak de meest inspirerende artikels te lezen krijgt, als je je tenminste openstelt voor **de werking van de Geest**.  
 
-\[appbox googleplay net.gelovenleren.alledaags\]
+{{< appbox googleplay net.gelovenleren.alledaags >}}
 
 Dat aspect van de workflow is nu verder uitgewerkt tot een heuse [app op Android](https://play.google.com/store/apps/details?id=net.gelovenleren.alledaags). Eerst wilde ik gewoon de website omzetten tot een app, maar dat brengt weinig toegevoegde waarde; dan kan je evengoed een shortcut naar de website op je homescreen zetten.  
 

@@ -13,6 +13,6 @@ De kracht van gebed is herhaling. In uitzonderlijke, acute omstandigheden kan ee
 
 Bovenstaande PDF bundelt volgende drie artikels samen in een afruk-klare layout:
 
-- [Getijdengebed](/2016/07/2016-07-20-getijdengebed-2/)
-- [Rozenkrans](/2016/07/2016-07-21-rozenkrans/)
-- [Noveen](/2016/07/2016-07-22-noveen/)
+- [Getijdengebed](/blog/getijdengebed-2/)
+- [Rozenkrans](/blog/rozenkrans/)
+- [Noveen](/blog/noveen/)

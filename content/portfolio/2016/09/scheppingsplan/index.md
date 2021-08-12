@@ -9,5 +9,5 @@ Infografiek over het heilsplan van God, in Nederlands en Engels.
 
 <!--more-->
 
-[HET SCHEPPINGSPLAN](/page/2014/05/2014-05-30-gods-scheppingsplan/)
+[HET SCHEPPINGSPLAN](/page/gods-scheppingsplan/)
 

@@ -12,4 +12,4 @@ Ook elders in Antwerpen heeft men het videopastoraal omarmd. De [priesterbroeder
 
 [![](images/fsspx.png)](https://alledaags.gelovenleren.net/link/NDg4ODg3NDY3MTY0NTI=)
 
-\[appbox googleplay net.gelovenleren.alledaags\]
+{{< appbox googleplay net.gelovenleren.alledaags >}}

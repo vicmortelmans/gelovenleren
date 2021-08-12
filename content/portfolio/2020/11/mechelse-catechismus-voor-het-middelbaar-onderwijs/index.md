@@ -14,3 +14,6 @@ Heruitgave van "Beknopte verklaring van den Mechelse Catechismus ten gebruike va
 [Afdruk bestellen](https://www.peecho.com/print/en/758890)
 
 [Preview op Issuu](https://issuu.com/vicmortelmans/docs/mechelse-catechismus-1623)
+
+De volledige inhoud is gedigitaliseerd en gepubliceerd op de website [mechelse.gelovenleren.net](https://mechelse.gelovenleren.net/)
+.

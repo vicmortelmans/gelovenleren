@@ -91,16 +91,16 @@ Christus heeft zich niet verenigd met een vrouw, maar zijn bruid zijn wij. Door 
 
 > Dit is een meer uitgebreide reportage van het bezoek aan België.
 
-\[embed\]https://www.youtube.com/watch?v=bq244VcpT2w\[/embed\]
+{{< youtube bq244VcpT2w >}}
 
 En hier is en nog uitgebreidere reportage, van [Radio Maria](http://www.radiomaria.be/), in vier delen, opgeluisterd met foto's van [Studio Alijn](http://www.huisvanalijn.be/info/opzoekingen-doen).
 
-\[embed\]https://youtu.be/X3x325Ib-FY\[/embed\]
+{{< youtube X3x325Ib-FY >}}
 
-\[embed\]https://youtu.be/U6OYmR6xI3w\[/embed\]
+{{< youtube U6OYmR6xI3w >}}
 
-\[embed\]https://youtu.be/cJ20v999y9c\[/embed\]
+{{< youtube cJ20v999y9c >}}
 
-\[embed\]https://youtu.be/-ysKtkmdYLg\[/embed\]
+{{< youtube -ysKtkmdYLg >}}
 
 [Download dit artikel als PDF](/portfolio/theologie-van-het-lichaam/)

@@ -25,8 +25,6 @@ De vakantiemaanden bezorgden dit blog een _boost_ in productiviteit. Omdat u mis
 - [De Leerlingen van Johannes](/blog/de-leerlingen-van-johannes-bijbeltoneel/)
 - [De Verloren Zoon](/blog/de-verloren-zoon-bijbeltoneel/)
 
-\[portfolio display\_types=false display\_content=false display\_tags=false include\_type=toneel include\_tag=zomer-2016 columns=5\]
-
 * * *
 
 ### Drie nieuwe catecheseartikels
@@ -35,8 +33,6 @@ De vakantiemaanden bezorgden dit blog een _boost_ in productiviteit. Omdat u mis
 - [Getijdengebed](/blog/getijdengebed-2/), [Rozenkrans](/blog/rozenkrans/) en [Noveen](/blog/noveen/)
 - [De theologie van het lichaam](/blog/de-theologie-van-het-lichaam/)
 
-\[portfolio display\_types=false display\_content=false display\_tags=false include\_type=parels include\_tag=zomer-2016 columns=5\]
-
 * * *
 
 ### Twee nieuwe boekuitgaven
@@ -44,16 +40,12 @@ De vakantiemaanden bezorgden dit blog een _boost_ in productiviteit. Omdat u mis
 - [Luistert naar Hem](/blog/een-designstoel-als-eindpunt-van-een-catechetisch-tijdperk/) (prentencatechismus), online en te downloaded als e-boek (EPUB) en te [bestellen als boek](/blog/luistert-naar-hem-via-print-on-demand/)
 - [De Heilige Schrift](/blog/bijbelvertaling-petrus-canisius-studiebijbel-gratis-downloaden/) (bijbelvertaling 'Petrus Canisius'), te downloaden als e-boek of werkbijbel
 
-\[portfolio display\_types=false display\_content=false display\_tags=false include\_type=eboek,catechese include\_tag=zomer-2016 columns=5\]
-
 * * *
 
 ### Twee mobiele apps (Android)
 
 - [Katholieke Radio](/blog/mobiele-app-laat-je-katholieke-radiozenders-beluisteren/)
 - [Naar de Mis](/blog/mobiele-app-vertelt-waar-je-naar-de-mis-kan-gaan/)
-
-\[portfolio display\_types=false display\_content=false display\_tags=false include\_type=app include\_tag=zomer-2016 columns=5\]
 
 * * *
 

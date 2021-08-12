@@ -114,7 +114,7 @@ Vroeger was de Kerk heel goed in het aanleggen van lijstjes. 10 geboden van God,
 
 Download dit catecheseartikel of [andere artikels](/page/katholieke-printerboekjes/) in PDF-formaat:
 
-[Gewetensonderzoek](/portfolio/2016/08/2016-08-21-gewetensonderzoek)
+[Gewetensonderzoek](/portfolio/gewetensonderzoek)
 
 * * *
 
@@ -153,7 +153,6 @@ Ik ben de Heer uw God.
 - Houd de vasten ongeschonden.
 - Biecht minstens eens per jaar uw zonden.
 - En nut rond Pasen 't Brood des Heren.
-
 - Op zondagen en verplichte feestdagen deelnemen aan de eucharistie en af te zien van slaafse arbeid;
 - Ten minste eenmaal per jaar biechten;
 - De heilige communie ontvangen, op zijn minst in de paastijd;
@@ -179,7 +178,6 @@ Ik ben de Heer uw God.
 - De zieken verzorgen
 - De gevangenen bezoeken
 - De doden begraven
-
 - De onwetenden onderrichten
 - In moeilijkheden goede raad geven
 - De bedroefden troosten

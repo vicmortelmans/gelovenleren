@@ -29,10 +29,3 @@ Gebruik deze tips om de beste kwaliteit te bekomen:
 6. **Versnijden** doe je met met papiersnijder of gewoon met je alledaags breekmesje. Als je de hulplijnen gebruikt, en als de verlijming in stap 3 gelukt is, kan er niet veel misgaan met deze stap.
 7. Om **ronde hoeken** te maken, kan je op zoek gaan naar een speciale tang. Speelkaarten worden afgerond met een straal van 5 mm. Anders moet het met de schaar en een dosis _fingerspitzengefühl_ ook wel lukken.
 
-### Het kwartetspel online bestellen
-
-Is het bovenstaande je allemaal teveel, kan je  kwartetspel kan je ook online bestellen bij [DriveThruCards.com](http://www.drivethrucards.com/product/146547/Katholiek-Kwartetten "Katholiek Kwartetten"). Dat is een leverancier van print-on-demand-artikelen die zich specialiseert in kaartspelen. Spijtig genoeg is dit een niche-markt en moeten de kaarten geleverd worden vanuit de VS, waardoor je al snel moet rekenen op bijna 10 euro verzendkosten. Deze optie wordt wel interessant als je meerdere exemplaren nodig hebt. Vraag dus eens na bij je lokale catechesegroep of je geen groepsaankoop kan organiseren! Als je bijvoorbeeld 7 exemplaren bestelt en dan uitrekent wat je betaalt inclusief verzendkosten, kom je op 7 euro per kwartetspel, en dat is de prijs die je ook voor een gemiddeld "Dinosaurussenkwartet" in de speelgoedwinkel neertelt.
-
-<table class=""><tbody><tr><td><figure><a href="http://www.drivethrucards.com/product/146547/Katholiek-Kwartetten" target="_blank" rel="noopener noreferrer"><img src="images/het-spel1.png" alt="Katholiek kwartetten" width="284" height="284"></a></figure></td><td><a href="http://www.drivethrucards.com/product/146547/Katholiek-Kwartetten" target="_blank" rel="noopener noreferrer">KATHOLIEK KWARTETTEN</a> Bestel een of meer kwartetten bij de online winkel van DriveThruCards.</td></tr></tbody></table>
-
-_Dit is een non-profit-project en de prijzen van het afgedrukt materiaal dekken enkel de kostprijs van de print-on-demand-leverancier._

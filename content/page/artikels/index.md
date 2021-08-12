@@ -8,9 +8,7 @@ De meeste artikels op deze website schrijf ik zelf. Die vind je onder de categor
 
 **[Blog](/categories/blog)**
 
-Vind je deze website nuttig, deel ze dan met anderen! Melding ontvangen van nieuwe artikels kan via: [Email](https://eepurl.com/9P0gP), [RSS](/index.xml) of [Facebook](https://www.facebook.com/alledaagsgeloven/).
-
-Op de website verschenen ook gedigitaliseerde oudere publicaties als afzonderlijke artikelenreeksen:
+Op de website verschenen ook gedigitaliseerde oudere publicaties van andere auteurs als afzonderlijke artikelenreeksen:
 
 **[Innerlijk Leven](/categories/innerlijk-leven)**  
 *Willem Grossouw (1906-1990)*
@@ -26,4 +24,5 @@ Tussen de artikels staan een paar verhalen die ik vanop het internet verzamelde:
 
 **[Verhalen](/categories/verhalen)**
 
+Vind je deze website nuttig, deel ze dan met anderen! Melding ontvangen van nieuwe artikels kan via: [Email](https://eepurl.com/9P0gP), [RSS](/index.xml) of [Facebook](https://www.facebook.com/alledaagsgeloven/).
 

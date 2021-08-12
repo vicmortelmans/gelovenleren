@@ -12,13 +12,13 @@ tags:
 coverImage: "drie-kaarten.png"
 ---
 
-Je hebt al enkele [kaartensets uit _Katholiek Kwartetten_](/tag/kwartet/ "Katholiek Kwartetten") zien passeren op dit blog. Wist je dat dit spel ook een **online spelvariant** heeft? Die maakt het spel inhoudelijker, want of je een kwartet scoort hangt nu af van het lot _of van jouw kennis van het geloof!_ 
+Je hebt al enkele kaartensets uit _Katholiek Kwartetten_ zien passeren op dit blog. Wist je dat dit spel ook een **online spelvariant** heeft? Die maakt het spel inhoudelijker, want of je een kwartet scoort hangt nu af van het lot _of van jouw kennis van het geloof!_ 
 
 ### Wat heb je nodig
 
 [![Screenshot van de website met de schakelaar op "Spelen"](images/online-spelen-195x300.png)](http://kwartet.gelovenleren.net/) Screenshot van de website met de schakelaar op "Spelen"
 
-- **het kaartspel**. Je kan de [kaarten zelf afdrukken of online bestellen](/katholiek-kwartetten/ "Katholiek Kwartetten"). Als je zelf je kwartetten afdrukt mag je kiezen welke kwartetten je gebruikt. Je hoeft ze niet alle 13 te gebruiken, en als er later nieuwe kwartetten worden gepubliceerd mag je die ook toevoegen. Eigenlijk zorg je best dat iedere speler 10 tot 15 kaarten heeft na het uitdelen.
+- **het kaartspel**. Je kan de [kaarten zelf afdrukken of online bestellen](/page/katholiek-kwartetten/ "Katholiek Kwartetten"). Als je zelf je kwartetten afdrukt mag je kiezen welke kwartetten je gebruikt. Je hoeft ze niet alle 13 te gebruiken, en als er later nieuwe kwartetten worden gepubliceerd mag je die ook toevoegen. Eigenlijk zorg je best dat iedere speler 10 tot 15 kaarten heeft na het uitdelen.
 - **een mobieltje** met internettoegang, een camera en een QR-scanner-app. Iedereen mag desgewenst ook zijn eigen mobieltje gebruiken. Heb je nog geen app om QR-codes te scannen, installeer dan NeoReader: [Google Play](https://play.google.com/store/apps/details?id=de.gavitec.android&hl=nl) - [iTunes](https://itunes.apple.com/us/app/neoreader-qr-mobile-barcode/id284973754?mt=8)
 - **maak een mobiel of tablet speelklaar** door de [website](http://kwartet.gelovenleren.net/ "Katholiek Kwartetten") te bezoeken en de schakelaar onderaan de welkomstpagina op 'spelen' te zetten.
 
@@ -36,27 +36,33 @@ Als **één van jouw drie kaarten** getoond wordt, dan mag jij het kwartet afleg
 
 Als je een **godsbeeld** krijgt, dan gelden volgende regels:
 
-**![liefdevolle-god](images/liefdevolle-god-300x212.png)Liefdevolle God**
+**Liefdevolle God**
+
+![liefdevolle-god](images/liefdevolle-god-300x212.png)
 
 Beide spelers leggen twee kaarten van het kwartet af en verdienen een punt. Je blijft aan de beurt.
 
-**![toornige-god](images/toornige-god-300x212.png)**
-
 **Toornige God**
+
+![toornige-god](images/toornige-god-300x212.png)
 
 De gramschap van God valt over jou. De speler met de vierde kaart mag het kwartet afleggen en is aan de beurt.
 
-**![almachtige-god](images/almachtige-god-300x212.png)**
-
 **Almachtige God**
+
+![almachtige-god](images/almachtige-god-300x212.png)
 
 Het kwartet blijft in de pot en jij bent aan de beurt. Wie het volgende kwartet vervolledigt, wint ook de kwartetten in de pot.
 
-**![barmhartige-god](images/barmhartige-god-300x212.png)Barmhartige God**
+**Barmhartige God**
+
+![barmhartige-god](images/barmhartige-god-300x212.png)
 
 Het oordeel wordt opgeschort. Je krijgt een tweede kans. Je mag je kaart nog eens scannen.
 
-**![rechtvaardige-god](images/rechtvaardige-god-300x212.png)Rechtvaardige God**
+**Rechtvaardige God**
+
+![rechtvaardige-god](images/rechtvaardige-god-300x212.png)
 
 Op het mobiel staat een vraag die je moet beantwoorden om het kwartet te winnen. Heb je het antwoord juist, dan mag je het kwartet afleggen. Anders toon je de tweede vraag en mag de speler met de vierde kaart een juist antwoord proberen geven om het kwartet te winnen en dan is hij aan de beurt. Weet geen van beiden het juiste antwoord, blijft het kwartet in de pot en ben je opnieuw aan de beurt. Wie het volgende kwartet vervolledigt, wint ook de kwartetten in de pot.
 

@@ -10,3 +10,5 @@ coverImage: "prentencatechismus-deel2-sacramenten.png"
 [![pdf](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](http://prentencatechismus.org/wp-content/uploads/2014/03/prentencatechismus-deel3-geboden.pdf)
 
 [Afdruk bestellen](https://www.peecho.com/print/en/11177)
+
+Het boek is volledig gedigitaliseerd en gepubliceerd op de website [prentencatechismus.org](http://prentencatechismus.org/inhoud/)

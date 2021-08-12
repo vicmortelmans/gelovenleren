@@ -2,9 +2,9 @@
 {{ $id := .Get 1 }}
 <p>
   {{ if eq $platform "googleplay" }}
-  <a href="https://play.google.com/store/apps/details?id={{ $id }}">{{ .Page.Title }} op Google Play Store</a>
+  <a href="https://play.google.com/store/apps/details?id={{ $id }}">{{ $id }} op Google Play Store</a>
   {{ end }}
   {{ if eq $platform "appstore" }}
-  <a href="https://apps.apple.com/nl/app/{{ $id }}">{{ .Page.Title }} op App Store</a>
+  <a href="https://apps.apple.com/nl/app/{{ $id }}">{{ $id }} op App Store</a>
   {{ end }}
 </p>

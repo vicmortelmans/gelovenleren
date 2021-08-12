@@ -1,0 +1,4 @@
+RewriteEngine On
+RewriteBase /
+RewriteRule "^category/blog/feed$" "/categories/blog/index.xml" [R,L,T=text/xml]
+RewriteRule "^category/blog/feed/$" "/categories/blog/index.xml" [R,L,T=text/xml]

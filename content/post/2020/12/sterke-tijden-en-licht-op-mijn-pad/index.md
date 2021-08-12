@@ -16,4 +16,4 @@ In de [Antwerpse kathedraal](https://www.youtube.com/channel/UCaJVmTdNm9JBwpI1z8
 
 Licht op mijn pad is een dagelijks gebedsmoment.
 
-\[appbox googleplay net.gelovenleren.alledaags\]
+{{< appbox googleplay net.gelovenleren.alledaags >}}

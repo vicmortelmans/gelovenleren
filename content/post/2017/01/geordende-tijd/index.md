@@ -14,4 +14,4 @@ Zo, we zijn weer in een nieuw liturgisch seizoen aanbeland: de tijd doorheen het
 
 Tijd dus ook voor een nieuw missaaltje (beide vormen van de ritus):
 
-\[portfolio display\_types=false display\_tags=false include\_tag=missaal-met-lezingen-gewone-vorm-jaar-c-tijd-doorheen-het-jaar-copy columns=3\]
+[Print je eigen missaal](http://www.missale.net/print/nl/)

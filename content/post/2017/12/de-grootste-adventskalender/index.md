@@ -49,4 +49,4 @@ Hoe maak je er een nuttig hulpmiddel van voor je dagelijks gebed, bezinning of s
 
 **Ben je zelfs te lui om elke dag de website te bezoeken,** installeer dan de app Alledaags Geloven (op Android). De app De Heilige Geest zorgt dat je de kaart te zien krijgt die je op dat moment nodig hebt!
 
-\[appbox googleplay net.gelovenleren.alledaags\]
+{{< appbox googleplay net.gelovenleren.alledaags >}}

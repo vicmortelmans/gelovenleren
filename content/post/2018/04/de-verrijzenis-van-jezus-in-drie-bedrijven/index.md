@@ -33,4 +33,3 @@ Die inleving is nog sterker als je het verhaal leest als een toneel, in de klas,
 
 Het verrijzenistoneel en nog veertien andere bijbeltonelen vind je in [De Toneelbijbel](http://toneelbijbel.gelovenleren.net/).
 
-\[portfolio display\_types=false display\_tags=false include\_tag=toneel-verrijzenis,toneelbijbel-boek columns=3\]

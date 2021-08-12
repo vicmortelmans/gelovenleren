@@ -16,3 +16,5 @@ De bijhorende teksten van de Prentencatechismus zijn overgenomen uit de oorspron
 [Preview op Issuu](https://issuu.com/vicmortelmans/docs/prentencatechismus.compressed)
 
 [Afdruk bestellen](https://www.peecho.com/print/en/11175)
+
+Het boek is volledig gedigitaliseerd en gepubliceerd op de website [prentencatechismus.org](http://prentencatechismus.org/inhoud/)

@@ -14,4 +14,3 @@ Als het feest van de Kruisverheffing voor mij nog relevantie kan krijgen, is het
 
 Om de noveen een beetje body te geven, is [hier](/portfolio/noveen-voor-het-feest-van-de-kruisverheffing/) een boekje met voor elke dag een stukje tekst ter overweging.
 
-\[portfolio display\_types=false display\_tags=false include\_tag=kruisverheffing columns=3\]

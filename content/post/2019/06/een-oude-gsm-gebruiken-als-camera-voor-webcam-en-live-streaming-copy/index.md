@@ -73,7 +73,19 @@ Alle onderdelen op een rijtje gezet:
 
 ### Apps
 
-\[appbox googleplay tv.periscope.android\] \[appbox googleplay com.gamebasic.decibel\] \[appbox googleplay com.sand.airdroid\] \[appbox googleplay com.sand.airmirror\] \[appbox googleplay com.teamviewer.host.market\] \[appbox googleplay com.teamviewer.teamviewer.market.mobile\] \[appbox googleplay com.llamalab.automate\]
+{{< appbox googleplay tv.periscope.android >}}
+
+{{< appbox googleplay com.gamebasic.decibel >}}
+
+{{< appbox googleplay com.sand.airdroid >}}
+
+{{< appbox googleplay com.sand.airmirror >}}
+
+{{< appbox googleplay com.teamviewer.host.market >}}
+
+{{< appbox googleplay com.teamviewer.teamviewer.market.mobile >}}
+
+{{< appbox googleplay com.llamalab.automate >}}
 
 ### Materiaal
 

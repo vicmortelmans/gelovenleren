@@ -16,11 +16,9 @@ Technisch was het even zoeken om de webcam aan de praat te krijgen. Als je zoekt
 
 Omdat we de belangrijke gebeurtenissen toch al streamen is het voor de webcam voldoende als die om de minuut of zo een beeldje schiet. Daarvoor heb ik geen app gevonden, maar met Tasker kan je dat zelf programmeren. Elke minuut maakt mijn programmaatje een foto en laadt die vervolgens met FTP op naar mijn webserver. Je kan die zien op onderstaande pagina. Met twee regels javascript wordt de foto om de vijf seconden herladen, zodat je steeds het meest recente beeld ziet.
 
-\[contentcards url="http://gelovenleren.net/webcam-in-de-kerk-heilig-hart-van-jezus-antwerpen-noord/"\]
-
 Ik ga nu Tasker nog proberen leren het beeld _on hold_ te zetten als het te donker wordt, want dan krijg je alleen maar zwart en dat heeft ook geen zin. Tenzij we  natuurlijk een permanente spot op het tabernakel zouden voorzien :)
 
-\[appbox googleplay net.dinglisch.android.taskerm\]
+{{< appbox googleplay net.dinglisch.android.taskerm >}}
 
 ![](images/Screenshot_20180309-113604-576x1024.png)
 

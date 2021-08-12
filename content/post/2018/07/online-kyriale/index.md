@@ -18,4 +18,4 @@ De [gebeden-app](/blog/gebeden-app/) kan je zowel raadplegen op je PC of op je m
 
 Er staan nog enkele verbeteringen op het getouw, zoals de mogelijkheid om de liederen van het Kyriale en de andere Gregoriaanse hymnes te beluisteren.
 
-\[appbox googleplay net.gelovenleren.gebeden\]
+{{< appbox googleplay net.gelovenleren.gebeden >}}
