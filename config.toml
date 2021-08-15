@@ -18,7 +18,10 @@ facebook = 'alledaagsgeloven'
 copyrightHolder = 'info@gelovenleren.net'
 
 [markup.goldmark.renderer]
-unsafe= true
+unsafe = true
+
+[outputs]
+home = ["HTML", "RSS", "JSON"]
 
 [taxonomies]
   category = "categories"
@@ -55,3 +58,9 @@ unsafe= true
   weight = -90 
   identifier = "bijbel"
   url = "https://storage.googleapis.com/geloven-leren/books/canisius/index.html"
+[[menu.nav]]
+  name = "Zoeken"
+  pre = "<i class='fas fa-search la-lg'></i>"
+  weight = -80 
+  identifier = "zoeken"
+  url = "/search/"
