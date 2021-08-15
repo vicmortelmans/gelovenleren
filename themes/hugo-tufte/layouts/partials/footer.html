@@ -7,6 +7,10 @@
       <li><a href="https://twitter.com/{{.Site.Params.twitter}}"><i class='fab fa-twitter fa-lg'></i></a></li>
       {{ end }}
 
+      {{ if isset .Site.Params "facebook" }}
+      <li><a href="https://facebook.com/{{.Site.Params.facebook}}"><i class='fab fa-facebook fa-lg'></i></a></li>
+      {{ end }}
+
       {{ if isset .Site.Params "github" }}
       <li><a href="https://github.com/{{.Site.Params.github}}"><i class='fab fa-github fa-lg'></i></a></li>
       {{ end }}

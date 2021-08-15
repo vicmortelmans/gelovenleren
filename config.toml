@@ -16,6 +16,9 @@ twitter = 'vicmortelmans'
 facebook = 'alledaagsgeloven'
 copyrightHolder = 'info@gelovenleren.net'
 
+[markup.goldmark.renderer]
+unsafe= true
+
 [taxonomies]
   category = "categories"
 # -----------------------------------------------------------------------
@@ -24,18 +27,30 @@ copyrightHolder = 'info@gelovenleren.net'
 [[menu.nav]]
   name = "Artikels"
   pre = "<i class='fas fa-home la-lg'></i>"
-  weight = -110 
+  weight = -150 
   identifier = "artikels"
   url = "/page/artikels/"
 [[menu.nav]]
   name = "Tools"
   pre = "<i class='fas fa-tools la-lg'></i>"
-  weight = -110 
+  weight = -140 
   identifier = "tools"
   url = "/page/hulpmiddelen/"
+[[menu.nav]]
+  name = "Websites"
+  pre = "<i class='fas fa-globe la-lg'></i>"
+  weight = -130 
+  identifier = "websites"
+  url = "/page/websites/"
 [[menu.nav]]
   name = "Alledaags"
   pre = "<i class='fas fa-dove la-lg'></i>"
   weight = -100 
   identifier = "alledaags"
   url = "https://alledaags.gelovenleren.net/"
+[[menu.nav]]
+  name = "Bijbel"
+  pre = "<i class='fas fa-bible la-lg'></i>"
+  weight = -90 
+  identifier = "bijbel"
+  url = "https://storage.googleapis.com/geloven-leren/books/canisius/index.html"

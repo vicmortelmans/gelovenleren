@@ -1,6 +1,7 @@
 ---
 title: "Het eindigt bij de Chinees"
 date: "2015-10-05"
+categories: ["blog"]
 coverImage: "chinacitywok.png"
 ---
 

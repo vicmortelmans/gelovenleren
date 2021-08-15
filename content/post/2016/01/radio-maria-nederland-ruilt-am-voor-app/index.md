@@ -1,6 +1,7 @@
 ---
 title: "Radio Maria Nederland ruilt AM voor App"
 date: "2016-01-09"
+categories: ["blog"]
 coverImage: "rmn.png"
 ---
 

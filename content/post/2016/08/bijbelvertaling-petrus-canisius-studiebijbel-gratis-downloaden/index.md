@@ -18,7 +18,7 @@ In de eerste helft van vorige eeuw werd een Nederlandse katholieke bijbelvertali
 
 Het komt me voor dat deze vertaling nog steeds dienst kan doen voor alledaagse lectuur, als je bereid bent om over lichtjes archaïsch taalgebruik heen te stappen, wat me voor een bijbeltekst eigenlijk niet onnatuurlijk overkomt. Het gaat immers over een oude tekst!
 
-Daarom heb ik me de moeite getroost een gedigitaliseerde tekst die ik ter beschikking kreeg te verwerken tot [enkele handige publicaties](/portfolio/petrus-canisiusbijbelvertaling/).
+Daarom heb ik me de moeite getroost een gedigitaliseerde tekst die ik ter beschikking kreeg te verwerken tot [enkele handige publicaties die je GRATIS kan downloaden](/portfolio/petrus-canisiusbijbelvertaling/).
 
 - Als EPUB-formaat kan je de bijbel lezen op je mobieltje of op je e-reader.
 - Als PDF-formaat kan je stukken afdrukken op A4-formaat.

@@ -1,5 +1,5 @@
 {{ $category := .Get 0 }}
-{{ range .Site.RegularPages }}
+{{ range .Site.RegularPages.ByTitle }}
   {{ if in .Params.categories $category }}
       {{ partial "content.header.html" . }}
       <p>

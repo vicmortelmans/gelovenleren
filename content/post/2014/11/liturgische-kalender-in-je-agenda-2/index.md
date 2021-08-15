@@ -1,6 +1,7 @@
 ---
 title: "Liturgische kalender in je agenda"
 date: "2014-11-21"
+categories: ["blog"]
 coverImage: "screenshot_20141121103220.png"
 ---
 

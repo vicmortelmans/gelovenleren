@@ -1,7 +1,7 @@
 ---
 title: "Prentencatechismus"
 date: "2016-09-14"
-categories: "site"
+categories: ["site", "spin-off"]
 coverImage: "prentencatechismus.png"
 ---
 
