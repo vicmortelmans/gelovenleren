@@ -51,9 +51,17 @@
   font-style: normal;
 }
 
+html *
+{
+  -webkit-hyphens: auto !important;
+  -ms-hyphens: auto !important;
+  hyphens: auto !important;
+}
+
 /* Tufte CSS styles */
 html {
   font-size: 15px;
+
 }
 
 body {
