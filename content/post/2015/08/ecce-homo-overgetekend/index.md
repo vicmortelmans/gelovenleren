@@ -48,12 +48,7 @@ Naar goeie gewoonte kan de lezer de hele boel hier downloaden. Ik denk zelfs dat
 
 ![Ecce Homo, originele versie](images/ecce-homo-238x300.jpg) Ecce Homo, originele versie
 
-JPG-afbeelding op A1-formaat: ecce-homo-A1.jpg
+JPG-afbeelding op A1-formaat: [ecce-homo-A1.jpg](iamges/ecce-homo-A1.jpg)
 
-SVG-afbeelding: ecce-homo.svg
+SVG-afbeelding: [ecce-homo.svg](ecce-homo-A1.svg)
 
-Voor de liefhebbers heb ik ook een setje details uitgelicht, die een mooi effect hebben als achtergrondafbeelding op je PC, mobiel of als basis van een of ander grafisch ontwerp:
-
-[achtergrondafbeeldingen](https://drive.google.com/folderview?id=0B-659FdpCliwbVA1b181N2I4Rmc&usp=sharing)
-
-[![Achtergrondafbeeldingen](images/contrast-553x1024.png)](https://drive.google.com/folderview?id=0B-659FdpCliwbVA1b181N2I4Rmc&usp=sharing) Achtergrondafbeeldingen
