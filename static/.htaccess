@@ -2,3 +2,7 @@ RewriteEngine On
 RewriteBase /
 RewriteRule "^category/blog/feed$" "/categories/blog/index.xml" [R,L,T=text/xml]
 RewriteRule "^category/blog/feed/$" "/categories/blog/index.xml" [R,L,T=text/xml]
+RewriteRule ^innerlijk-leven/(.*)$ /blog/$1 [R=302,NE,L]
+RewriteRule ^gouden-boek/(.*)$ /blog/$1 [R=302,NE,L]
+RewriteRule ^navolging-van-christus/(.*)$ /blog/$1 [R=302,NE,L]
+
