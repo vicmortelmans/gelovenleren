@@ -34,7 +34,7 @@
       {{ with .Site.Author.email }}<author>{{.}}{{ with $.Site.Author.name }} ({{.}}){{end}}</author>{{end}}
       <guid>{{ $Permalink }}</guid>
       <description>{{ .Summary | html }}</description>
-      {{ with .Params.coverImage }}{{ if in . "png" }}<enclosure url="{{ $Permalink }}images/{{ . }}" length="5000" type="image/png" />{{ else if in . "jpg" }}<enclosure url="{{ $Permalink }}images/{{ . }}" length="5000" type="image/jpeg" />{{ end }}{{ end }}
+      {{ with .Params.coverImage }}{{ if in . "png" }}<enclosure url="{{ $Permalink }}images/{{ . }}" length="5000" type="image/png" />{{ else if or (in . "jpg") (in . "jpeg") }}<enclosure url="{{ $Permalink }}images/{{ . }}" length="5000" type="image/jpeg" />{{ end }}{{ end }}
     </item>
     {{ end }}
   </channel>
