@@ -18,7 +18,7 @@ En natuurlijk is er ook een nieuwe kaart toegevoegd op [Alledaags Geloven](https
 
 [![Alledaags Geloven](images/alledaags-trente.png)](https://alledaags.gelovenleren.net/link/MTc2NjIyMTAyNDg4OTE5)
 
-Mocht er iemand geïnteresseerd zijn in de technische procedure van het digitaliseren, zal ik die hieronder toevoegen. Ik moet zeggen dat ik zelf zeer enthousiast ben over het resultaat. Het vertrekpunt was een facsimile van een boek uit 1935, met telkens vier (verkleinde!) bladzijdes uit het origineel op één A4. Uiteindelijk moet ik per pagina maar een handvol spelfouten corrigeren! En dat allemaal met gratis tools. Het inscannen heeft met in de *copyshop* net geen 15 euro gekost, voor 200 blz. Er zijn mensen met duurdere hobby's :)
+Mocht er iemand geïnteresseerd zijn in de technische procedure van het digitaliseren, zal ik die hieronder toevoegen. Ik moet zeggen dat ik zelf zeer enthousiast ben over het resultaat. Het vertrekpunt was een facsimile van een boek uit 1935, met telkens vier (verkleinde!) bladzijdes uit het origineel op één A4. Uiteindelijk moet ik per pagina maar een handvol spelfouten corrigeren! En dat allemaal met gratis tools. Het inscannen heeft me in de *copyshop* net geen 15 euro gekost, voor 200 blz. Er zijn mensen met duurdere hobby's :)
 
 {{% marginnote %}}
 [![Voorbeeld](images/trente-013.png)](images/trente-013.png)  
