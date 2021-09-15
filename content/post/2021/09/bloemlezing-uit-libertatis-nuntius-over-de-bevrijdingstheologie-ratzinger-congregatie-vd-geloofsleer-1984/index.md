@@ -9,7 +9,7 @@ coverImage: "ratzinger.jpg"
 {{% marginnote %}}
 Joseph Kardinaal Ratzinger in 1984
 {{% /marginnote %}}
-De reeks artikelen over 'vrijheid' in de geloofsleer wordt vervolgd met een bloemlezing uit _[Libertatis Nuntius](https://rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1092&id=0)_, een document van kardinaal Ratzinger uit 1984, toen hij de Congregatie voor de Geloofsleer leidde. In dit document worden de puntjes op de i gezet wat betreft de katholiciteit van de bevrijdingstheologie, die toen veel verwarring stichtte. De teneur is nogal negatief, maar dat was de bedoeling en wordt grotendeels rechtgezet in een vervolgdocument uit 1986, _Libertatis Conscientia_, waaruit een volgend artikel een bloemlezing zal bevatten.
+De reeks artikelen over 'vrijheid' in de geloofsleer wordt vervolgd met een bloemlezing uit _[Libertatis Nuntius](https://rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1092&id=0)_, een document van kardinaal Ratzinger uit 1984, toen hij de Congregatie voor de Geloofsleer leidde. In dit document worden de puntjes op de i gezet wat betreft de katholiciteit van de bevrijdingstheologie, die toen veel verwarring stichtte. De teneur is nogal negatief, maar dat was de bedoeling en wordt grotendeels rechtgezet in een vervolgdocument uit 1986, _Libertatis Conscientia_, waaruit een [volgend artikel](/blog/bloemlezing-uit-libertatis-conscientia-ratzinger-congregatie-vd-geloofsleer-1986/) een bloemlezing zal bevatten.
 
 # Libertatis Nuntius
 {{% marginnote %}}
