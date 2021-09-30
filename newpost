@@ -1,0 +1,19 @@
+#!/bin/sh
+title=$@
+slugifytitle=$(slugify "$title")
+year=$(date +%Y)
+month=$(date +%m)
+date=$(date -Iseconds)
+path=content/post/$year/$month/$slugifytitle
+mkdir -p $path/images
+cat > $path/index.md <<EOF
+---
+title: "$title"
+date: $date
+categories: 
+  - "blog"
+coverImage: ""
+---
+EOF
+gvim $path/index.md &
+exit 0
