@@ -8,7 +8,7 @@ coverImage: "jona.jpg"
 
 "Ik zou zijn hand vasthouden", liet aartsbisschop Paglia noteren in respons op een [instructie van de Zwitserse bisschoppen](https://novenanews.com/switzerland-bishops-instruct-priests-not-physically-present-moment-assisted-suicide-euthanasia/), die zegt dat een priester of pastoraal werker niet aanwezig mag zijn bij een stervende op het ogenblik dat euthanasie wordt gepleegd.   
 
-https://twitter.com/ndnl/status/1204763105676472322?s=20
+{{< tweet 1204763105676472322 >}}
 
 Paglia bevestigt in woorden de leer, die euthanasie afwijst. In zijn daden wil hij die afwijzing niet bevestigen. Heel begrijpelijk dat hij zo redeneert: de paus promoot deze pastorale aanpak voortdurend. In concrete situaties haalt barmhartigheid het van de rigiditeit van de kerkelijke leer.
 

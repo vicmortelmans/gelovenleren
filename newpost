@@ -1,4 +1,6 @@
 #!/bin/sh
+# Usage:
+#   ./newpost "This is a new post"
 title=$@
 slugifytitle=$(slugify "$title")
 year=$(date +%Y)

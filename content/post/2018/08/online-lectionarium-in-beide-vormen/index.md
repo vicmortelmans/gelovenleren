@@ -16,7 +16,7 @@ In een [vorig artikel](/blog/online-lectionarium-gevonden-onder-de-korenmaat/) w
 
 Enkele dagen geleden las ik een tweet met de vraag wat de lezingen die zondag zouden zijn volgens de buitengewone vorm (tridentijnse mis). Mijn zoekwerk van vorige keer had enkel lectionaria opgeleverd volgens de gewone vorm van de mis.  
 
-https://twitter.com/AiramIngrid/status/1023293805062234112
+{{< tweet 1023293805062234112 >}}
 
 Temeer omdat de vraagstelster van deze tweet een hatelijk antwoord kreeg van een gerenommeerde katholieke trol (wiens twitteraccount tot mijn voldoening slechts door zichzelf gevolgd wordt), dacht ik: dat zou nog een mooie uitbreiding zijn voor missale.net. Die geeft reeds de [liturgische kalender](/blog/de-liturgische-kalender-van-missale-is-ingevuld-tot-2024/) voor beide vormen van de liturgie en bevat in de database ook alle schriftlezingen die bij elke mis horen.  
 

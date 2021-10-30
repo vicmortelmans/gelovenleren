@@ -16,11 +16,11 @@ coverImage: "venerabelkapel-tabernakel-cropped.jpg"
 
 Enkele weken geleden heb ik iets bijgeleerd over tabernakels. Mijn nieuwsgierigheid werd geprikkeld door een tweet van Nikolaas Sintobin sj. Hij schreef een artikeltje op zijn blog over de abijkerk van van Sint-Benedictusberg in Vaals. Hij was verrast dat er geen tabernakel aanwezig is in de kerk.
 
-https://twitter.com/NSintobin/status/1068411878639046656
+{{< tweet 1068411878639046656 >}}
 
 Dat deed me al de wenkbrauwen fronsen, maar de retweet waarin confrater Jos Moons sj stelt dat _"een tabernakel sinds #VaticanumII niet meer de centrale plaats in de kerk heeft"_, zette me aan om wat verder te zoeken. De hashtag #VaticamunII in combinatie met boude beweringen heeft wel eens meer die uitwerking op mij.
 
-https://twitter.com/JosMoonsSJ/status/1068437457199353857
+{{< tweet 1068437457199353857 >}}
 
 De onschatbare informatiebron van [rkdocumenten.nl](https://www.rkdocumenten.nl/rkdocs/index.php?page=3) geeft elke leek de mogelijkheid zo'n uitspraken te checken. Lang leve de democratisering van het magisterium van de Kerk!
 
@@ -38,7 +38,7 @@ Ik mag ervan uitgaan dat de boodschap in strikte zin daarin bestond dat de gewoo
 
 Het is mijn eigen achterdocht die achter deze uitspraak een achterstelling vermoed van het belang van de manifeste aanwezigheid van het Allerheiligste Sacrament in een kerk. In mijn achterdocht hoor ik dat sinds Vaticanum II het belang van de blijvende aanwezigheid van Christus in de geconsacreerde hosties moet worden gerelativeerd, dat het dus niet zoveel uitmaakt waar die worden bewaard en dat ze middenin de Kerk eigenlijk een beetje in de weg staat van belangrijker attributen. Ook dat kwam verderop in de Twitterdraad tot uiting: _"Wie ter communie gegaan is, is zelf 'vlees van Christus' geworden, daarom staat het tabernakel niet centraal"_.
 
-https://twitter.com/katrien\_sollie/status/1070983227630870528
+{{< tweet 1070983227630870528 >}}
 
 ### **Magisterium over het tabernakel**
 

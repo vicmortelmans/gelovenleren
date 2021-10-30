@@ -28,11 +28,11 @@ Ik las her en der dat wij in Vlaanderen onze ruimdenkendheid in deze kwestie voo
 
 (\*) op Twitter, het medium waar ik mijn nieuws sprokkel, waren de kritische reacties op 1 hand te tellen, te weten:
 
-https://twitter.com/PhRoose/status/1372263405743144965?s=20
+{{< tweet 1372263405743144965 >}}
 
-https://twitter.com/FKeuleneer/status/1372209620119396355?s=20
+{{< tweet 1372209620119396355 >}}
 
-https://twitter.com/pcalu/status/1372103184886415360?s=20
+{{< tweet 1372103184886415360 >}}
 
 En ook op Doorbraak:
 

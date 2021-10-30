@@ -8,7 +8,7 @@ coverImage: "litugrists.jpg"
 
 Het stond in de sterren geschreven dat de BLM-newspeak ook de kerk zou treffen. Via een [tweet van Jos Moons sj](https://twitter.com/JosMoonsSJ/status/1274019290300252160?s=20) las ik een [artikel](https://www.nd.nl/opinie/opinie/977908/haal-het-woord-rassen-uit-het-kerkgebed-we-willen-de-liturgie-imm?utm_campaign=Katholiek%20Inside&utm_medium=email&utm_source=Revue%20newsletter) waarin gepleit wordt om het woord 'ras' uit het missaal te verwijderen.
 
-https://twitter.com/JosMoonsSJ/status/1274019290300252160?s=20
+{{< tweet 1274019290300252160 >}}
 
 Het gaat om deze tekst, uit het groot dankgebed nr. VII 'voor de verzoening':
 
@@ -34,7 +34,7 @@ Misschien kan dit een argument worden om zich bij nieuw liturgisch vertaalwerk t
 
 In de uitloop van diezelfde tweet kwam ook de vertaling ter sprake van de consecratiewoorden 'pro multis' (voor velen), die in het Nederlands 'voor allen' worden.
 
-https://twitter.com/JosMoonsSJ/status/1275445643402567680?s=20
+{{< tweet 1275445643402567680 >}}
 
 Ook daarover heb ik mijn eigen meninkje gereed! De [lezingen van vorige zondag](https://dagelijksevangelie.org/NL/gospel/2020-06-21) zijn verhelderend. Paulus zegt: _"allen schonk Gods genade rijke vergoeding door de grote gave van zijn genade, de ene mens Jezus Christus"_. Dus: de genade is voor 'allen'. Jezus heeft echter ook klare taal: _"Ieder die Mij bij de mensen belijdt, hem zal ook Ik als de mijne erkennen bij mijn Vader die in de hemel is. Maar ieder die Mij zal verloochenen tegenover de mensen zal Ik ook verloochenen tegenover mijn Vader die in de hemel is."_ Dus: de redding is **niet** voor allen! 
 

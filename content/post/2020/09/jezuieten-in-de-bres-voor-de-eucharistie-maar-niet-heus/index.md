@@ -44,4 +44,4 @@ Het getuigt van een vooruitziende blik om antwoorden te zoeken op de vragen van 
 
 Repliek:
 
-https://twitter.com/pcalu/status/1307463635074195456?s=20
+{{< tweet 1307463635074195456 >}}

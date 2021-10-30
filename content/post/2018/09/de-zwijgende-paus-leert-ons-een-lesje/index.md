@@ -23,13 +23,13 @@ Welnu: het zwijgen van de paus over de [aantijgingen van mgr. Viganò](https://w
 
 In de media wordt gelukkig veel energie gespendeerd, vooral door twitteraars wiens accountnaam eindigt op de letters sj, om mijn ergernis weg te nemen. Ik lees berichtjes op Twitter waarin met grote bewondering wordt gesproken over het zwijgen van de paus, aan de hand van spirituele boekjes die hijzelf nog schreef in de jaren '90, of van de geestelijke oefeningen van Sint Ignatius of of van het voorbeeld van Onze Heer Jezus Christus zelve.  
 
-https://twitter.com/martinuslos/status/1035859109466259457
+{{< tweet 1035859109466259457 >}}
 
-https://twitter.com/NSintobin/status/1036651341580562432
+{{< tweet 1036651341580562432 >}}
 
 Ik begrijp wel de waarde van het zwijgen onder valse beschuldigingen als verheven vorm van christelijke waardigheid, maar je moet ook niet overdrijven.  
 
-https://twitter.com/vicmortelmans/status/1037670924881940480
+{{< tweet 1037670924881940480 >}}
 
 Als ik me nog steeds ongemakkelijk voel, ligt dat niet zozeer in de vraag of de paus dit of dat nu al dan niet wist, want [schuldfetisjisme is niet christelijk](/blog/schuldfetisjisme-is-niet-christelijk/). Wat me het meest bevreemdt is de dubbelzinnigheid van de hele situatie.  
 

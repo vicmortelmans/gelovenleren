@@ -17,7 +17,7 @@ Op Twitter lees ik bij [Stefan Paas](https://twitter.com/StefanPaas) regelmatig 
 
 Laatst was hij op Twitter [druk aan het citeren](https://twitter.com/StefanPaas/status/1125034330454134784) uit een boek van Anton van Duinkerken, waaronder deze passage:  
 
-https://twitter.com/StefanPaas/status/1125034330454134784
+{{< tweet 1125034330454134784 >}}
 
 De context van het citaat heb ik niet mee, dus wat Van Duinkerken er precies mee bedoelde is me niet duidelijk. Ik lees het citaat in de context van het debat over de plaats van geloof in de samenleving. Geloof kan je niet terugdringen tot de private ruimte, hoewel velen dat zouden willen. Dat zegt ook Saskia van den Kieboom op Logia:  
 

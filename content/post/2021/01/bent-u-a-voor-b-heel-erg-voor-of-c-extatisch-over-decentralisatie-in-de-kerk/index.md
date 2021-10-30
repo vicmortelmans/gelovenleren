@@ -8,7 +8,7 @@ coverImage: "jesus-calms-the-storm.jpg"
 
 Deze week heb ik twee kerkelijke bevragingen ingevuld. Vicariaat Antwerpen wil weten welk vlees het in de kuip heeft aan de hand van de PKG (post-kritische geloofsschaal) en SPES-bevragingen. De factulteit theologie van de KULeuven lanceerde op twitter een bevraging om input te verzamelen voor de synode over synodaliteit in 2022. 
 
-https://twitter.com/KULTheologie/status/1348725137537904651?s=20
+{{< tweet 1348725137537904651 >}}
 
 Over PKG- en SPES- bevragingen heb ik al gepbuliceerd in [Geroosterd geloof](/blog/geroosterd-geloof/) en [Standaardafwijkende geloofshouding](/blog/standaardafwijkende-geloofshouding/) en vond ik het artikel [The Post-Critical Belief (PCB) Scale and the ECSIP (Leuven) Project: Garbage in … Garbage Out](http://faithandtruth.org/the-post-critical-scale-and-the-ecsip-leuven-project-garbage-in-garbage-out/), dat een mooie neerslag bevat van het gevoel dat me bekroop bij het (opnieuw) invullen ervan. Ik dacht het daarmee zowat gehad te hebben...
 

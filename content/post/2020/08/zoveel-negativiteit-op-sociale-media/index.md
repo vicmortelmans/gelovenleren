@@ -16,31 +16,31 @@ Dit is een greep uit de tweets die mij voorbije week 'op mijn paard' zetten:
 
 Pro-life-studenten schrijven met stoepkrijt "Black Pre-Born Lives Matter" voor een abortuskliniek en worden gearresteerd:
 
-https://twitter.com/vicmortelmans/status/1289632978297950208?s=20
+{{< tweet 1289632978297950208 >}}
 
 Amerikaanse volksvertegenwoordigster vindt standbeeld van de heilige pater Damiaan in het Kapitool een voorbeeld van "white supremacy":
 
-https://twitter.com/johnrobertgage/status/1289216440088662016?s=20
+[Hawaii's Father Damien -- AOC Calls Priest Statue Example of 'White Supremacist Culture' | National Review](https://www.nationalreview.com/news/aoc-calls-statue-of-priest-who-ministered-to-leper-colony-an-example-of-white-supremacist-culture/ "Hawaii's Father Damien -- AOC Calls Priest Statue Example of 'White Supremacist Culture' | National Review") /(de tweet is intussen verwijderd)/
 
 Vandalisme tegen kerkgebouwen in Frankrijk en een Turkse president die de islamisering van Haga Sophia slechts als een opstapje naar de hertoeëigening van moskeeën in Spanje, het gaat allemaal voorbij zonder noemenswaardige reactie uit de christelijke wereld:
 
-https://twitter.com/vicmortelmans/status/1289234300030685184?s=20
+{{< tweet 1289234300030685184 >}}
 
 Engelse bischoppen beramen zich over een standpunt tegenover een verplicht Corona-vaccin en uiten de ethische bedenking dat de ontwikkeling van zo'n vaccin gebaseerd is op celmateriaal verkregen door abortus, maar vegen dat snel onder de mat (het feit dat ze zich de bedenking nog maken, vond ik dan weer wel positief, zouden onze bisschoppen dat ueberhaupt aandurven?):
 
-https://twitter.com/vicmortelmans/status/1289231124410118145?s=20
+{{< tweet 1289231124410118145 >}}
 
 Catalaanse politici die onafhankelijkheid van hun land willen, zitten intussen als 1000 dagen in de cel:
 
-https://twitter.com/Karl\_Drabbe/status/1288879043987877888?s=20
+{{< tweet 1288879043987877888 >}}
 
 Een activistische programmeur stuurt me via github een voorstel om de termen 'master' en 'slave' uit mijn code te verwijderen (github is in feite ook een soort van sociale media):
 
-https://twitter.com/vicmortelmans/status/1287462056178917377?s=20
+{{< tweet 1287462056178917377 >}}
 
 Nederlandse minister laat kinderen vroegtijdig toe tot 'behandeling' van transgenderproblemen:
 
-https://twitter.com/vicmortelmans/status/1288516563092602881?s=20
+{{< tweet 1288516563092602881 >}}
 
 Dat gaat zo maar door, week in week uit, met een eindeloze stroom van berichten die regelrecht ingaan tegen de beginselen die ik een gezonde, harmonische samenleving toeken. Het ergste is, dat de meeste van die berichten eigenlijk gewoon 'mainstream' blijken. Je zou toch voor minder de moed verliezen? 
 
