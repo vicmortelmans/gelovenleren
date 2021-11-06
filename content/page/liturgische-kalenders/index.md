@@ -64,4 +64,4 @@ De kalender is nu zichtbaar in jouw agenda
 
 ## Vertalingen
 
-Ook beschikbaar in het [Engels](http://localhost:1313/page/liturgical-calendars/) en in het [Frans](http://localhost:1313/page/calendriers-liturgiques-en-francais/).
+Ook beschikbaar in het [Engels](http://localhost:1313/page/liturgical-calendars/).

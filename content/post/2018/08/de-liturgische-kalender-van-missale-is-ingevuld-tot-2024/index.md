@@ -24,4 +24,4 @@ Een spin-off van deze website zijn de liturgische kalenders die je kan **opladen
 
 De links om de online kalender op te laden, vind je op deze pagina:  
 
-http://gelovenleren.net/liturgische-kalenders/
+http://gelovenleren.net/page/liturgische-kalenders/

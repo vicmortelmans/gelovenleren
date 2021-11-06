@@ -23,21 +23,20 @@ In zijn toespraak tijdens de onthulling van het nieuwe kunstwerk, gaf hij de tip
 
 Hieronder vind je enkele fotografische impressies genomen tijdens de onthulling van het werk op zaterdag 23 november 2018, wat meteen ook de gelenheid was om de kathedraal eens te bezoeken in een stemmige nachtelijke atmosfeer.
 
-- ![](images/IMG_20181124_184300-700x1245.jpg)
+![](images/IMG_20181124_184300-700x1245.jpg)
     
-    De "nieuwe" Kruisafneming in het rechtse transept, vlak naast de versie van Rubens
+De "nieuwe" Kruisafneming in het rechtse transept, vlak naast de versie van Rubens
     
-- ![](images/IMG_20181124_191211-700x815.jpg)
+![](images/IMG_20181124_191211-700x815.jpg)
     
-    Het schilderij van de Kruisafneming bekeken als een landschap.
-    
+Het schilderij van de Kruisafneming bekeken als een landschap.
 
 Ik bedenk me trouwens, als dit kikvorsperspectief inderdaad zo'n interessante ontsluiting is voor het kunstwerk, heeft de kunstenaar nooit overwogen om het niet aan de muur te hangen, maar horizontaal te plaatsen, zoals een maquette?
 
-- ![](images/IMG_20181124_181823-700x394.jpg)
+![](images/IMG_20181124_181823-700x394.jpg)
+  
+![](images/IMG_20181124_181002-700x394.jpg)
     
-- ![](images/IMG_20181124_181002-700x394.jpg)
-    
-- ![](images/IMG_20181124_181434-700x394.jpg)
-    
-- ![](images/IMG_20181124_181644-700x1244.jpg)
+![](images/IMG_20181124_181434-700x394.jpg)
+  
+![](images/IMG_20181124_181644-700x1244.jpg)

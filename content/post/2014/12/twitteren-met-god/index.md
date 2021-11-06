@@ -22,10 +22,12 @@ De app en de website vindt u op de vaste rubrieken van deze blog, en het boek ka
 
 ## WEBSITE
 
-**[![Tweeting with GOD](images/tweetingwithgod.png)](http://www.tweetingwithgod.com/nl)Twitteren met God** Catechese, gebeden, missaal
+[**Twitteren met God** Catechese, gebeden, missaal](http://www.tweetingwithgod.com/nl)
+
+
 
 ## APP
 
-**[![Tweeting with GOD](images/tweetingwithgod.png)](https://play.google.com/store/apps/details?id=com.twg.app)Twitteren met God (Android)** Catechese, gebeden en missaal
+[**Twitteren met God (Android)** Catechese, gebeden en missaal](https://play.google.com/store/apps/details?id=com.twg.app)
 
-**[![Tweeting with GOD](images/tweetingwithgod.png)](https://itunes.apple.com/nl/app/tweeting-with-god/id939530303?mt=8&uo=4)Twitteren met God (iOS)** Catechese, gebeden en missaal
+[**Twitteren met God (iOS)** Catechese, gebeden en missaal](https://itunes.apple.com/nl/app/tweeting-with-god/id939530303?mt=8&uo=4)

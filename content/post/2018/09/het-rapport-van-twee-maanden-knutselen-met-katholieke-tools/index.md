@@ -17,7 +17,7 @@ De voorbije zomermaanden mogen productief genoemd worden. Omdat het je tijdens j
 
 Time-lapse beelden uit onze kerk, voorzien van een soundtrack met geluidsfragmenten uit onze internationale eucharistievieringen.  
 
-https://www.youtube.com/watch?v=tQoZW0HBuPs
+{{< youtube tQoZW0HBuPs >}}
 
 ## Een nieuwe app "Alledaags Geloven"
 

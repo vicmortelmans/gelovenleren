@@ -11,11 +11,11 @@ Als spin-off van mijn blogje onderhield ik geruime tijd de website en afgeleide
 
 Daarom heb ik nu alle verwijzingen overgedragen naar deze webstek, waar ze direct toegankelijk zijn in het linkse menu.
 
-- [Katholieke apps voor Android en iOS](/apps-voor-android-en-ios/)
-- [Katholieke e-boeken](/e-boeken/)
-- [Katholieke luisterboeken](/luisterboeken/)
-- [Katholieke mobiele websites](/mobiele-websites/)
-- [Liturgische kalenders](/liturgische-kalenders/)
+- [Katholieke apps voor Android en iOS](/page/apps-voor-android-en-ios/)
+- [Katholieke e-boeken](/page/e-boeken/)
+- [Katholieke luisterboeken](/page/luisterboeken/)
+- [Katholieke mobiele websites](/page/mobiele-websites/)
+- [Liturgische kalenders](/page/liturgische-kalenders/)
 
 Hopelijk zal deze strategie (en de verborgen SEO-talenten van Wordpress) de informatie nu ook toegankelijker maken.
 

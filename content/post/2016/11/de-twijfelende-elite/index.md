@@ -69,13 +69,9 @@ Enkele goeie raadgevingen voor publicisten die de twijfel-mantra nog verder will
 
 - Heeft u een **mystieke ervaring** achter de rug die u wil delen, gebruik dan een subtieler, poëtischer begrippenkader om dit te duiden. Grotere mystici zagen die nood ook in.
 - Wilt u getuigen van de bevrijding die een intense **persoonlijke relatie** met Christus kan brengen, die de nood doet vervallen aan mondgebed, aan devotionele praktijken en aan strikte moraalregels, hou er dan rekening mee dat niet iedereen in het geestelijk leven zo ver is gevorderd en misschien nog wel nood heeft aan de moederlijke zorg waarmee de Kerk ons bij de hand neemt.  
-    
 - Heeft u het zelf **moeilijk** met uw geestelijk leven en hervalt u regelmatig in twijfel over uw geloof, wees niet bang, dat is heel normaal en dat is de grootste heiligen ook overkomen. Weet echter dat het zaak is aan de twijfel te ontsnappen, en leg uw eigen problemen niet op de schouders van vreemden.  
-    
 - Wilt u zich **populair** maken bij de generatie van gelovigen-met-een-degout-van-de-catechismuslessen-in-de-lagere-school, begint u dan maar stilaan zelf na te denken over pensioen of reconversie, want deze generatie is stilaan aan het uitsterven.  
-    
 - Wilt u uw **gram** halen tegen al te kritische ‘traditionalisten’ en hun verfoeide ‘zekerheden’, spui dan liever uw grieven op facebook of op een anonieme blog, zoals ook zij doen, maar niet via de officiële organen van onze Kerk en in een taal die het geloof van gewone katholieken slechts schade toebrengt.  
-    
 - Wilt u echter op een positieve manier toenadering zoeken tot gelovigen of zoekenden, binnen of buiten de Kerk, stop dan de wedloop om de schatten van ons geloof te laten verwasemen in een pseudo-filosofische mallemolen. Doe een kleine **penitentie** voor alle keren dat u klein-gelovigen tot ergernis hebt gebracht en schrijf eens iets positiefs en constructiefs over een idee uit de verguisde ‘traditie’ dat u uit de mond van een ander graag als ‘fundamentalistisch’ had afgedaan.
 
 Moeilijke waarheden van het geloof kunnen aanleiding geven tot twijfel, als ze niet overeenstemmen met de inzichten van je verstand. De twijfel overwinnen zonder de waarheid geweld aan te doen, dat is geloven.

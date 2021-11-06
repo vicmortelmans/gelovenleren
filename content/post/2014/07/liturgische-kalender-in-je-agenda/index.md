@@ -13,9 +13,9 @@ Er zijn aparte kalenders voor de 'gewone vorm' en de 'buitengewone vorm' (triden
 
 Alle links en enige uitleg hoe je een kalender aan je agenda kan toevoegen, vind je op deze pagina:
 
-# [![calendars](images/calendars.png)](/liturgische-kalenders/)
+# [![calendars](images/calendars.png)](/page/liturgische-kalenders/)
 
-# [Liturgische Kalenders](/liturgische-kalenders/ "Liturgische kalenders")
+# [Liturgische Kalenders](/page/liturgische-kalenders/ "Liturgische kalenders")
 
 Ongetwijfeld zullen er hier en daar nog fouten inzitten, aarzel niet dat als feedback op dit artikel te melden!
 
@@ -23,14 +23,7 @@ Ongetwijfeld zullen er hier en daar nog fouten inzitten, aarzel niet dat als fee
 
 Liturgical calendars for your online agenda in English:
 
-# [![calendars](images/calendars.png)](/liturgical-calendars/)
+# [![calendars](images/calendars.png)](/page/liturgical-calendars/)
 
-# [Liturgical Calendars](/liturgical-calendars/ "Liturgical Calendars (in English)")
+# [Liturgical Calendars](/page/liturgical-calendars/ "Liturgical Calendars (in English)")
 
-* * *
-
-Calendriers liturgiques pour votre calendrier en ligne en français:
-
-# [![calendars](images/calendars.png)](/calendriers-liturgiques-en-francais/)
-
-# [Calendriers Liturgiques](/calendriers-liturgiques-en-francais/ "Calendriers liturgiques (en français)")

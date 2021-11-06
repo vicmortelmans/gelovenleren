@@ -19,19 +19,12 @@ This calendar will also become available in Dutch (and perhaps other languages) 
 
 The calendars are available as iCal-files, based on a shared Google Calendar. \[update: they're native iCal services\]
 
-******Liturgical Calendar of the Roman rite (ordinary form)****** _Calendar of the liturgical days for the ordinary form of the Roman rite, containing Sundays, solemnities and feasts._
+**Liturgical Calendar of the Roman rite (ordinary form)** _Calendar of the liturgical days for the ordinary form of the Roman rite, containing Sundays, solemnities and feasts._
 
-- [View calendar](https://www.google.com/calendar/embed?src=np1cqauhkg3p8ffego5dcr1uac%40group.calendar.google.com&ctz=Europe/Brussels "Liturgical Calendar of the Roman rite (ordinary form)")
-- [Download iCal-file](https://www.google.com/calendar/ical/np1cqauhkg3p8ffego5dcr1uac%40group.calendar.google.com/public/basic.ics "Liturgical Calendar of the Roman rite (ordinary form)")
-- Subscribe to this calendar by entering this link in the subscribe option of your agenda application: **http://tinyurl.com/4xqsy3y**
 
 **Liturgical Calendar of the Roman rite (extraordinary form)** _Calendar of the liturgical days for the extraordinary form of the Roman rite, containing Sundays, feasts, vigils and feria’s of I and II class._
 
-- [View calendar](https://www.google.com/calendar/embed?src=35tof2danieqm0pdnamv74mudg%40group.calendar.google.com&ctz=Europe/Brussels "Liturgical Calendar of the Roman rite (extraordinary form)")
-- [Download iCal-file](https://www.google.com/calendar/ical/35tof2danieqm0pdnamv74mudg%40group.calendar.google.com/public/basic.ics "Liturgical Calendar of the Roman rite (extraordinary form)")
-- Subscribe to this calendar by entering this link in the subscribe option of your agenda application: **http://tinyurl.com/6ffwybf**
-
-\[update: to download the calendar or grab the sync URL, see this separate page: **[Liturgical Calendars (in English)](/liturgical-calendars/ "Liturgical Calendars (in English)")**\]
+\[update: to download the calendar or grab the sync URL, see this separate page: **[Liturgical Calendars (in English)](/page/liturgical-calendars/ "Liturgical Calendars (in English)")**\]
 
 Note: using the subscription link is the preferred way to integrate this calendar, because it will allow your agenda to automatically synchronize when the calendar is updated. If the 'tinyurl' link isn't working, try the full URL link to the iCal-file. If you find technical problems, please leave a comment. Here are some references to other online liturgical calendars and related applications, some of which have been used as testing reference (if you know more, please leave a comment):Ordinary form:
 

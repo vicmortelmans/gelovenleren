@@ -23,17 +23,17 @@ Op basis van de [acht verwachtingen die mgr. Bonny in zijn fameuze brief van 201
 
 ### Acht van de bisschop
 
-****§**1 Ik meen dat de katholieke Kerk, uitgerekend in het domein van huwelijk en gezin, dringend nood heeft aan een nieuw en steviger platform van collegiale dialoog en besluitvorming. Ik hoop dat de komende Synode daartoe zal bijdragen.**
+**§1 Ik meen dat de katholieke Kerk, uitgerekend in het domein van huwelijk en gezin, dringend nood heeft aan een nieuw en steviger platform van collegiale dialoog en besluitvorming. Ik hoop dat de komende Synode daartoe zal bijdragen.**
 
 Dit punt wordt in de bevraging niet aangehaald. Er zijn dus ook geen antwoorden.
 
-****§**2 Een monolithische collegialiteit heeft in de Kerk al even weinig toekomst als een monolithisch primaatschap. Ik hoop dat de bisschoppensynode voor deze regionale verscheidenheid de nodige aandacht zal opbrengen.**
+**§2 Een monolithische collegialiteit heeft in de Kerk al even weinig toekomst als een monolithisch primaatschap. Ik hoop dat de bisschoppensynode voor deze regionale verscheidenheid de nodige aandacht zal opbrengen.**
 
 Dit standpunt wordt ruim gedragen:
 
 _De meerderheid vindt dat het mooi en realistisch zou zijn als de Kerk werk zou maken van pastorale richtlijnen die opgesteld zijn door de particuliere Kerken. Een westerse synode over dit thema, waarom niet? Vooral het ‘vertalen’ van de kerkelijke visie op huwelijk en gezin naar de plaatselijke situatie zou goed zijn._
 
-****§**3 Wat verwacht ik van de komende Synode? Dat zij aan het geweten zijn rechtmatige plaats in het onderricht van de Kerk zal teruggeven, in de lijn van Gaudium et Spes.**
+**§3 Wat verwacht ik van de komende Synode? Dat zij aan het geweten zijn rechtmatige plaats in het onderricht van de Kerk zal teruggeven, in de lijn van Gaudium et Spes.**
 
 De respondenten maken alvast dezelfde analyse:
 
@@ -41,17 +41,17 @@ _Ondertussen hebben mensen op basis van hun persoonlijke geweten een nieuwe ethi
 
 Welke rol het geweten dan precies moet spelen in het discours van de Kerk varieert van  _"de gewetensvrijheid van onze gesprekspartners te respecteren en geen oordeel te vellen over de verschillende situaties"_, over de uitdaging "_het onderricht van de Kerk kritisch op zijn verdiensten te onderzoeken,_ en _aanvaarden en waarderen dat mensen in eer en geweten zoeken om samen te kunnen leven en het leven door te geven"_, tot "_zich aan te passen aan de praktijk"_.
 
-****§**4** **Pastoraal heeft alles met doctrine te maken, en doctrine alles met pastoraal. Beide zullen in de Synode aan bod moeten komen, wil de Kerk nieuwe wegen openen voor de evangelisatie van huwelijk en gezin in onze samenleving.**
+**§4** **Pastoraal heeft alles met doctrine te maken, en doctrine alles met pastoraal. Beide zullen in de Synode aan bod moeten komen, wil de Kerk nieuwe wegen openen voor de evangelisatie van huwelijk en gezin in onze samenleving.**
 
 Dit thema komt veel ter sprake. Met dit citaat is de teneur gezet: _Voor de meerderheid van de respondenten is het essentieel te beginnen met het vestigen van de aandacht op de menselijke waarden die aanwezig zijn in elke verbintenis en met de bevestiging dat God er daadwerkelijk aanwezig is. In elke relatie is er een verlangen en een zoeken naar verbondenheid. Gods genade laat zich niet tegenhouden door een gezinsvorm. We mogen die relaties niet beschouwen als ‘een tussenstap’._
 
 Toch klinkt ook een andere stem: _Anderen wijzen erop dat pastoraal en ethiek nauw samenhangen. De verkondiging moet weliswaar vertrekken vanuit de situatie van gelovigen zelf, maar ze moet wel duidelijk zijn en een einddoel in het vooruitzicht stellen. Gelovigen moeten gewezen worden op hun mogelijkheden, plichten en beperkingen. Ze dienen steun te zoeken in gebed en sacramenten. Van belang is de waarheid in liefde aanbieden, zonder die waarheid te loochenen._
 
-****§**5 Naar mijn mening zal de komende bisschoppensynode weinig kunnen bijdragen tot de evangelisatie van huwelijk en gezin, indien zij niet eerst de dialoog herstelt met de brede moraaltheologische traditie van de Kerk.  Altijd hebben in de Kerk verschillende moraaltheologische modellen gefunctioneerd. Alleen in hun complementariteit kunnen deze modellen recht doen aan de veelzijdige zoektocht van het menselijke denken naar waarheid en goedheid.**
+**§5 Naar mijn mening zal de komende bisschoppensynode weinig kunnen bijdragen tot de evangelisatie van huwelijk en gezin, indien zij niet eerst de dialoog herstelt met de brede moraaltheologische traditie van de Kerk.  Altijd hebben in de Kerk verschillende moraaltheologische modellen gefunctioneerd. Alleen in hun complementariteit kunnen deze modellen recht doen aan de veelzijdige zoektocht van het menselijke denken naar waarheid en goedheid.**
 
 Diepgaande moraaltheologische tractaten heeft de bevragen niet opgeleverd, maar duidelijk is dat de meningen eerder neigen naar tegenstelling dan complementariteit: _Bepaalde respondenten wijzen op het belang van de encycliek Humanae Vitae, terwijl anderen liever zouden hebben dat men er niet meer zou naar verwijzen._
 
-****§**6 Wat hoop ik dan van de Synode? Dat het geen platonische synode wordt. Dat zij zich niet terugtrekt op het veilige eiland van doctrinele discussies of algemene normen, maar oog heeft voor de concrete en complexe werkelijkheid van het leven.**
+**§6 Wat hoop ik dan van de Synode? Dat het geen platonische synode wordt. Dat zij zich niet terugtrekt op het veilige eiland van doctrinele discussies of algemene normen, maar oog heeft voor de concrete en complexe werkelijkheid van het leven.**
 
 Ook hier ruime expliciete support, waarvan twee voorbeelden:
 
@@ -59,13 +59,13 @@ _Vele Belgische respondenten vinden het onderricht achterhaald. Het zou meer moe
 
 _Veel respondenten wijzen op een gebrek aan nederigheid van de Kerk. Ze voelen zich geërgerd en vragen wat we eigenlijk weten over Gods oorspronkelijke plan. Ze onderstrepen dat de christenen niet de enige bezitters van de volle waarheid zijn. Zij houden een pleidooi voor een opener, realistische, modernere visie van de Kerk op het gezin._
 
-****§**7** **Om met de beeldtaal van Jezus zelf te spreken: soms was Hij als een zaaier, soms als een herder, soms als een gastheer. Telkens stonden of zaten mensen in een wisselende kring om Hem heen. Die concentrische opbouw behoort tot de architectuur van de kerkgemeenschap zoals Jezus haar in stelling heeft gezet. Ik hoop dat de Synode deze architectuur tot haar recht zal laten komen. In het kerkelijke discours rond huwelijk en gezin mogen woorden als ‘tochtgenoot’ en ‘broederlijkheid’ duidelijker klinken.**
+**§7 Om met de beeldtaal van Jezus zelf te spreken: soms was Hij als een zaaier, soms als een herder, soms als een gastheer. Telkens stonden of zaten mensen in een wisselende kring om Hem heen. Die concentrische opbouw behoort tot de architectuur van de kerkgemeenschap zoals Jezus haar in stelling heeft gezet. Ik hoop dat de Synode deze architectuur tot haar recht zal laten komen. In het kerkelijke discours rond huwelijk en gezin mogen woorden als ‘tochtgenoot’ en ‘broederlijkheid’ duidelijker klinken.**
 
 De respondenten zijn het opnieuw eens:
 
 _Iemand begeleiden op zijn levensweg houdt overigens in dat men geen veroordelende houding aanneemt, maar zich weet open te stellen voor ontvankelijkheid, luisterbereidheid, dialoog en respect. De Kerk kan alleen maar uitnodigen om een verdere stap te zetten en mensen bemoedigen in de keuze voor ongehuwd samenwonen of voor een burgerlijk huwelijk die ze al gemaakt hebben: het onderweg zijn is hier opnieuw het sleutelwoord._
 
-****§**8 Hoe paradoxaal het ook moge klinken, maar betere normen voor de omgang met onregelmatige situaties kunnen de uitoefening van het leiderschap in de Kerk alleen ten goede komen. Ook daarvoor kijk ik hoopvol uit naar de komende Synode.**
+**§8 Hoe paradoxaal het ook moge klinken, maar betere normen voor de omgang met onregelmatige situaties kunnen de uitoefening van het leiderschap in de Kerk alleen ten goede komen. Ook daarvoor kijk ik hoopvol uit naar de komende Synode.**
 
 Nu komt kat op de koord! Pastoraal kan je veel kanten uit, maar gaan we ook de regels aanpassen? Hier hebben de respondenten zich even volledig _out of the box_ laten gaan; een bloemlezing:
 
@@ -89,7 +89,7 @@ Tot zover de acht verwachtingen van mgr. Bonny. Alle verwachtingen lijken door m
 
 Nu eens kijken of mijn persoonlijke verwachtingen ook uit de verf komen. Het zal niet aan mezelf te danken zijn, want ik heb geen antwoord ingestuurd omdat dat ik me niet door de vraagstelling kon worstelen, die "eerder bedoeld is voor priesters en kerkmensen die gezinnen begeleiden en qua woordkeuze ook bepaalde vraagstellingen ideologisch kan omzeilen", zoals het rapport ook aanhaalt.
 
-****§**1 Ik verwacht dat de synode een duidelijk onderscheid maakt tussen analyse en beschouwing enerzijds en concrete besluiten anderzijds, of anders gezegd: liever erkent geen antwoord te kunnen geven op verwachtingen die gesteld worden, dan een vage ruimte te creëren voor experimenten.**
+**§1 Ik verwacht dat de synode een duidelijk onderscheid maakt tussen analyse en beschouwing enerzijds en concrete besluiten anderzijds, of anders gezegd: liever erkent geen antwoord te kunnen geven op verwachtingen die gesteld worden, dan een vage ruimte te creëren voor experimenten.**
 
 Uit de antwoorden:
 
@@ -103,7 +103,7 @@ _Een procentueel kleine groep ten slotte antwoordt op deze vraag dat de personal
 
 _Bepaalde respondenten zouden voor hun kinderen en voor zichzelf graag een steviger catechismus willen. Nogal wat van hen geven aan dat ze zich regelmatig beroepen op de Catechismus van de Katholieke Kerk. Ze zouden willen dat de Kerk, in het bijzonder in België, het onderricht sterker bevestigt en openlijk publieke acties ondersteunt. De gezinspastoraal zou volgens hen vooral bezig moeten zijn met de verspreiding van het evangelie van het leven, de theologie van het lichaam… in plaats van onregelmatige samenlevingsvormen te bevestigen. Er is nood aan niet-angstige, gevormde mensen, die de kerkelijke leer kunnen uitleggen in plaats van die te relativeren._
 
-****§**2 Ik verwacht dat de synode het gezin erkent als de belangrijkste bron van geloofsopvoeding, in een wereld waarin geseculariseerde scholen die taak niet langer mogen vervullen en waarin de krimpende geloofsgemeenschappen de kracht niet hebben om volwaardige catechese aan te bieden.**
+**§2 Ik verwacht dat de synode het gezin erkent als de belangrijkste bron van geloofsopvoeding, in een wereld waarin geseculariseerde scholen die taak niet langer mogen vervullen en waarin de krimpende geloofsgemeenschappen de kracht niet hebben om volwaardige catechese aan te bieden.**
 
 Uit de antwoorden:
 
@@ -125,7 +125,7 @@ _Het merendeel van de antwoorden laat aanvoelen dat er weinig steun is voor de o
 
 _Sommigen pleiten voor de uitbouw van structuren die kunnen helpen bij de opvoeding. Ze willen dat het niveau van de catechese voor kinderen wordt opgetrokken, meer bepaald als het gaat over de Schrift en de opvoeding in evangelische waarden._
 
-****§**3 Ik verwacht dat de synode het doopsel en de biecht aan het gezin aanreikt als wegen naar ontmoeting met Christus en als voortdurende opdracht voor de ouders (of opvoeders) om kinderen op te voeden in het geloof en niet de eucharistie in te vullen als een soort van initiatie- of verzoeningssacrament.**
+**§3 Ik verwacht dat de synode het doopsel en de biecht aan het gezin aanreikt als wegen naar ontmoeting met Christus en als voortdurende opdracht voor de ouders (of opvoeders) om kinderen op te voeden in het geloof en niet de eucharistie in te vullen als een soort van initiatie- of verzoeningssacrament.**
 
 Uit de antwoorden:
 

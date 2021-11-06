@@ -54,6 +54,6 @@ Hoog tijd dus om daarin wat meer te investeren. Net zoals de kranten, moet de ke
 
 Een voorbeeld van zo'n internationaal initiatief is de '3-minute-catechism' of kortweg [3MC](http://www.3mc.me/eng/index_eng.html "3MC"). Die biedt geen infografieken aan, maar filmpjes waarin het geloof aan de hand van tekeningen wordt uitgelegd, beschikbaar in 7 talen, waaronder spijtig genoeg geen Nederlands.
 
-http://www.youtube.com/watch?feature=player\_embedded&v=Nhs4zTzCCfc
+{{< youtube Nhs4zTzCCfc >}}
 
 Meer voorbeelden van infografieken vind je op mijn nieuwe Pinterestbord ['Catholic infographics'](http://pinterest.com/vicmortelmans/catholic-infographics/ "Catholic Infographics").

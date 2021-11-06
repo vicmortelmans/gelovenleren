@@ -11,26 +11,31 @@ Het is ongelofelijk hoeveel catechetisch materiaal in het Nederlandse taalgebied
 
 ### [3MC - 3 Minute Catechism](http://www.youtube.com/playlist?list=PLIcePO_eJb2_EElTdFm1PFLNkH17EQcV- "3MC")
 
-\[youtube=http://www.youtube.com/watch?v=BAB5dfrYkTE&list=PLIcePO\_eJb2\_EElTdFm1PFLNkH17EQcV-&index=1\]
+{{< youtube BAB5dfrYkTE >}}
+
+Klik [hier](http://www.youtube.com/watch?v=BAB5dfrYkTE&list=PLIcePO\_eJb2\_EElTdFm1PFLNkH17EQcV-&index=1) voor de volledige lijst met filmpjes.
+
 
 ### Video Catechism
 
-\[youtube=http://www.youtube.com/watch?feature=player\_embedded&v=iUYlZNu9Jqk\]
+{{< youtube iUYlZNu9Jqk >}}
 
 ### [Catholic Diocese Richmond](http://www.youtube.com/channel/UCWWHwSNYBtEi1ljw_kMKnHQ?feature=watch "Catholic Diocese Richmond on YouTube")
 
-\[youtube=http://www.youtube.com/watch?v=tvo0OCcp600\]
+{{< youtube tvo0OCcp600 >}}
 
 ### [Outside DA box](http://www.youtube.com/user/OutsidedaBoxNFP?feature=watch "Outside DA box")
 
-\[youtube=http://www.youtube.com/watch?v=0YNeTwWU1RE\]
+{{< youtube 0YNeTwWU1RE >}}
 
 ### [Prager University](http://www.youtube.com/user/PragerUniversity?feature=watch "Prager University")
 
-\[youtube=http://www.youtube.com/watch?v=ApVYpBwXWLk&list=FLgD6\_dsTZ0n0crp3p-opobA&index=6\]
+{{< youtube ApVYpBwXWLk >}}
+
+Klik [hier](http://www.youtube.com/watch?v=ApVYpBwXWLk&list=FLgD6\_dsTZ0n0crp3p-opobA&index=6) voor de volledige lijst met filmpjes.
 
 En in dit lijstje mag natuurlijk ook EH. Barron niet ontbreken, met zijn uitstekende catechesevideo's op Word on Fire!
 
 ### [Word on Fire](http://www.youtube.com/user/wordonfirevideo?feature=watch "Word on Fire")
 
-\[youtube=http://www.youtube.com/watch?v=voyDUAoJ1J8\]
+{{< youtube voyDUAoJ1J8 >}}

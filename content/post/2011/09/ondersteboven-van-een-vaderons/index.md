@@ -43,7 +43,7 @@ Stap voor stap:
 
 De primaire verzuchting van de mens, is verlost te worden van alles wat slecht is. Iemand die alles voor de wind gaat en zich nergens om hoeft te bekommeren, zal zich zelden tot God wenden. De weg naar God begint bij een nood die in de menselijke natuur ingebakken zit, in zijn onderhevigheid aan kwaad.
 
-<table><tbody><tr><td><div><img src="https://lh3.googleusercontent.com/2siGq1Fe6XLe9ocyfTmxfGBJ7ba6APH65_CdfQGD8g5kq1cdRvEvfEIh8hnM6H77yMZNSKOkReziCLwcsdzSXezzLQhrl9SyEU5-KMIzz5xCwYPyXA0" alt="" width="97px;" height="103px;"></div></td><td>Deze eerste prille stap op weg naar geloof zet een kind wanneer het wordt gedoopt. Het is nog onbewust, maar <a href="/2010/11/02/de-duivel-en-de-bange-blanke-man/">het kwaad</a> wordt uit zijn ziel verdreven.</td></tr></tbody></table>
+> **Deze eerste prille stap op weg naar geloof zet een kind wanneer het wordt gedoopt. Het is nog onbewust, maar <a href="/2010/11/02/de-duivel-en-de-bange-blanke-man/">het kwaad</a> wordt uit zijn ziel verdreven.**
 
 ### “En breng ons niet in beproeving”
 
@@ -57,7 +57,7 @@ Verder nadenkend ziet de zondige mens in dat veel kwaad heel eenvoudig kan worde
 
 Nu komt heel concreet de verwachting naar boven die we koesteren van God (die we nog niet kennen). De ethisch bewuste mens heeft geprobeerd kennis op te bouwen van goed en kwaad en heeft besloten dat het goed is bekoringen te weerstaan en anderen te vergeven. Hij beseft dat daarmee al heel wat kwaad uit de wereld gebannen kan worden, maar staat nog steeds alleen met zijn eigen zondigheid. Welke mens zal hem vergeven?
 
-<table><tbody><tr><td><div><img src="https://lh3.googleusercontent.com/5nPqLbDTP09gJLcKBU70gE2TvpwmJB0nS2iX9RR7TwcMHq969vlMH_3TlXBYcL-pOLg24jYKqRGZCqeIMkSpU8TLdqwXv2pUtjbE5NRsOCD4Cu36Eos" alt="" width="101px;" height="109px;"></div></td><td>De gelovige die de weg tot hier heeft afgelegd, zal al veel baat vinden bij het sacrament van de biecht.</td></tr></tbody></table>
+> **De gelovige die de weg tot hier heeft afgelegd, zal al veel baat vinden bij het sacrament van de biecht.**
 
 ### “Geef ons heden ons dagelijks brood”
 
@@ -69,13 +69,13 @@ In _“Jezus van Nazareth”_ haalt de paus een fascinerende verklaring van dit 
 
 Dit is een goede sleutel om de continuïteit van het gebed te ontsluiten! Wat is de logische volgende stap voor de mens, die nu op zoek is naar iemand die hem uit zijn zondigheid verlost, maar God in de hemel (nog) niet kent? Hij zoekt iemand die hem kan verlossen, bij voorkeur een mens, want iemand anders kent hij niet. Hij zoekt het vleesgeworden woord van leven en van verlossing, en rara, wie zou dat kunnen zijn :)
 
-<table><tbody><tr><td><div><img src="https://lh5.googleusercontent.com/YNMRVIFFCxs1ebqSmW0AwpNn5aebcbORVwb4LnWJUXtoSVhdfT6y62Gjk5JjmfocCtCCTj9EHOwmdz9IhKDJYE2toRCPo0Tsaq1iBvAB59Rth72iKoM" alt="" width="104px;" height="111px;"></div></td><td>De gelovige die de weg tot hier heeft afgelegd, is rijp om aan te schuiven aan de tafel van de Heer en de communie te ontvangen.</td></tr></tbody></table>
+> **De gelovige die de weg tot hier heeft afgelegd, is rijp om aan te schuiven aan de tafel van de Heer en de communie te ontvangen.**
 
 ### “Uw wil geschiede op aarde zoals in de hemel”
 
 En dan klaart het perspectief op: net als Christus heeft de mens een bestemming in de hemel, bij God. Om die bestemming te bereiken, neemt de gelovige de taak op de schouders om Gods wil boven alles te laten prevaleren. Het aardse wordt aan het hemelse ondergeschikt.
 
-<table><tbody><tr><td><div><img src="https://lh6.googleusercontent.com/c04WOYDo08aBC5A8zdWvqRGjpF1SSi-i171CNFrffL5HuWXCBGaV_Z-P9Lohb2uDE0pDSHSd5xWXOFLYa79nDvZN7xS6FHbWoWxI-P8D0KEQNX5wlek" alt="" width="109px;" height="117px;"></div></td><td>In het vormsel schenkt de Heilige Geest ons zijn gaven, om deze taak te kunnen uitvoeren.</td></tr></tbody></table>
+> **In het vormsel schenkt de Heilige Geest ons zijn gaven, om deze taak te kunnen uitvoeren.**
 
 ### “Uw rijk kome”
 
@@ -85,13 +85,13 @@ Het Rijk van God is overal waar Gods wil wordt gehoorzaamd. Deze stap is de belo
 
 Nu is het gepast God te loven. Ons (omgedraaid) gebed is geëvolueerd van een basale verzuchting tot een goddelijke lofzang.
 
-<table><tbody><tr><td><div><img src="https://lh4.googleusercontent.com/DWY2swRR_d8Fo3MJTKTvmyYbfD7hxTzNJjbxC5WCGR5jcZeu5OxwlK4jdR4rEICxSkyvqGja38v2PY4rU3Tuyioa6DLq4u66AqeSbywuKfo4dy9YwcM" alt="" width="101px;" height="107px;"></div></td><td>Met de priesterwijding en het regulier kloosterleven beantwoordt de kerk aan de roeping van iemand die zijn leven wil toewijden aan de verheerlijking van Gods glorie.</td></tr></tbody></table>
+> **Met de priesterwijding en het regulier kloosterleven beantwoordt de kerk aan de roeping van iemand die zijn leven wil toewijden aan de verheerlijking van Gods glorie.**
 
 ### “Onze Vader, die in de hemel zijt”
 
 Op het einde van ons gebed mogen we God een naam geven en Hem ‘Vader’ noemen. De weg van het geloof is (bijna?) voltooid. Voor wie in God gelooft en Hem Vader noemt, is het onzevader geen moeilijk gebed, want uit het geloof in God, volgt meteen al de rest.
 
-<table><tbody><tr><td><div><img src="https://lh5.googleusercontent.com/ELu6-ce4xI2LmGtD80YzBUrRFUcfVqiWS44_B8u7snGJo00d4ydJTPYUuQW7AKS3WAe5ADEGpmJ1kw4rnkRdKzcLu_8SrdWjTrqJD-0QPbk2CI23NA0" alt="" width="107px;" height="113px;"></div></td><td>Op het einde van ons leven zullen we God tegemoettreden, en gesterkt door de sacramenten van de stervenden ontvangt de Vader ons in zijn armen.</td></tr></tbody></table>
+> **Op het einde van ons leven zullen we God tegemoettreden, en gesterkt door de sacramenten van de stervenden ontvangt de Vader ons in zijn armen.**
 
 Het omgedraaide onzevader stelt God niet in de schaduw van de mens, maar biedt een perspectief dat tegemoetkomt aan een moderne geloofshouding, die vanuit de mens vertrekt. Geloof is geen vanzelfsprekend gegeven, maar moet groeien in de mens. De rechte weg is in warrige tijden een doolhof en het gebed is onze landkaart. En als je het noorden kwijt bent, kan je soms de weg terugvinden door de kaart ondersteboven te houden.
 

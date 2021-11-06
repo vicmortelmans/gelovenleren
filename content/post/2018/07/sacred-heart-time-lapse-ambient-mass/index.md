@@ -13,7 +13,7 @@ Since a couple of months our church has a webcam. We use it to stream mass via [
 
 These pictures I have collected to make a [time-lapse video](https://www.youtube.com/watch?v=tQoZW0HBuPs). Each picture becomes a frame in the video, so with 25 frames per second, the result is a factor 1500 fast-forward view on what's happened in church during the last couple of weeks. One day in real live is one minute on the video. Mass only takes a couple of seconds!  
 
-https://www.youtube.com/watch?v=tQoZW0HBuPs
+{{< youtube tQoZW0HBuPs >}}
 
 The whole video spans 20 days and is approximately 20 minutes long. If you watch the whole video, you'll see Sunday masses take place (and also Wednesday masses) and the weekly adoration. You'll see a weading and a funeral pass by in a flash. And you'll notice the volunteers who clean the curch each week. Even when the church is empty, you can enjoy the sunlight sweeping over the floors and the walls and at night the church isn't desolate either, as you'll the tiny flickering red light indicating Christ's presence in the tabernacle.  
 

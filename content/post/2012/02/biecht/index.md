@@ -63,7 +63,7 @@ Algemene informatie over de biecht:
 - [De voorbereiding op een goede biecht](https://www.agneskerk.org/2019/04/de-voorbereiding-op-een-goede-biecht.html)
 - Bewust Katholiek:
 
-\[embed\]https://www.youtube.com/watch?v=ImyV0pmyRyw\[/embed\]
+{{< youtube ImyV0pmyRyw >}}
 
 Heel concreet over een goed gewetensonderzoek en over het verloop van de biecht:
 

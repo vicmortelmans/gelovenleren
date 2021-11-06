@@ -21,20 +21,15 @@ In Inkscape, mijn favoriete SVG-editor, heb ik dus een identiek rooster aangemaa
 
 Hoewel het overtekenen heel eenvoudig lijkt, ben ik toch op enkele problemen gestoten:
 
-- de originele afbeelding was nogal arm aan contrast, waardoor de lichtste kleuren niet echt wit waren, maar een soort van grijs. Dat is waarschijnlijk een gevolg van de fototechniek en niet zozeer een kenmerk van het oorspronkelijke werk. Om dat te verhelpen heb ik de afbeelding in GIMP van een arbitraire gamma-correctie voorzien.
-    
+- de originele afbeelding was nogal arm aan contrast, waardoor de lichtste kleuren niet echt wit waren, maar een soort van grijs. Dat is waarschijnlijk een gevolg van de fototechniek en niet zozeer een kenmerk van het oorspronkelijke werk. Om dat te verhelpen heb ik de afbeelding in GIMP van een arbitraire gamma-correctie voorzien.  
     [![voor gammacorrectie](images/ecce-homo-origineel-voor-gammacorrectie-150x150.jpg)](images/ecce-homo-origineel-voor-gammacorrectie.jpg) voor gammacorrectie
-    
     [![na gammacorrectie](images/ecce-homo-150x150.jpg)](images/ecce-homo.jpg) na gammacorrectie
 - voor de keuze van de kleuren was ik geheel afhankelijk van de ene afbeelding die ik tot mijn beschikking had. Als die foto in een slechte belichting is genomen of werd nabewerkt, wijken mijn kleuren af van die van het originele werk. In elk geval is mijn resultaat op het zicht globaal redelijk equivalent met de afbeelding, op enkele kleuren na waarvoor ik in het Material-Designschema op een iets verzadigder variant moest terugvallen.
-- het raster van de originele afbeelding is onregelmatig: niet alle vlakken zijn exact even groot. Was dat een (opzettelijke?) slordigheid van de schilder, of een effect gegenereerd door het nemen van de foto, dat weet ik niet. In mijn versie is het raster exact.
-    
+- het raster van de originele afbeelding is onregelmatig: niet alle vlakken zijn exact even groot. Was dat een (opzettelijke?) slordigheid van de schilder, of een effect gegenereerd door het nemen van de foto, dat weet ik niet. In mijn versie is het raster exact.  
     ![detail met onregelmatig rooster](images/ecce-homo-golving-300x102.jpg) detail met onregelmatig rooster
-- de schilder is niet altijd even nauwkeurig tewerk gegaan. Soms heeft hij (opzettelijk?) 'buiten de lijntjes' gekleurd en lopen kleuren een beetje over in een naburig vlak. Ook dit effect heb ik niet gereproduceerd. Mijn versie mag dus 'perfecter' lijken, maar de schilder kan daarover een andere mening hebben!
-    
+- de schilder is niet altijd even nauwkeurig tewerk gegaan. Soms heeft hij (opzettelijk?) 'buiten de lijntjes' gekleurd en lopen kleuren een beetje over in een naburig vlak. Ook dit effect heb ik niet gereproduceerd. Mijn versie mag dus 'perfecter' lijken, maar de schilder kan daarover een andere mening hebben!  
     ![buiten de lijntjes gekleurd](images/ecce-homo-buiten-de-lijntjes.jpg) buiten de lijntjes gekleurd
-- enkele kleuren vonden helemaal geen goeie match in het Material-Designschema. Daarom heb ik twee kleuren toegevoegd, dankzij deze website. Het rood van het originele werk is veel dieper rood dan het rood van Material Design. Hoewel het rood een belangrijke kleur is in dit werk, heb ik toch gekozen voor de Material-Designversie. Dit is het kleurenschema van Material Design, met rechts de twee kolommen met de toegevoegde kleuren:
-    
+- enkele kleuren vonden helemaal geen goeie match in het Material-Designschema. Daarom heb ik twee kleuren toegevoegd, dankzij deze website. Het rood van het originele werk is veel dieper rood dan het rood van Material Design. Hoewel het rood een belangrijke kleur is in dit werk, heb ik toch gekozen voor de Material-Designversie. Dit is het kleurenschema van Material Design, met rechts de twee kolommen met de toegevoegde kleuren:  
     ![kleurschema](images/kleuren-300x103.png) kleurschema
 - het selecteren van een juiste kleur leert veel over het verschijnsel van [simultaancontrast](https://nl.wikipedia.org/wiki/Kleurcontrast#Simultaancontrast). Eenzelfde kleur ziet er op de ene plaats uit als bruin, op een andere plaats als grijs en elders als groen, afhankelijk van de omgevende kleurvlakken. Wellicht een techniek die de schilder bewust heeft gebruikt!
 - om alle roosterpunten exact uit te lijnen, heb ik de SVG naverwerkt met een eigen gebrouwen XSLT-scriptje (het genoegen dat te bekijken gun ik de lezer niet, want het interesseert hem toch niet, en was bovendien programmatorisch broddelwerk).
@@ -48,7 +43,7 @@ Naar goeie gewoonte kan de lezer de hele boel hier downloaden. Ik denk zelfs dat
 
 ![Ecce Homo, originele versie](images/ecce-homo-238x300.jpg) Ecce Homo, originele versie
 
-JPG-afbeelding op A1-formaat: [ecce-homo-A1.jpg](iamges/ecce-homo-A1.jpg)
+JPG-afbeelding op A1-formaat: [ecce-homo-A1.jpg](images/ecce-homo-A1.jpg)
 
 SVG-afbeelding: [ecce-homo.svg](ecce-homo-A1.svg)
 

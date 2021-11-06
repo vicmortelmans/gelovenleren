@@ -13,8 +13,8 @@ Goed een jaar geleden trof ik op internet [3D-opnames van Antwerpse kerken](/blo
 
 Sint-Michielskerk
 
-\[embed\]https://vimeo.com/135369705\[/embed\]
+{{< vimeo 135369705 >}}
 
 Sint-Jacobskerk
 
-\[embed\]https://vimeo.com/155280780\[/embed\]
+{{< vimeo 155280780 >}}

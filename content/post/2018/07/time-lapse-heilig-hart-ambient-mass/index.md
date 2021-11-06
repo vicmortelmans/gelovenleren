@@ -13,7 +13,7 @@ Sinds een paar maanden hebben we een [webcam in onze kerk](/blog/de-heilige-mis-
 
 Met die beelden ben ik aan de slag gegaan om een [timelapse-video](https://www.youtube.com/watch?v=tQoZW0HBuPs) te maken. Elke foto wordt een _frame_ in de video, dus als je een _framerate_ hebt van 25 beelden per seconde, levert dat een 1500 maal versneld beeldverslag op van wat de camera gedurende enkele weken heeft geregistreerd. Een ganse dag duurt op de video een minuutje. Een eucharistieviering duurt slechts enkele seconden!  
 
-https://www.youtube.com/watch?v=tQoZW0HBuPs
+{{< youtube tQoZW0HBuPs >}}
 
 De ganse video beslaat 20 dagen en duurt ongeveer 20 minuten. Als je de moeite doet om de video uit te kijken, zie je de eucharistievieringen op zondag (en sinds kort ook op woensdag) en de wekelijkse aanbiddingen. Je zal een huwelijk en een uitvaart zien voorbijflitsen. Je ziet de vrijwilligers die elke week de kerk poetsen. Als er niks te doen is in de kerk, kan je genieten van het lichtspel van de zon en zelfs 's nachts is de kerk niet gans verlaten,  want het flikkerende lichtje van de godslamp toont dat Hij er is (tenzij iemand vergat de kaars te vervangen, maar dat werd dan weer goed gemaakt door iemand anders die eens vergat de spots te doven die het tabernakel verlichten).  
 

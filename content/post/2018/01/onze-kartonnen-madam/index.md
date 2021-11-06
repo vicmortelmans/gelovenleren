@@ -18,7 +18,7 @@ Als alles is aangesloten (en na fine-tuning van enkele scriptjes), heb je je eig
 
 De assistant probeert zo natuurlijk mogelijk te dialogeren. Soms heeft ze er nog een beetje moeite mee de juiste context op te halen uit vorige vragen of antwoorden uit de dialoog, maar dat is haar snel vergeven.
 
-\[embed\]https://www.youtube.com/watch?v=jyJ1SbaxzbM\[/embed\]
+{{< youtube jyJ1SbaxzbM >}}
 
 Voor een diepgaand gesprek kan je bij de kartonnen madam (nog) niet terecht, maar voor gespecialiseerde toepassingen geeft de Google Assistant je toegang tot zogenaamde _actions_. Dat is zo'n beetje als een app op je mobiel, maar in plaats van ze te installeren, vraag je ernaar: "Can I talk to learning to believe?". Als er een _action_ is met die naam, neemt die de dialoog over. Die _actions_ worden niet aangeboden door Google. [Iedereen kan een eigen _action_ maken](https://developers.google.com/actions/) en die beschikbaar stellen op het Google Home-platform.
 

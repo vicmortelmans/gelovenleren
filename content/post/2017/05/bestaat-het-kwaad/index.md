@@ -43,4 +43,4 @@ De professor zette zich neer.
 
 Er wordt gezegd dat deze jongeman Albert Einstein was, in 1921.
 
-\[embed\]https://www.youtube.com/watch?v=hb4Lbs8kju0&gl=BE\[/embed\]
+{{< youtube hb4Lbs8kju0 >}}

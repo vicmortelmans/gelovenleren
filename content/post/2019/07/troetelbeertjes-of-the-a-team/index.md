@@ -14,4 +14,4 @@ _I love it when a plan comes together!_
 
 En dan is er natuurlijk nog de buitengewone ritus. Die is enkel te vergelijken met het origineel...
 
-https://vimeo.com/283322245
+{{< vimeo 283322245 >}}
