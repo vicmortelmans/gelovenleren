@@ -12,3 +12,8 @@ Youtube embed:
 
 {{< youtube bq244VcpT2w >}}
 
+Margin note:
+
+{{% marginnote %}}
+{{% /marginnote %}}
+
