@@ -14,6 +14,8 @@ tags:
 coverImage: "xxxhdpi.png"
 ---
 
+> **UPDATE 2021:** Er is *eindelijk* een officieel digitaal online missaal beschikbaar voor de Nederlandse kerkprovincie. Meer informatie op: [Geloven Leren - Het digitaal missaal](https://gelovenleren.net/blog/het-digitaal-missaal/ "Geloven Leren - Het digitaal missaal")
+ 
 Op de _Google Search Console_ kan ik aflezen welke zoekopdrachten bezoekers van mijn blog hebben ingegeven op Google en hoe vaak mijn blog in de resultaten werd aangeklikt. Dit is de top-10 van de vaakst voorkomende zoektermen, met het aantal doorverwijzingen in de laatste 90 dagen:
 
 1. missaal online 40
