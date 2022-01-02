@@ -37,4 +37,3 @@ Onze relatie tot onze naasten, onze rol in de samenleving, alles wat we normaalg
 
 Ik denk dat het een betere benadering is om over het christelijk geloof na te denken. De gewoonlijke benadering, waarbij de liefde van God als een geestelijke abstractie wordt voorgesteld van onze concrete daden van naastenliefde, vind ik problematisch omdat ze insinueert dat het de mens is die zich een Godsidee schept om over belangrijke levensvragen abstract te kunnen redeneren. Als je nadenkt over de Schepping, de Menswording en de Verlossing houdt die benadering geen steek. Draai je het helemaal om en beschouw je onze daden van naastenliefde als abstracte vormen van de concrete liefde van God, dan valt heel de Blijde Boodschap netjes in haar plooi!
 
-/blog/ecce-homo-overgetekend/

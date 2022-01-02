@@ -1,6 +1,7 @@
 ---
 title: "Websites"
 date: 2021-08-14
+coverImage: "alledaags.gelovenleren.net-scroll_lossy-comp.gif"
 ---
 
 Behalve artikels schrijf ik ook af en toe software. Volgende websites zijn *spin-offs* van deze blog.
