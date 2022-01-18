@@ -8,11 +8,11 @@ coverImage: "suggesties.png"
 
 Bij het digitaliseren van de *[Romeinse Catechismus](http://trente.gelovenleren.net/)* (*Catechismus Romanus Ex Decreto Concilii Tridentini, 1566, vert. 1935*), nam ik de appendix mee op. Daarin vind je voor elke zondag en feestdag in de liturgische kalender een aantal artikels uit de catechismus, die van toepassing zijn op de evangelielezing van die dag. Deze catechismus was immers opgevat als een hulpmiddel voor pastoors bij het opmaken van hun preek: "homiletische suggesties" noemen we dat vandaag.
 
-Deze suggesties vind je op de website [onder "Buitengewone vorm" achteraan in de gedigitaliseerde Romeinse Catechismus](https://trente.gelovenleren.net/docs/7-kalender/kalender-eo/), ongewijzigd overgenomen uit de Nederlandse publicatie van de catechismus in 1935. Het is me niet duidelijk of deze leidraad is opgesteld door de auteur van de vertaling, dan wel of die reeds deel uitmaakte van een vroegere publicatie van de catechismus. 
+Deze suggesties vind je op de website [onder "Buitengewone vorm" achteraan in de gedigitaliseerde Romeinse Catechismus](https://trente.gelovenleren.net/7-kalender/kalender-eo/), ongewijzigd overgenomen uit de Nederlandse publicatie van de catechismus in 1935. Het is me niet duidelijk of deze leidraad is opgesteld door de auteur van de vertaling, dan wel of die reeds deel uitmaakte van een vroegere publicatie van de catechismus. 
 
 Vermits de publicatie stamt uit 1935, volgen de homiletische suggesties de kalender van de tridentijnse mis. De kalender op zich is nog redelijk gelijklopend met die we vandaag hanteren, maar de geselecteerde lezingen voor de H. Mis zijn na het tweede Vaticaans concilie helemaal [dooreengegooid](https://www.amazon.co.uk/Index-Lectionum-Comparative-Extraordinary-Lectionary/dp/1530230721) (daarover kan je een hele [boom opzetten](https://twitter.com/M_P_Hazell)). Dat betekent dat de preconciliaire homiletische suggesties vaak onbruikbaar zijn om een preek voor te bereiden, want er wordt altijd vertrokken van een specifiek evangelievers.
 
-Er zijn lezingen die wel hetzelfde bleven of die nu op een andere dag gebruikt worden. Daarvoor blijven de homiletische suggesties wel bruikbaar. Het was even puzzelen, maar [onder "Gewone vorm" achteraan in de gedigitaliseerde Romeinse Catechismus](https://trente.gelovenleren.net/docs/7-kalender/kalender-of/) vind je nu de hedendaagse liturgische kalender en, waar van toepassing, de homiletische suggesties uit de *Romeinse Catechismus*. 
+Er zijn lezingen die wel hetzelfde bleven of die nu op een andere dag gebruikt worden. Daarvoor blijven de homiletische suggesties wel bruikbaar. Het was even puzzelen, maar [onder "Gewone vorm" achteraan in de gedigitaliseerde Romeinse Catechismus](https://trente.gelovenleren.net/7-kalender/kalender-of/) vind je nu de hedendaagse liturgische kalender en, waar van toepassing, de homiletische suggesties uit de *Romeinse Catechismus*. 
 
 Voor de dagen met evangelielezingen waarvoor in de oorspronkelijke uitgave *geen* suggesties voorkwamen, heb ik het ambitieuze plan opgevat deze zelf verder in te vullen. De vraag is echter: hoe? Om zelf op zoek te gaan naar relevante artikels uit de catechismus, ontbreekt me de tijd en voldoende theologische achtergrond. Het feit is ook dat deze catechismus, hoewel onveranderlijk geldig, een stuk geschiedenis is, dus als ik de aanvullingen daaruit zou putten, is dat gedoemd tot *hineininterpretierung*. 
 
@@ -36,10 +36,10 @@ Verder verwijst de inleiding ook naar de *Romeinse Catechismus*, waaraan de *dir
 
 Die appendix ga ik nu gebruiken om op de website van de *Romeinse Catechismus* de nodige aanvullingen te voorzien om ook voor de hedendaagse liturgische kalender homiletische suggesties te voorzien. 
 
-Het resultaat, de [hedendaagse liturgische kalender met een mix van verwijzingen naar de oude en de nieuwe catechismus](https://trente.gelovenleren.net/docs/7-kalender/kalender-of/), kan vreemd overkomen, maar voor mij zal het een bevestiging zijn van de 'hermeneutiek van de continuïteit', die onder paus Franciscus abrupt gesmoord werd.
+Het resultaat, de [hedendaagse liturgische kalender met een mix van verwijzingen naar de oude en de nieuwe catechismus](https://trente.gelovenleren.net/7-kalender/kalender-of/), kan vreemd overkomen, maar voor mij zal het een bevestiging zijn van de 'hermeneutiek van de continuïteit', die onder paus Franciscus abrupt gesmoord werd.
 
 Hopelijk wordt het ooit nog wel wat, die "Homiletische Leidraad"…
 
-[![](images/suggesties.png)](https://trente.gelovenleren.net/docs/7-kalender/suggesties/)
-[Homiletische suggesties voor komende zondag](https://trente.gelovenleren.net/docs/7-kalender/suggesties/).
+[![](images/suggesties.png)](https://trente.gelovenleren.net/7-kalender/suggesties/)
+[Homiletische suggesties voor komende zondag](https://trente.gelovenleren.net/7-kalender/suggesties/).
 
