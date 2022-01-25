@@ -30,7 +30,7 @@ Nog even wil ik terugkomen op het artikel van Sanctorum, waar hij probeert te ka
 
 ## Exegese
 
-Ik ga nogal eigengereid om met exegese. Mijn belangrijkste tool is de [integrale Petrus-Canisiusbijbel](https://storage.googleapis.com/geloven-leren/books/canisius.html), die ik met een enkele muisklik kan doorzoeken, bijvoorbeeld op het woordje "schuld". Het **Oude Testament** bulkt ervan, zoals hierboven aangehaald, zeker als de profeten aan het woord zijn. Het uitverkoren volk voelde hoe zwaar de schuld woog van zijn ontrouw jegens zijn God.
+Ik ga nogal eigengereid om met exegese. Mijn belangrijkste tool is de [integrale Petrus-Canisiusbijbel](https://bijbel.gelovenleren.net/canisius.html), die ik met een enkele muisklik kan doorzoeken, bijvoorbeeld op het woordje "schuld". Het **Oude Testament** bulkt ervan, zoals hierboven aangehaald, zeker als de profeten aan het woord zijn. Het uitverkoren volk voelde hoe zwaar de schuld woog van zijn ontrouw jegens zijn God.
 
 In het **Nieuwe Testament** vind je "schuld" in een gans andere context. Eigenlijk zijn er maar twee plaatsen waar schuld aan de orde komt. Enerzijds zijn er de parabels van Jezus, zoals die van de onrechtvaardige rentemeester en die van de talenten. Anderzijds zijn er de beschuldigingen die Jezus bij zijn veroordeling ten laste worden gelegd. In de parabels gaat het Jezus erom de schuld vanuit een nieuw perspectief te bekijken. De schuld wordt omgezet in iets goeds. Jezus wil vergeving van schuld. In zijn eigen veroordeling voert Hij dat in praktijk en neemt Hij al onze schuld op zijn schouders. Veel meer wordt er over schuld niet gezegd.  
 

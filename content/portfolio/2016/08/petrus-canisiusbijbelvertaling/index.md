@@ -17,9 +17,9 @@ Nederlandstalige katholieke bijbelvertaling, uitgave 1939
 
 [![e-book-pdf](images/e-book-pdf-150x150.png)](https://storage.googleapis.com/geloven-leren/books/canisius.pdf)
 
-[![html-document](images/htm-document-150x150.png)](https://storage.googleapis.com/geloven-leren/books/canisius.html) - volledige bijbel op 1 webpagina (opgelet: lange laadtijd)
+[![html-document](images/htm-document-150x150.png)](https://bijbel.gelovenleren.net/canisius.html) - volledige bijbel op 1 webpagina (opgelet: lange laadtijd)
 
-[![html-document per boek (als zip-file)](images/htm-document-150x150.png)](https://storage.googleapis.com/geloven-leren/books/canisius-html-separate-books.zip) - aparte pagina's per boek (deze versie als [live website](https://storage.googleapis.com/geloven-leren/books/canisius/index.html))
+[![html-document per boek](images/htm-document-150x150.png)](https://bijbel.gelovenleren.net) - website met aparte pagina's per boek
 
 [![doc-document](images/doc-document-150x150.png)](https://storage.googleapis.com/geloven-leren/books/canisius.doc)
 

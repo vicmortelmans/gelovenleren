@@ -57,7 +57,7 @@ home = ["HTML", "RSS", "JSON"]
   pre = "<i class='fas fa-bible la-lg'></i>"
   weight = -90 
   identifier = "bijbel"
-  url = "https://storage.googleapis.com/geloven-leren/books/canisius/index.html"
+  url = "https://bijbel.gelovenleren.net/"
 [[menu.nav]]
   name = "Zoeken"
   pre = "<i class='fas fa-search la-lg'></i>"

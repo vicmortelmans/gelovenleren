@@ -31,7 +31,7 @@ Wat denkt de Kerk eigenlijk in haar diepste zelf over die verrijzenis, die haar 
 
 Het is niet zo dat de Bijbel, een van de belangrijkste tekstbronnen van ons geloof, bulkt van de uitspraken over onze persoonlijke verrijzenis, als je de verwijzingen naar Christus' verrijzenis niet in rekening neemt en de wonderbare verrijzenissen. Maar het zijn er alles bijeen toch heel wat!
 
-(Alle citaten zijn overgenomen uit de [Petrus-Canisiusbijbelvertaling](https://storage.googleapis.com/geloven-leren/books/canisius.html))
+(Alle citaten zijn overgenomen uit de [Petrus-Canisiusbijbelvertaling](https://bijbel.gelovenleren.net))
 
 In het oude testament staat bij **Jesaja**: 
 

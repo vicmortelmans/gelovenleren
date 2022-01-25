@@ -47,7 +47,7 @@ Een kort stukje uit de catechese van paus Franciscus is opgenomen in het boekje 
 
 * * *
 
-(\*) "Het begin der wijsheid is de Heer te vrezen", zo staat in het [eerste hoofdstuk van _Wijsheid van Jezus Sirach_ volgens de Petrus-Canisiusvertaling](https://storage.googleapis.com/geloven-leren/books/canisius.html#Wijsheid%20van%20Jezus%20Sirach). Dat boek wordt trouwens doorlopend gereciteerd op een eigen twitteraccount: [@JezusSirach](https://twitter.com/jezussirach).
+(\*) "Het begin der wijsheid is de Heer te vrezen", zo staat in het [eerste hoofdstuk van _Wijsheid van Jezus Sirach_ volgens de Petrus-Canisiusvertaling](https://bijbel.gelovenleren.net/wijsheid-van-jezus-sirach.html). Dat boek wordt trouwens doorlopend gereciteerd op een eigen twitteraccount: [@JezusSirach](https://twitter.com/jezussirach).
 
 Beluister de passage over  de vreze Gods uit het boek _Wijsheid van Jezus Sirach_, hoofdstuk 1, vers 14-20 (uit _Totdat Hij Komt_, abdij Maria Toevlucht Zundert):
 
