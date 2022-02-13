@@ -17,3 +17,7 @@ Margin note:
 {{% marginnote %}}
 {{% /marginnote %}}
 
+More cool features:
+https://slashformotion.github.io/hugo-tufte/post/tufte-features/
+https://raw.githubusercontent.com/slashformotion/hugo-tufte/master/exampleSite/content/post/tufte-features.md
+
