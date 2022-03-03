@@ -26,5 +26,5 @@ Tussen de artikels staan een paar verhalen die ik vanop het internet verzamelde:
 
 **[Verhalen](/categories/verhalen)**
 
-Vind je deze website nuttig, deel ze dan met anderen! Melding ontvangen van nieuwe artikels kan via: [Email](https://eepurl.com/9P0gP), [RSS](/index.xml) of [Facebook](https://www.facebook.com/alledaagsgeloven/).
+Vind je deze website nuttig, deel ze dan met anderen! Melding ontvangen van nieuwe artikels kan via: [Email](https://nieuws.gelovenleren.net/?p=subscribe&id=1), [RSS](/index.xml) of [Facebook](https://www.facebook.com/alledaagsgeloven/).
 
