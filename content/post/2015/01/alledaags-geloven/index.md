@@ -21,6 +21,8 @@ Sinds augustus 2018 is Alledaags Geloven ook beschikbaar als een [app op Android
 
 {{< appbox googleplay net.gelovenleren.alledaags >}}
 
+Sinds maart 2022 kan je je [via email abonneren](https://nieuws.gelovenleren.net/?p=subscribe&id=1) om dagelijks een willekeurige kaart te trekken uit het actuele aanbod. Ook via [facebook](https://www.facebook.com/alledaagsgeloven) of [twitter](https://twitter.com/AlledaagsG) kan je Alledaags Geloven volgen.
+
 **Wie kan Alledaags Geloven gebruiken?** Gelovigen die dagelijks individueel, samen met kinderen, in de klas of in groep een beetje tijd vrijmaken om het geloof te verdiepen. Ga naar de website om een helder overzicht te vinden van de topics die vandaag voor jou worden aangeboden, en kies er enkele uit die je wil bekijken.
 
 **Wat vind je op Alledaags Geloven?** Eigen content is er niet. De website bevat links en _teasers_ voor content op andere websites en presenteert die op een overzichtelijke en bruikbare interface.
