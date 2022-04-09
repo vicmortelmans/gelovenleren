@@ -126,21 +126,21 @@ Het is zoals het scherpe verwijt van Jezus aan de farizeeën als hij hen uitsche
 - Onze zonde verfoeien en vermijden
 - Leven volgens de twee geboden van Christus: de Heer uw God beminnen uit geheel uw hart, uit geheel uw ziel en uit al uw krachten, en uw naaste zoals uzelf
 - Leven volgens de tien geboden
-    - Het eerste gebod van God gebiedt God alleen te aanbidden en Hem boven alles te beminnen.
-    - Het vierde gebod van God gebiedt onze ouders en onze geestelijke en wereldlijke oversten te eren.
-    - Het vijfde gebod van God gebiedt ons eigen leven en dat van de naaste te eerbiedigen, zowel het leven van de ziel als dat van hel lichaam.
-    - Het zesde en het negende gebod van God gebieden de deugden van kuisheid en van zedigheid te beoefenen.
-    - Het zevende en het tiende gebod van God gebieden de eigendom van de naaste te eerbiedigen, en aan iedereen te geven wat hem toekomt.
-    - Het achtste gebod van God gebiedt oprecht te zijn in woorden en in daden. En de faam en de geheimen van de naaste te eerbiedigen.
+    * Het eerste gebod van God gebiedt God alleen te aanbidden en Hem boven alles te beminnen.
+    * Het vierde gebod van God gebiedt onze ouders en onze geestelijke en wereldlijke oversten te eren.
+    * Het vijfde gebod van God gebiedt ons eigen leven en dat van de naaste te eerbiedigen, zowel het leven van de ziel als dat van hel lichaam.
+    * Het zesde en het negende gebod van God gebieden de deugden van kuisheid en van zedigheid te beoefenen.
+    * Het zevende en het tiende gebod van God gebieden de eigendom van de naaste te eerbiedigen, en aan iedereen te geven wat hem toekomt.
+    * Het achtste gebod van God gebiedt oprecht te zijn in woorden en in daden. En de faam en de geheimen van de naaste te eerbiedigen.
 - Leven volgens de geboden van de Kerk
-    - Het eerste gebod van de heilige Kerk gebiedt, op zondagen en geboden feestdagen Mis te horen, en de zondagsrust te onder­houden.
-    - De zondagsrust bestaat hoofdzakelijk hierin, dat men zich onthoudt van lichamelijke werken die niet door gewoonte of door noodwendigheden gewettigd zijn.
-    - Het tweede gebod van de heilige Kerk gebiedt zich te onthouden van vlees en vleesnat op vrijdagen en op andere dagen die door de heilige Kerk worden bepaald.
+    * Het eerste gebod van de heilige Kerk gebiedt, op zondagen en geboden feestdagen Mis te horen, en de zondagsrust te onder­houden.
+    * De zondagsrust bestaat hoofdzakelijk hierin, dat men zich onthoudt van lichamelijke werken die niet door gewoonte of door noodwendigheden gewettigd zijn.
+    * Het tweede gebod van de heilige Kerk gebiedt zich te onthouden van vlees en vleesnat op vrijdagen en op andere dagen die door de heilige Kerk worden bepaald.
 - Leven met de kardinale deugden
-    - De voorzichtigheid is de deugd die ons de beste middelen doet aanwenden om christelijk te leven en in de hemel te komen.
-    - De rechtvaardigheid is de deugd die ons aan iedereen doet geven wat hem toekomt.
-    - De sterkte is de deugd die ons het goede doet beoefenen ondanks moeilijkheden en zelfs vervolgingen.
-    - De matigheid is de deugd die ons de zinnelijke goederen doet gebruiken volgens de voorschriften van de rede.
+    * De voorzichtigheid is de deugd die ons de beste middelen doet aanwenden om christelijk te leven en in de hemel te komen.
+    * De rechtvaardigheid is de deugd die ons aan iedereen doet geven wat hem toekomt.
+    * De sterkte is de deugd die ons het goede doet beoefenen ondanks moeilijkheden en zelfs vervolgingen.
+    * De matigheid is de deugd die ons de zinnelijke goederen doet gebruiken volgens de voorschriften van de rede.
 - Leven met de zedelijke deugden, zoals de nederigheid, de gehoorzaamheid, de dankbaarheid, de verduldigheid, de zachtmoedigheid, de boetvaardigheid, de kuisheid.
 - zo goed en zohaast mogelijk, het onrecht te herstellen, dat wij de naaste hebben aangedaan in zijn gezondheid, zijn tijdelijke goederen of zijn goede naam.
 - Goede werken verrichten met Gods genade, ter ere van God en tot welzijn van onszelf of van de naaste: het gebed, de versterving, en de werken van barmhartigheid of van naastenliefde
