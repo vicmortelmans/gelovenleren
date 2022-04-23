@@ -22,7 +22,7 @@ Iemand die voor de eerste keer zou willen biechten, moet minstens drie hordes ov
 
 Voor je naar een priester stapt, moet je eerst de keuze maken hoe je wil biechten. Dat ligt veel aan je persoonlijkheid en aan de relatie die je wil opbouwen met je biechtvader en wie je daarvoor kiest. Je kan kiezen voor een heel open biechtgesprek, van aangezicht tot aangezicht, waarin de voltrekking van het sacrament haast spontaan wordt verweven, of voor een klassieke biecht, waarbij bepaalde vormelijkheden het sacrament ondersteunen.
 
-**Biechtstoel**
+## Biechtstoel
 
 ![Evenement-biechtstoelen](images/1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg?w=150)
 
@@ -34,7 +34,7 @@ Beide vormen hebben hun voor- en nadelen en geen van beide doet iets af aan de w
 2. De biechtvader is afgeschermd van de boeteling door een roostertje. Ik heb al veel wilde verhalen gehoord over de reden daarvan, maar het helpt wel om als het ware abstractie te maken van de persoon van de priester, vermits het eigenlijk Christus is die je biecht opneemt en van Wie je uit de mond van de priester vergiffenis zult krijgen.
 3. De biechtstoel is afgesloten met een gordijntje. Dat geeft natuurlijk privacy tegenover andere aanwezigen in de kerk, maar schept ook een duistere omgeving, die de zonde eigen is. Na de biecht kan je uit het duister treden, de kerk in, waar het licht door de ramen binnenvalt of waar de offerkaarsen hun licht verspreiden.
 
-**Welkom?**
+## Welkom?
 
 Wat echter gedaan als je werkelijk wil gaan biechten? Weten dat je ergens welkom bent, zoals ook de verloren zoon dat was, is de grootste hulp, maar hoe kom je te weten waar dat is? In de biechtstoelen van de meeste kerken heeft al sinds decennia geen priester meer zitten wachten op een boeteling. En niet elke priester heeft evenveel ervaring met biechthoren of is daartoe gedreven.
 
@@ -51,7 +51,7 @@ Verderop vind je nog heel wat websites met informatie over de biecht en over het
 
 [![](images/biecht-leidraad-724x1024.jpg)](http://opusdei.nl/nl-nl/article/biechten-made-easy-een-leidraad/)
 
-Leidraad voor de biecht
+## Leidraad voor de biecht
 
 Algemene informatie over de biecht:
 
@@ -74,6 +74,7 @@ Heel concreet over een goed gewetensonderzoek en over het verloop van de biecht:
 - [Biechtspiegel op basis van de Zaligsprekingen](http://www.biddeniseenweg.nl/visie/verootmoediging-en-berouw/167-kijk-eens-in-de-biechtspiegel)
 - [Biechtspiegel aan de hand van je gelaat](https://www.lambertuskerk-rotterdam.nl/biechtspiegel.html)
 - [Biechtspiegel](http://users.telenet.be/katholieke-informatie/Biecht/Biechtspiegel.html)
+- [Gewetensonderzoek bij boeteviering op 25 maart 2022 in Vaticaanstad](/blog/gewetensonderzoek-voor-de-boeteviering-voorafgaand-aan-de-toewijding-van-rusland-en-oekraine-aan-het-heilig-hart-van-maria/)
 
 [![](images/biechtspiegel_voor_kinderen1-700x350.jpg)](images/biecht_kinderen_nieuw.pdf)
 
@@ -85,7 +86,9 @@ Biechtspiegel voor jongeren
 
 [![](images/biechtspiegel_voor_volwassenen1-700x350.jpg)](images/biecht_volwassenen_nieuw.pdf)
 
-Biechtspeigel voor volwassenen
+Biechtspiegel voor volwassenen
+
+## Verloop van de biecht 
 
 Dit is het [verloop](http://boetesacrament.nl/de-viering-van-het-boetesacrament/) van een biecht. De woorden van de boeteling staan vet. Als dit je allemaal veel hocus-pocus lijkt, geen probleem, biechten is zo al moeilijk genoeg, en het volstaat om samen met de priester het kruisteken te maken en de priester te zeggen wanneer je laatst gebiecht hebt en dan te vertellen waarvan je spijt hebt, de rest volgt dan wel vanzelf zonder teveel plichtplegingen.
 
