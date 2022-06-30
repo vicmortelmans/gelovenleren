@@ -60,7 +60,8 @@ Algemene informatie over de biecht:
 - [5 vragen over de biecht: wat, wie, wanneer, hoe en waarom?](https://www.kerknet.be/kerknet-redactie/artikel/5-vragen-over-de-biecht-wat-wie-wanneer-hoe-en-waarom)
 - [Het sacrament van de verzoening vieren, hoe doe je dat?](https://www.kerknet.be/sites/default/files/Het%20sacrament%20van%20de%20verzoening%20vieren.docx) (docx)
 - [Vensters op katholiek geloven](http://www.venstersopkatholiekgeloven.nl/subartikelen/persoonlijke-of-gemeenschappelijke-biecht/ "Persoonlijke of gemeenschappelijke biecht")
-- [De voorbereiding op een goede biecht](https://www.agneskerk.org/2019/04/de-voorbereiding-op-een-goede-biecht.html)
+- [de voorbereiding op een goede biecht](https://www.agneskerk.org/2019/04/de-voorbereiding-op-een-goede-biecht.html)
+- [Mercèdès Vossenberg biecht](https://www.parochiepetruspaulus.nl/mercedes-vossenberg-biecht/)
 - Bewust Katholiek:
 
 {{< youtube ImyV0pmyRyw >}}
