@@ -32,8 +32,6 @@ Ik las her en der dat wij in Vlaanderen onze ruimdenkendheid in deze kwestie voo
 
 {{< tweet 1372209620119396355 >}}
 
-{{< tweet 1372103184886415360 >}}
-
 En ook op Doorbraak:
 
 https://doorbraak.be/ik-doop-u-in-de-naam-van-bonny/
