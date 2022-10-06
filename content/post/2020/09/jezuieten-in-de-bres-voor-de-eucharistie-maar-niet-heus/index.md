@@ -40,8 +40,3 @@ Ervaring leert me echter dat veel gelovigen, de minder geëvolueerde soort altha
 
 Het getuigt van een vooruitziende blik om antwoorden te zoeken op de vragen van gelovigen, wanneer de eucharistie in de komende tijd om uiteenlopende redenen, veelal praktisch van aard, onder immer sterkere druk zal komen te staan. Geloven zal onherroepelijk andere vormen aannemen dan 'wekelijks naar de mis gaan'. Maar hoe dan ook zal de eucharistie het vertrekpunt zijn, zoals dat sinds de christelijke Oudheid het geval is. 
 
-* * *
-
-Repliek:
-
-{{< tweet 1307463635074195456 >}}
