@@ -1,0 +1,37 @@
+{{ $related := .Site.RegularPages.Related . | first 5 }}
+{{ if $related }}
+{{ with $related }}
+<h1 class="content-title"><a href="/categories/blog">Verwante onderwerpen...</a></h1>
+<ul>
+	{{ range . }}
+        <li>
+        <h2 class="content-title">
+          {{ if .IsNode }}
+          <a href="{{ .Permalink }}">{{ .Title}}</a>
+          {{ else }}
+          <a href="{{ .RelPermalink }}">{{ .Title }}{{ if .Draft }} :: Draft {{end}}</a>
+          {{ end }}
+        </h2>
+
+
+        <p>
+          {{ if .Params.coverImage }}
+          <label
+            for="marginnote-{{.Page.File.UniqueID}}-0"
+            class="margin-toggle"
+            >&#8853;
+          </label>
+          <input
+            type="checkbox"
+            id="marginnote-{{.Page.File.UniqueID}}-0"
+            class="margin-toggle"
+          />
+          <span class="marginnote" style="text-align:right;"><a href="{{ .RelPermalink }}" style="background:none;"><img src="{{ .RelPermalink }}images/{{ .Params.coverImage }}" style="max-height:120px;margin-top:9px;"/></a></span>
+          {{ end }}
+          {{ truncate 120  .Summary }}
+        </p>
+        </li>
+	{{ end }}
+</ul>
+{{ end }}
+{{ end }}

@@ -3,10 +3,38 @@ title: "Een Personalistische Nieuwe Wereldorde, maar gelukkig geen klassenstrijd
 date: "2020-10-06"
 categories: 
   - "blog"
+tags:
+  #- "theologie"
+  #- "vrijheid"
+  - "politiek"
+  #- "liturgie"
+  #- "traditie"
+  #- "biecht"
+  #- "ethiek"
+  #- "aanbidding"
+  #- "sacramenten"
+  - "paus"
+  #- "vlaanderen"
+  #- "opvoeding"
+  #- "verbeelding"
+  #- "gebed"
+  #- "boeken"
+  #- "films"
+  #- "bijbel"
+  #- "woke"
+  #- "antwerpen"
+  #- "publicaties"
+  #- "kerstmis"
+  #- "pasen"
+  - "kerkleer"
+  #- "onderwijs"
+  #- "islam"
+  #- "leven"
+  #- "synode"
 coverImage: "tuttifrutti.jpg"
 ---
 
-De laatste [encyclie Fratelli Tutti](http://www.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html) van Paus Franciscus bevat weinig nieuws, maar is daarom niet minder wereldschokkend. We wisten al dat onze Paus wel iets heeft van een linkse revolutionair, maar waar vorige publicaties die ik van hem las vaak weinig concreets te bieden hadden, ligt er nu een pasklaar plan-van-aanpak gereed, voor de organisatie van een personalistische nieuwe wereldorde. 
+De laatste [encycliek Fratelli Tutti](http://www.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html) van Paus Franciscus bevat weinig nieuws, maar is daarom niet minder wereldschokkend. We wisten al dat onze Paus wel iets heeft van een linkse revolutionair, maar waar vorige publicaties die ik van hem las vaak weinig concreets te bieden hadden, ligt er nu een pasklaar plan-van-aanpak gereed, voor de organisatie van een personalistische nieuwe wereldorde. 
 
 Zo'n concrete visie is gemakkelijker te bevatten dan een verzameling wollige principes, dus de tekst leest als een trein. Ik heb me laten vertellen dat de tekst leerstellig een uitwerking is van wat reeds in de [Sociale Leer van de Kerk](https://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=769) is opgebouwd, gebaseerd op het personalisme en concepten voorgesteld in Vaticanum II. Daarmee is deze encycliek een handige introductie tot dat ideeëngoed, want voornoemde documenten zijn toch iets minder toegankelijk te noemen.
 

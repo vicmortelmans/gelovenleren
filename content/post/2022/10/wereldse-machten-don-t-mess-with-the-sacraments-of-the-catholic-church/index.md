@@ -3,6 +3,32 @@ title: "Wereldse machten - \"Don't mess with the sacraments of the Catholic Chur
 date: 2022-10-06T12:40:25+02:00
 categories: 
   - "blog"
+tags:
+  #- "theologie"
+  - "vrijheid"
+  #- "politiek"
+  - "liturgie"
+  - "traditie"
+  #- "biecht"
+  - "ethiek"
+  #- "aanbidding"
+  - "sacramenten"
+  #- "paus"
+  #- "vlaanderen"
+  #- "opvoeding"
+  #- "verbeelding"
+  #- "gebed"
+  - "boeken"
+  #- "films"
+  #- "bijbel"
+  #- "woke"
+  #- "antwerpen"
+  #- "publicaties"
+  #- "kerstmis"
+  #- "pasen"
+  #- "kerkleer"
+  #- "onderwijs"
+  #- "islam"
 coverImage: "Earthly-Powers.jpg"
 ---
 

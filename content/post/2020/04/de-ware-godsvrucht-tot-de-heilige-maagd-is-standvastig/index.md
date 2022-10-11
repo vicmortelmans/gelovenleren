@@ -2,7 +2,6 @@
 title: "De ware godsvrucht tot de heilige Maagd is standvastig"
 date: "2020-04-03"
 categories: 
-  - "blog"
   - "gouden-boek"
 coverImage: "unnamed-file-108.jpeg"
 ---
