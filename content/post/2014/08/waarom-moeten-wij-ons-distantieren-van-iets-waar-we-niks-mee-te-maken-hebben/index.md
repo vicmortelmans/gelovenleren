@@ -3,8 +3,34 @@ title: "‘Waarom moeten wij ons distantiëren van iets waar we niks mee te make
 date: "2014-08-20"
 categories: 
   - "blog"
-tags: 
+tags:
+  #- "theologie"
+  - "vrijheid"
   - "politiek"
+  #- "liturgie"
+  #- "traditie"
+  #- "biecht"
+  #- "ethiek"
+  #- "aanbidding"
+  #- "sacramenten"
+  - "paus"
+  - "vlaanderen"
+  #- "opvoeding"
+  #- "verbeelding"
+  #- "gebed"
+  #- "boeken"
+  #- "films"
+  #- "bijbel"
+  #- "woke"
+  #- "antwerpen"
+  #- "publicaties"
+  #- "kerstmis"
+  #- "pasen"
+  #- "kerkleer"
+  #- "onderwijs"
+  - "islam"
+  #- "leven"
+  #- "synode"
 ---
 
 ### Ontleding van de verontschuldiging
