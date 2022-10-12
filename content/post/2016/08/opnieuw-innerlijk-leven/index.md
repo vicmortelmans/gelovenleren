@@ -6,8 +6,6 @@ categories:
   - "innerlijk-leven"
 tags: 
   - "gebed"
-  - "mobiel"
-  - "projecten"
   - "publicaties"
 coverImage: "placeit.jpg"
 ---
