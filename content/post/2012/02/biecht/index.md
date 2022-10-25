@@ -42,10 +42,7 @@ Het beste ben je af als je in je kennissenkring iemand hebt van wie je vermoedt 
 
 Op de [officiële site](http://kerknet.be/) van de Kerk blijft de aandacht voor dit sacrament tamelijk beperkt. Zeker in de vastenperiode zou deze pagina een eervolle vermelding verdienen op de welkompagina van Kerknet! Kerknet heeft tegenwoordig heel wat [lokale pagina's](https://www.kerknet.be/zoeken/artikels?text=verzoening+biecht) die onderhouden worden door parochies en federaties, en daar kan je -met wat geluk- informatie vinden over lokale biechtgelegenheid. Zoek op Kerknet op de termen 'biechtspiegel' of 'gewetensonderzoek', en je vindt weinig praktische houvast. Niet nodig dus? Toch is het nog steeds zo dat de Kerk van elke gelovige (die tot de jaren van verstand is gekomen) [vraagt](http://rkdocumenten.nl/rkdocs/index.php?mi=600&doc=663&al=432) om minstens éénmaal per jaar te biechten, bij voorkeur als voorbereiding tot Pasen...
 
-Biechtgelegenheid in Nederland en Vlaanderen:
-
-- [Het sacrament van boete en verzoening in het Nederlandse taalgebied](http://www.sint-janscentrum.nl/index.php?p=biecht "Sint-Janscentrum")
-- [Overzichtskaart met biechtgelegenheid in Vlaanderen](http://naar-de-mis.maptiming.com/51.065390,4.370084,9z,676px/all/biecht)
+Biechtgelegenheid in Nederland en Vlaanderen: [Overzichtskaart met biechtgelegenheid in Vlaanderen](http://naar-de-mis.maptiming.com/51.065390,4.370084,9z,676px/all/biecht)
 
 Verderop vind je nog heel wat websites met informatie over de biecht en over het gewetensonderzoek, maar beknopt geeft [volgende leidraad](http://opusdei.nl/nl-nl/article/biechten-made-easy-een-leidraad/) de meeste informatie weer, met aangepast gewetensonderzoek voor kinderen, jongeren en volwassenen:
 
@@ -58,6 +55,7 @@ Algemene informatie over de biecht:
 - [Het sacrament van de verzoening vieren: hoe doe je dat?](https://www.kerknet.be/iclz/artikel/het-sacrament-van-de-verzoening-vieren-hoe-doe-je-dat#sthash.lmFxmY5q.dpuf)
 - [Biechten, zo had je het nog nooit bekeken](https://www.kerknet.be/kerknet-redactie/artikel/biechten-zo-had-je-het-nog-nooit-bekeken)
 - [5 vragen over de biecht: wat, wie, wanneer, hoe en waarom?](https://www.kerknet.be/kerknet-redactie/artikel/5-vragen-over-de-biecht-wat-wie-wanneer-hoe-en-waarom)
+- [Waarom we toch moeten biechten, ook al lijken we allerlei redenen te hebben dit niet te doen](https://www.kn.nl/verdieping/achtergrond/waarom-we-toch-moeten-biechten-ook-al-lijken-we-allerlei-redenen-te-hebben-dit-niet-te-doen/)
 - [Het sacrament van de verzoening vieren, hoe doe je dat?](https://www.kerknet.be/sites/default/files/Het%20sacrament%20van%20de%20verzoening%20vieren.docx) (docx)
 - [Vensters op katholiek geloven](http://www.venstersopkatholiekgeloven.nl/subartikelen/persoonlijke-of-gemeenschappelijke-biecht/ "Persoonlijke of gemeenschappelijke biecht")
 - [de voorbereiding op een goede biecht](https://www.agneskerk.org/2019/04/de-voorbereiding-op-een-goede-biecht.html)
@@ -74,7 +72,6 @@ Heel concreet over een goed gewetensonderzoek en over het verloop van de biecht:
 - [RK Studentenpastoraat Amsterdam](http://www.rkspa.nl/?Read-Some/How-To-Go-To-Confession "De Biecht, sacrament van Verzoening")
 - [Biechtspiegel op basis van de Zaligsprekingen](http://www.biddeniseenweg.nl/visie/verootmoediging-en-berouw/167-kijk-eens-in-de-biechtspiegel)
 - [Biechtspiegel aan de hand van je gelaat](https://www.lambertuskerk-rotterdam.nl/biechtspiegel.html)
-- [Biechtspiegel](http://users.telenet.be/katholieke-informatie/Biecht/Biechtspiegel.html)
 - [Gewetensonderzoek bij boeteviering op 25 maart 2022 in Vaticaanstad](/blog/gewetensonderzoek-voor-de-boeteviering-voorafgaand-aan-de-toewijding-van-rusland-en-oekraine-aan-het-heilig-hart-van-maria/)
 
 [![](images/biechtspiegel_voor_kinderen1-700x350.jpg)](images/biecht_kinderen_nieuw.pdf)
