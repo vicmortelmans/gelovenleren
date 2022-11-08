@@ -54,18 +54,18 @@ Zoveel heb ik steekproefsgewijs ook kunnen verifiëren op basis van deze ingesca
 
 Inclusief de verklarende teksten bij elk vraag-en-antwoord, is mijn Catechismus een boek van 348 bladzijdes, maar---wie weet---durf ik er ooit wel eens aan beginnen het de digitaliseren! Dat zou toch moeten lukken tegen 2023, dan viert de tekst zijn 400ste verjaardag!
 
-- [![](images/DSC_0460-700x933.jpg)](images/DSC_0460-scaled.jpg)
+[![](images/DSC_0460-700x933.jpg)](images/DSC_0460-scaled.jpg)
+   
+[![](images/DSC_0463-700x525.jpg)](images/DSC_0463-scaled.jpg)
     
-- [![](images/DSC_0463-700x525.jpg)](images/DSC_0463-scaled.jpg)
-    
-- [![](images/DSC_0461-700x584.jpg)](images/DSC_0461-scaled.jpg)
+[![](images/DSC_0461-700x584.jpg)](images/DSC_0461-scaled.jpg)
     
 
 Mechelse Catechismus voor het middelbaar onderwijs, met aantekeningen van mijn grootvader... dat is nog eens studeren!
 
-- [![](images/28_VIEW.jpg)](images/28_VIEW.jpg)
+[![](images/28_VIEW.jpg)](images/28_VIEW.jpg)
     
-- [![](images/30_VIEW.jpg)](images/30_VIEW.jpg)
+[![](images/30_VIEW.jpg)](images/30_VIEW.jpg)
     
 
 Het originele werk uit 1623

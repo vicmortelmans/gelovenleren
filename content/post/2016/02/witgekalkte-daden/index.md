@@ -38,7 +38,9 @@ Op Kerknet las ik het korte verslag van een homilie van paus Franciscus, getitel
 
 Er heerst immers een misverstand over de verhouding tussen woord en daad in het geloofsleven, en die gaat terug op de strenge woorden die Jezus richt tot de farizeeën als hij hen uitscheldt voor ['witgekalkte graven'](/blog/de-ware-eredienst/), omdat ze anderen vrome regels opleggen die ze zelf niet volgen, of erger nog, die ze misbruiken om er zelf beter van te worden. Oppervlakkig lijkt het alsof Jezus ten strijde trekt tegen de religieuze leefregels, maar niets is minder waar! Jezus' toorn richt zich op de _leegte_ van de uitvoering van de wet,  [niet op de wet zelf](/blog/godsdienstige-tafelmanieren/), waaraan Hij geen jota verandert, maar die Hij 'vervult'; lees: Hij maakt 'vol' wat 'leeg' was, de praktijk krijgt weer inhoud.
 
-![Als je bidt, ga dan je binnenkamer in, doe de deur dicht.](images/unnamed-1.jpg) Als je bidt, ga dan je binnenkamer in, doe de deur dicht.
+![Als je bidt, ga dan je binnenkamer in, doe de deur dicht.](images/unnamed-1.jpg) 
+
+Als je bidt, ga dan je binnenkamer in, doe de deur dicht.
 
 Waarmee moet die praktijk 'gevuld' worden? Met Christus zelf, natuurlijk! Met zijn genade, verkregen door gebed en door de sacramenten. Dat geldt voor onze dienst aan God,  maar evenzo voor onze dienst jegens onze naaste. Goede werken dreigen anders vervulling te vinden in [eigenwaan en hoogmoed](https://nl.wikipedia.org/wiki/Pelagianisme), alsof de verdienste volledig ons toekomt en we Christus' genade en verlossende werk van het Kruis helemaal niet nodig hebben.
 

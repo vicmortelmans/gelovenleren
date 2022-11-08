@@ -38,7 +38,9 @@ Vorige week las ik in [_Innerlijk Leven_](/e-boeken/) een beschouwing bij het ev
 
 Grossouw actualiseert de parabel zo:
 
-![The Good Samaritan (William Henry Margetson)](images/goodsamaritan.jpg?w=218) The Good Samaritan (William Henry Margetson)
+![The Good Samaritan (William Henry Margetson)](images/goodsamaritan.jpg?w=218) 
+
+The Good Samaritan (William Henry Margetson)
 
 _Meen ook hier niet dat het farizeïsme is uitgestorven. Altijd neigt de mens uit zelfbehoud er toe zich door verplichtingen en prestaties te verweren tegen de goddelijke eis der onvoorwaardelijke overgave._ **_Wie de godsdienst wil herleiden tot een serie, hoe uitgebreid en ingrijpend ook, van wetswerken en geboden, zoekt een grens waarachter hij „zichzelf” kan zijn, een rustpunt, waar hij kan denken: het is genoeg, God heeft het zijne; wat overblijft is van mij._** _Wie waarachtig bemint, zoekt deze valse veiligheid niet, want liefde streeft er naar de grenzen op te heffen, de grenzen tussen plicht en raad, tussen eis en wens, de grenzen zelfs tussen Gij en ik. Aan de goddelijke liefde komt krachtens haar wezen totaliteit toe; hieraan kan slechts een reddeloze overgave van een hulpeloos mens beantwoorden. En dit is het juist wat Jesus vraagt. „Zie eens of Hij u nog iets overlaat waarmee ge uzelf kunt beminnen. Hij zegt immers: „Gij zult de Heer, uw God, liefhebben uit geheel uw hart en met geheel uw ziel en geheel uw verstand.” Wat blijft er over van uw hart dat gij nog uzelf zoudt beminnen? Wat van uw ziel en uw verstand? Hij die u geschapen heeft, eist u geheel op” (Sint Augustinus, Sermo 34)._
 

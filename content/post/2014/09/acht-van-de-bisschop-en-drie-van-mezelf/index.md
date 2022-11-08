@@ -33,8 +33,6 @@ tags:
   - "synode"
 ---
 
-[![Mgr. Johan Bonny, bisschop van Antwerpen](images/bonny.jpg?w=224)](images/bonny.jpg) Mgr. Johan Bonny, bisschop van Antwerpen
-
 In aanloop naar de synode over het gezin en de nieuwe evangelisatie schrijft mgr. Bonny na lezing van het [Instrumentum Laboris](http://www.vatican.va/roman_curia/synod/documents/rc_synod_doc_20140626_instrumentum-laboris-familia_en.html) (de neerslag van de wereldwijde bevraging) een lang epistel met "persoonlijke verwachtingen". Dat de bisschop om zijn stem te laten horen naar buiten komt met een lijst van "persoonlijke verwachtingen" in vijf talen, maakt alvast duidelijk dat die weinig verwacht van de vertegenwoordiger van de Belgische bisschoppenconferentie op de Synode, mgr. Léonard, en dat hij al volop bezig is met de tweede zitting van de Synode in 2015 waaraan hijzelf met een beetje geluk als aartsbisschop kan deelnemen. In die omstandigheden is het betere mediagenieke lobbywerk geboden.
 
 Laat ons overlopen wat mgr. Bonny's verwachtingen zijn, en de vrijheid nemen er wat commentaar op te geven en er ook enkele toe te voegen. Ik citeer de concrete verwachtingen die in de tekst van de bisschop expliciet worden geformuleerd in schuine letter:

@@ -21,7 +21,9 @@ Om te geloven moet je **onafhankelijk** kunnen denken. Hoewel er sprake is van e
 
 Om te geloven moet je denken **vrij** zijn van bijbedoelingen. Je kennis moet natuurlijk ten dienste staan van alles wat je onderneemt, maar omwille van een bepaalde doelstelling mag kennis niet 'gekneed' worden.
 
-![](images/2012-05-28_2107.png)Om te geloven mag je denken **niet verstard** zijn. Je zal moeten vaststellen dat een aantal bekende 'waarheden' onjuist of onvolledig zijn. Op dat moment moet je genoeg nederigheid hebben om even door het stof te gaan en toe te geven dat je je kennis van wat waar is, moet bijstellen. Een verstarde geest kan zo'n proces van bekering niet aan.
+![](images/2012-05-28_2107.png)
+
+Om te geloven mag je denken **niet verstard** zijn. Je zal moeten vaststellen dat een aantal bekende 'waarheden' onjuist of onvolledig zijn. Op dat moment moet je genoeg nederigheid hebben om even door het stof te gaan en toe te geven dat je je kennis van wat waar is, moet bijstellen. Een verstarde geest kan zo'n proces van bekering niet aan.
 
 En _last but not least_ moet je **_out of the box_** kunnen denken. Het verstand kan de werkelijkheid niet bevatten en mag dan ook de werkelijkheid niet inperken tot het domein dat het in staat is te bevatten. En dit is precies de grootste redeneringsfout van het rationalisme.
 
@@ -34,7 +36,9 @@ Oms ons verder te helpen heeft Jezus ons ook rolmodellen gegeven.
 - Om te beginnen de **apostelen**, van wie de meesten eenvoudige vissers waren, ruwe maar eerlijke werklui, en niet gespeend van een dosis gezond verstand.
 - Ook heel expliciet heeft Jezus ons gewezen op de **kinderen** of 'eenvoudigen van geest', Daarmee bedoelde Hij geen kinderlijke naiviteit, maar wel kinderlijke openheid, waarin ook het onverwachte of onalledaagse een plaats kan krijgen.
 
-![De ideale gelovige: eenvoudig van geest en met een breed denkraam](images/denkraam.png "De ideale gelovige: eenvoudig van geest en met een breed denkraam") De ideale gelovige: eenvoudig van geest en met een breed denkraam
+![De ideale gelovige: eenvoudig van geest en met een breed denkraam](images/denkraam.png "De ideale gelovige: eenvoudig van geest en met een breed denkraam") 
+
+De ideale gelovige: eenvoudig van geest en met een breed denkraam
 
 - Met het standje dat **Martha** krijgt, maakt Jezus duidelijk dat men zich niet moet verliezen in het materiële, maar zich evengoed moet openstellen voor het puur geestelijke.
 - Verder treden er in de evangeliën nog tal van mannen en vrouwen op wiens geloof Jezus roemt, en die zich daardoor genezen weten van allerlei kwalen. Van de meesten worden geen intellectuele kwaliteiten onthuld anders dan hun grenzenloos vertrouwen in Jezus, maar Jezus 'gebruikt' hun genezing wel om de intellectuele gebreken van anderen aan het licht te brengen, zo ging het bij de genezing van de lamme eigenlijk over het dispuut met de farizeeën dat Jezus geen zonden zou kunnen vergeven, en was de genezing van blinde Bartimeüs eigenlijk geen steek onder water naar de leerlingen toe, die maar niet wilde zien (geloven) wat voor koning Jezus wilde zijn?
@@ -48,32 +52,21 @@ Ook gebed helpt ons om de juiste intellectuele positie te vinden waarin geloof m
 
 De [oefening van geloof](http://www.katholiekgezin.nl/index.php?option=com_content&task=view&id=723&Itemid=31):
 
-> Mijn Heer en mijn God, ik geloof: dat Gij zijt één God in drie Personen: de Vader, de Zoon en de Heilige Geest.
-> 
-> Dat de Zoon voor ons is mens geworden en aan het kruis gestorven.
-> 
-> Dat Gij het goede loont en het kwade straft.
-> 
-> **Ik geloof alles, wat Gij hebt geopenbaard, en door de Heilige Kerk ons leert.**
-> 
-> **Dat geloof ik vast, omdat Gij het hebt gezegd, die alles weet en altijd waarheid spreekt.**
-> 
-> Heer, vermeerder mijn geloof.
-> 
+> Mijn Heer en mijn God, ik geloof: dat Gij zijt één God in drie Personen: de Vader, de Zoon en de Heilige Geest.  
+> Dat de Zoon voor ons is mens geworden en aan het kruis gestorven.  
+> Dat Gij het goede loont en het kwade straft.  
+> **Ik geloof alles, wat Gij hebt geopenbaard, en door de Heilige Kerk ons leert.**  
+> **Dat geloof ik vast, omdat Gij het hebt gezegd, die alles weet en altijd waarheid spreekt.**  
+> Heer, vermeerder mijn geloof.  
 > Amen
 
 De [oefening van hoop](http://www.katholiekgezin.nl/index.php?option=com_content&task=view&id=723&Itemid=31):
 
-> Oneindig goede God, door de verdienste van Jezus Christus
-> 
-> hoop ik van U de eeuwige zaligheid te verkrijgen
-> 
-> en alle genaden die ik daarvoor nodig heb.
-> 
-> **Dat hoop ik met een vast vertrouwen, omdat Gij het hebt beloofd,**
-> 
-> **die almachtig zijt, oneindig goed, en getrouw in Uw beloften.**
-> 
+> Oneindig goede God, door de verdienste van Jezus Christus  
+> hoop ik van U de eeuwige zaligheid te verkrijgen  
+> en alle genaden die ik daarvoor nodig heb.  
+> **Dat hoop ik met een vast vertrouwen, omdat Gij het hebt beloofd,**  
+> **die almachtig zijt, oneindig goed, en getrouw in Uw beloften.**  
 > Heer, versterk mijn hoop!
 
 Beide gebeden gaan natuurlijk eerst in op de inhoud van geloof en hoop, maar beklemtonen vervolgens heel sterk de reden, de noodzakelijke vaste grond van geloof—de openbaring—en van hoop—de verbondsgedachte.
@@ -82,13 +75,17 @@ Beide gebeden gaan natuurlijk eerst in op de inhoud van geloof en hoop, maar bek
 
 Misschien is het wat kort door de bocht, maar het kan toch geen toeval zijn dat twee pausen, Benedictus XIII en Benedictus XIV, beiden uit de eeuw van de Verlichting, grote pleitbezorgers waren voor het bidden van de oefeningen van geloof, hoop en liefde? Beide pausen waren zo'n fan van deze gebeden, dat ze in het [Enchiridion Indulgentiarum](http://nl.wikipedia.org/wiki/Aflaat#Herstel) aflaten voorzagen voor wie deze gebeden bad.
 
-![](images/2012-05-28_2108.png)Gedurende een half millennium dicteert reeds de Verlichting ons denken. Haar rationalisme, haar determinisme en haar ge-ideologiseerde mensbeeld belemmeren ons gelovig denken. Zij laat hoogstens nog plaats om te geloven in "iets" waarvan je eigenlijk in je binnenste weet dat het niet bestaat. Ik vraag me af welk boerenverstand daar nu zijn tijd aan gaat verspelen... en toch loopt het tegenwoordig binnen en buiten de kerk dik van 'iets-isten'.
+![](images/2012-05-28_2108.png)
+
+Gedurende een half millennium dicteert reeds de Verlichting ons denken. Haar rationalisme, haar determinisme en haar ge-ideologiseerde mensbeeld belemmeren ons gelovig denken. Zij laat hoogstens nog plaats om te geloven in "iets" waarvan je eigenlijk in je binnenste weet dat het niet bestaat. Ik vraag me af welk boerenverstand daar nu zijn tijd aan gaat verspelen... en toch loopt het tegenwoordig binnen en buiten de kerk dik van 'iets-isten'.
 
 De Verlichting compliceert het denken, waardoor er een ogenschijnlijke tegenstrijdigheid wordt opgeroepen tussen rede en geloof, maar juist deze twee gebeden beklemtonen dat ons geloof wel degelijk empirische en rationele grondvesten heeft.
 
 ## Geen conflict tussen geloof en wetenschap
 
-![](images/2012-05-28_2107.png)Is er dan geen werkelijk conflict tussen geloof en rede?
+![](images/2012-05-28_2107.png)
+
+Is er dan geen werkelijk conflict tussen geloof en rede?
 
 Bij het begin van het artikel heb ik heel wat intellectuele kwaliteiten opgesomd die nodig zijn om—vanuit een hedendaags, eenzijdig 'verlicht' denkraam—tot geloof te kunnen komen. Logica, eenduidigheid,  onafhankelijkheid, vrijheid, onverstardheid, out of the box-denken... Verrassend genoeg zijn dat net dezelfde kwaliteiten die—vanuit een middeleeuws, eenzijdig 'religieus' denkraam—grote wetenschappelijke inzichten hebben mogelijk gemaakt. Gelovig denken of wetenschappelijk denken is dus in wezen niet verschillend, alleen werk je met een andere set axioma's en stellingen. Waarom hebben we dan zo'n probleem met de combinatie van religie en wetenschap?
 

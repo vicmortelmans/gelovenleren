@@ -42,5 +42,3 @@ Hierop antwoordde de studen: "Het Kwaad bestaat _niet_, meneer, tenminste, het b
 De professor zette zich neer.
 
 Er wordt gezegd dat deze jongeman Albert Einstein was, in 1921.
-
-{{< youtube hb4Lbs8kju0 >}}

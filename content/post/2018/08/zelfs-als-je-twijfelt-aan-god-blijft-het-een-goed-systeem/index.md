@@ -34,7 +34,7 @@ tags:
 coverImage: "sample-parish-billboard_810_500_75_s_c1.jpg"
 ---
 
-Ik ben een bèta-katholiek. Ik houd van orde, van systemen en structuren, van oorzaak en gevolg. Dat zijn typische kenmerken van wetenschappelijk denken, maar je kan ze ook in religieus denken toepassen. Het enige verschil met de ''zuivere" wetenschap is, dat in religieus denken God wel wordt opgenemomen in de set van axioma's en in "zuiver" wetenschappelijk denken niet.  
+Ik ben een bèta-katholiek. Ik houd van orde, van systemen en structuren, van oorzaak en gevolg. Dat zijn typische kenmerken van wetenschappelijk denken, maar je kan ze ook in religieus denken toepassen. Het enige verschil met de "zuivere" wetenschap is, dat in religieus denken God wel wordt opgenemomen in de set van axioma's en in "zuiver" wetenschappelijk denken niet.  
 
 Van mezelf vind ik dat ik eerder rationeel en wetenschappelijk ingesteld ben en dat het emotionele of gevoelsmatige me niet zo ligt om dingen een plaats te geven. Dat weerspiegelt zich ook in mijn houding tegenover het geloof. Het is natuurlijk onzin dat je niet zou kunnen geloven als je eerder wetenschappelijk ingesteld bent, maar je gelooft wel op een andere manier. De gevoelsmatige benadering heeft meer zin voor nuance, terwijl de rationele benadering van het geloof de zaken klaar en helder wil. De gevoelsmatige benadering waardeert het geloof omdat schoonheid, vrede, geluk en liefde de plaats innemen van lelijkheid, haat, droefenis en angst. De rationele benadering zoekt het nut van geloven in het oplossen van problemen en het vinden van antwoorden op concrete (of zelfs abstracte) vragen.  
 
