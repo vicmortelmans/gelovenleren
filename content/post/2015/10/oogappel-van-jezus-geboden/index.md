@@ -3,6 +3,8 @@ title: "Oogappel van Jezus' geboden"
 date: "2015-10-31"
 categories: 
   - "innerlijk-leven"
+aliases:
+  - "/blog/oogappel-van-jezus'-geboden"
 ---
 
 ## 362\. Zaterdag na de Twee en twintigste Zondag na Pinksteren
