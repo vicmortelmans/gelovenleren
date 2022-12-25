@@ -314,12 +314,44 @@ Here's the config file for a static website (= not using PHP):
 
 ## Troubleshooting
 
-So far I had only one problem. Suddenly all my dynamic sites (= the ones using PHP) would return error 504 and 502. This was because PHP stopped working (it's a service running in the background). After making this change, things appear to be more stable:
+So far I had only one problem. Suddenly all my dynamic sites (= the ones using PHP) would return error 504 and 502. This was because PHP stopped working (it's a service running in the background). 
 
-In `/etc/php/7.4/fpm/pool.d/www.conf` ([https://serverfault.com/a/578671/581685](https://serverfault.com/a/578671/581685)):
+To get more info on the root cause, I added logging for slow request in `/etc/php/7.4/fpm/pool.d/www.conf`:
+
+`slowlog = /var/log/php_slow.log`
+
+`request_slowlog_timeout = 10s`
+
+The report in the log revealed that requests by my phplist website were slow. So I assume they get the blame of crashing my php-fpm, but I cannot solve that myself. 
+
+After applying following settings to control how to handle slow requests (by trial and error, not sure which change exactly did the trick, or even which are actually changed from default), things appear to be more stable:
+
+In `/etc/php/7.4/fpm/pool.d/www.conf`:
 
 `pm = ondemand`
 
-`pm.max_requests = 500`
+`pm.max_requests = 10`
 
 `pm.max_children = 15`
+
+`pm.process_idle_timeout = 10s`
+
+`request_terminate_timeout = 60s`
+
+`request_terminate_timeout_track_finished = yes` 
+
+In `/etc/php/7.4/fpm/php.ini`:
+
+`max_execution_time = 30` 
+
+`default_socket_timeout = 60` 
+
+In `/etc/nginx/nginx.conf`:
+
+`keepalive_timeout 55;`
+
+`fastcgi_read_timeout 60;`
+
+`fastcgi_read_timeout 60;`
+
+
