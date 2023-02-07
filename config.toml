@@ -13,7 +13,7 @@ portfolio = '/portfolio/:filename'
 [params]
 subtitle = 'Opinie en tools voor wie begaan is met het katholieke geloof'
 showPoweredBy = false
-twitter = 'vicmortelmans'
+twitter = 'AlledaagsG'
 facebook = 'alledaagsgeloven'
 copyrightHolder = 'info@gelovenleren.net'
 
@@ -79,3 +79,16 @@ pattern = "2006"
   weight = -80 
   identifier = "zoeken"
   url = "/search/"
+# -----------------------------------------------------------------------
+# Footer menu 
+# -----------------------------------------------------------------------
+[[menu.footer]]
+  name = "ontvang nieuwe artikels per email"
+  pre = "<i class='fas fa-envelope la-lg'></i>"
+  url = "https://nieuws.gelovenleren.net/?p=subscribe&id=1"
+  weight = 40 
+[[menu.footer]]
+  name = "rss"
+  pre = "<i class='fas fa-rss-square la-lg'></i>"
+  url = "/index.xml"
+  weight = 20 
