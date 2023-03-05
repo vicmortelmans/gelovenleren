@@ -4,6 +4,7 @@ title = 'Geloven Leren'
 theme = 'hugo-tufte'
 uglyurls = false
 googleAnalytics = 'UA-97945493-1'
+rssLimit = 10
 
 [permalinks]
 post = '/blog/:filename'
