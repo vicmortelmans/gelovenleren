@@ -31,7 +31,7 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: ""
+coverImage: "geestesopenbaringen-kop.png"
 ---
 
 Dit kon ik even niet laten, amateursatiricus spelen. De grap is dat ik de tweede helft van het artikel eigenlijk helemaal niet hoefde te wijzigen :) :)  Het is een vermakelijke illustratie voor dit vorige artikel: [Geloven Leren - Het ontbrekende stokpaardje: &quot;bovennatuurlijk geloof&quot;](https://gelovenleren.net/blog/het-ontbrekende-stokpaardje-bovennatuurlijk-geloof/ "Geloven Leren - Het ontbrekende stokpaardje: &quot;bovennatuurlijk geloof&quot;")
