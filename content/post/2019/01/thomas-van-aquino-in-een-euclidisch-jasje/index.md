@@ -83,7 +83,7 @@ Sinds de uitvinding van de boekdrukkunst is "De Elementen", op de Bijbel na, het
 
 ## Het project  
 
-Het was me al snel duidelijk dat beide werken conceptueel sterke gelijkenissen vertonen. Ik voelde me bovendien onbehaaglijk bij het zien van de  erbarmelijke digitale toestand van de Nederlandse vertaling van de Summa, als slordig ingescande PDF-bestanden op een kale webserver. Zo'n werk verdient beter, want Thomas' Summa is nog even relevant als Euclides' Elementen. Één plus één is gelijk aan twee, dus waarom zou ik niet proberen, al is het maar bij wijze van _proof of concept_, de theologie van Thomas te tooien met de knappe design van Byrne's Euclid?  
+Het was me al snel duidelijk dat beide werken conceptueel sterke gelijkenissen vertonen. Ik voelde me bovendien onbehaaglijk bij het zien van de onvolmaakte digitale toestand van de Nederlandse vertaling van de Summa, als ingescande PDF-bestanden op een webserver. Zo'n werk verdient beter, want Thomas' Summa is nog even relevant als Euclides' Elementen. Één plus één is gelijk aan twee, dus waarom zou ik niet proberen, al is het maar bij wijze van _proof of concept_, de theologie van Thomas te tooien met de knappe design van Byrne's Euclid?  
 
 De Latijnse brontekst bemachtigen van de Summa Theologiae was al bij al nog het eenvoudigste. _Web scraping_ heeft voor mij geen geheimen (dat heeft de ontwikkeling van [Alledaags Geloven](http://alledaags.gelovenleren.net) me geleerd) en de Duits-Latijnse publicatie op [Bibliothek der Kirchenväter](http://www.unifr.ch/bkv/) was een dankbare tekstbron.  
 
