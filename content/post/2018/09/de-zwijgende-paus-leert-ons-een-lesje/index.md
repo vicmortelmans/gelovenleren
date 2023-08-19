@@ -48,8 +48,6 @@ Welnu: het zwijgen van de paus over de [aantijgingen van mgr. Viganò](https://w
 
 In de media wordt gelukkig veel energie gespendeerd, vooral door twitteraars wiens accountnaam eindigt op de letters sj, om mijn ergernis weg te nemen. Ik lees berichtjes op Twitter waarin met grote bewondering wordt gesproken over het zwijgen van de paus, aan de hand van spirituele boekjes die hijzelf nog schreef in de jaren '90, of van de geestelijke oefeningen van Sint Ignatius of of van het voorbeeld van Onze Heer Jezus Christus zelve.  
 
-{{< tweet 1035859109466259457 >}}
-
 {{< tweet 1036651341580562432 >}}
 
 Ik begrijp wel de waarde van het zwijgen onder valse beschuldigingen als verheven vorm van christelijke waardigheid, maar je moet ook niet overdrijven.  

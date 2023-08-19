@@ -36,8 +36,6 @@ coverImage: "venerabelkapel-tabernakel-cropped.jpg"
 
 Enkele weken geleden heb ik iets bijgeleerd over tabernakels. Mijn nieuwsgierigheid werd geprikkeld door een tweet van Nikolaas Sintobin sj. Hij schreef een artikeltje op zijn blog over de abijkerk van van Sint-Benedictusberg in Vaals. Hij was verrast dat er geen tabernakel aanwezig is in de kerk.
 
-{{< tweet 1068411878639046656 >}}
-
 Dat deed me al de wenkbrauwen fronsen, maar de retweet waarin confrater Jos Moons sj stelt dat _"een tabernakel sinds #VaticanumII niet meer de centrale plaats in de kerk heeft"_, zette me aan om wat verder te zoeken. De hashtag #VaticamunII in combinatie met boude beweringen heeft wel eens meer die uitwerking op mij.
 
 {{< tweet 1068437457199353857 >}}
