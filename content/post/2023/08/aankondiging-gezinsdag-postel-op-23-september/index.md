@@ -1,5 +1,5 @@
 ---
-title: "Aankondiging gezinsdag Postel op 23 september"
+title: "Aankondiging gezinsdag Postel op 10 september"
 date: 2023-08-20T00:06:58+02:00
 categories: 
   - "blog"
