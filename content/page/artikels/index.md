@@ -3,10 +3,9 @@ title: "Artikels"
 date: 2021-08-09T22:01:12+02:00
 ---
 
-{{< marginnote >}}Als ik een artikel schrijf, is dat vaak in antwoord op iets dat ik op het internet lees. In mijn twitter <i><a href="https://twitter.com/vicmortelmans/likes">likes</a></i> kan je zien wat ik zoal lees (maar daarom niet goedkeur!):<br/><br/><a class="twitter-timeline" href="https://twitter.com/vicmortelmans/likes?ref_src=twsrc%5Etfw">Tweets Liked by @vicmortelmans</a> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>{{< /marginnote >}}
 De meeste artikels op deze website schrijf ik zelf. Die vind je onder de categorie 'blog': 
 
-# **[Blog](/categories/blog)**
+## **[Ga naar het overzicht van alle artikels](/categories/blog)**
 
 &nbsp;
 
