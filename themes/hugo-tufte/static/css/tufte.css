@@ -332,8 +332,8 @@ div.booktabs-wrapper {
   width: 55%;
 }
 
-/* for bijbeltoneel: */
-table p {
+/* Vic added for bijbeltoneel: */
+table p, li p {
   width: 100%;
 }
 
@@ -478,4 +478,9 @@ label.margin-toggle:not(.sidenote-number) {
     border: solid black 1px;
     padding: 3px;
   }
+}
+
+/* Vic added for content marked with class verse */
+.verse {
+  font-style: italic;
 }
