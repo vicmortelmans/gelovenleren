@@ -36,9 +36,7 @@ coverImage: "incivieken.jpg"
 
 Ik prijs me dagelijks gelukkig, dat ik niet naar tv kijk of kranten lees. Soms krijg ik wel eens iets onder ogen en dan valt me op, hoe sinds mijn laatste confrontatie met de 'werkelijkheid', de bakens weer eens flink verzet zijn. Misschien voel ik dat sterker, omdat het me niet dagelijks met mondjesmate wordt ingelepeld.
 
-{{< tweet 1454024495140937731 >}}
-
-Deze tweet had zo'n effect. 
+Deze tweet had zo'n effect. [tweet is verwijderd]
 
 > *Ook het in de gevangenis gooien van mensen zonder vaccin is ‘een interessant verhaal‘, net trouwens als het veroordelen van deze mensen tot ‘onbetaalbare boetes‘. Over beide zaken moet ‘intellectueel nagedacht worden‘, zo bevestigt de commissaris. Want uiteindelijk ‘moeten er instrumenten gevonden worden om deze mensen hoe dan ook te sanctioneren‘, zo klinkt het.*
 
