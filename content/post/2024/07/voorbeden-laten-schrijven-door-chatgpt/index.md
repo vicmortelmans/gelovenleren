@@ -31,14 +31,18 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: ""
+coverImage: "aipraying.png"
 ---
 
-Onze parochie heeft een meertalige gemeenschap en daarom projecteren we de teksten van de mis op een scherm. Daarop verschijnen de vaste gebeden (kyrie, gloria, sanctus,&#x2026;; in Nederlands of Latijn) die de gelovigen meebidden, de lezingen (in het Nederlands, maar een van de lezingen wordt bij ons altijd in een andere taal gelezen), de voorbeden (in het Nederlands, maar ze worden bij ons in verschillende tale voorgelezen) en de liedteksten. Omdat ik ook af toe belast word met het maken van die presentatie en ik knippen en plakken in Powerpoint ervaar als een geestdodende activiteit, heb ik exponentieel veel meer tijd besteed aan een website waarop dat zoveel mogelijk automatisch gebeurt. Vaste gebeden zitten voorgeprogrammeerd, lezingen worden van het internet geplukt en sinds vandaag is het ook mogelijk voorbeden te laten schrijven door ChatGPT (\*).
+Onze parochie heeft een meertalige gemeenschap en daarom projecteren we de teksten van de mis op een scherm. Daarop verschijnen de vaste gebeden die de gelovigen meebidden (kyrie, gloria, sanctus,&#x2026;&#x2014;in Nederlands of Latijn), de lezingen (in het Nederlands, maar een van de lezingen wordt bij ons altijd in een andere taal gelezen), de voorbeden (in het Nederlands, maar ze worden bij ons in verschillende tale voorgelezen) en de liedteksten.
+
+Omdat ik ook af toe belast word met het maken van die presentatie en ik knippen en plakken in Powerpoint ervaar als een geestdodende activiteit, heb ik exponentieel veel meer tijd dan dat, besteed aan een website waarop dat zoveel mogelijk automatisch gebeurt. Vaste gebeden zitten voorgeprogrammeerd, lezingen worden van het internet geplukt en sinds vandaag is het ook mogelijk voorbeden te laten schrijven door ChatGPT (\*).
 
 <https://dia.missale.net/nl/>
 
-Of zich in Rome reeds liturgische commissies zich erover beraad hebben of het toegelaten is gebeden te laten schrijven door AI, weet ik niet, maar een korte zoektocht op internet leert me dat ik zeker niet de eerste ben om dit te proberen.
+Is dat echter wel verantwoord? Een AI kan zelf niet bidden, het is geen schepsel van God, het heeft geen ziel, dus kan je als gelovige dan wel bidden met teksten die een AI schreef? Ik zou menen van wel, net zoals je kan bidden met teksten die door een ongelovige of ketterse literator werden geschreven, zolang die inhoudelijk aan de nodige vereisten voldoen. De kracht van het gebed bestaat bij de gelovige die het gebed uitspreekt.
+
+Of zich in Rome reeds liturgische commissies zich erover beraad hebben of het toegelaten is liturgische gebeden te laten schrijven door AI, weet ik niet, maar een korte zoektocht op internet leert me dat ik zeker niet de eerste ben om dit te proberen.
 
 Op [Reddit](https://www.reddit.com/r/Catholicism/comments/104pw8n/i_asked_gpt_chatbot_to_write_a_prayer_to_god_to/) lees ik hoe iemand ChatGPT een tekst liet schrijven om te bidden dat er een einde mag komen aan de abortuspraktijk, met mooi resultaat, en vervolgens vroeg om de tekst zo te schrijven om te bidden voor de tegenovergestelde intentie, wat ChatGPT categoriek weigert, "as it goes against my programming to promote or encourage actions that may cause harm to others". Verrassend!
 
@@ -74,6 +78,5 @@ Je kan blijkbaar ook je eigen versie van ChatGPT maken, die getraind is voor een
 
 Veel om over na te denken en mee te experimenteren. Voor mij een geruststelling dat ik nu met enkele klikken de slides voor de mis kan samenstellen, maar tegelijk de zekerheid dat voorbeden die werden samengesteld tijdens de wekelijkse *lectio divina* oneindig veel waardevoller zijn dan die van een AI.
 
-(\*) Op dit moment is het enkel mogelijk voorbeden te laten schrijven in de betalende versie van de website, omdat de voorbeden in het Engels worden opgemaakt en dan vertaald naar het Nederlands, en daarvoor gebruikt de site de commerciële API van Google Translate. In het Engels kan het wel gratis. Mocht iemand in Nederland of Vlaanderen toch geïnteresseerd zijn, laat me een berichtje, dan doe ik wat extra moeite om het ook in het Nederlands mogelijk te maken, of bezorg ik een proeflicentie.
-
+(\*) Op dit moment is het enkel mogelijk voorbeden te laten schrijven in de betalende versie van de website, omdat de voorbeden in het Engels worden opgemaakt en dan vertaald naar het Nederlands, en daarvoor gebruikt de site de commerciële API van Google Translate. In de [Engelse versie van de site](https://slideshow.missale.net/en/) kan het wel gratis. Mocht iemand in Nederland of Vlaanderen toch geïnteresseerd zijn, laat me een berichtje, dan doe ik wat extra moeite om het ook in het Nederlands mogelijk te maken, of bezorg ik een proeflicentie.
 
