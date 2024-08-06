@@ -44,7 +44,7 @@ Het was immers geen tafereel van het Laatste Avondmaal dat geëvoceerd werd, maa
 
 Dat hadden we dus ook zelf kunnen uitvissen, als we ons wat minder met onze schermpjes en wat meer met (niet-religieuze) literatuur, of kunst in het algemeen, hadden beziggehouden, lijkt de paus te willen zeggen. En dan hadden we ons ook niet boos hoeven maken op sociale media.
 
-Nog beter: dan hadden we nog eens goed kunnen lachen! Want zeg nu eerlijk, het *tableau vivant* waarmee de spelen werden geopend is toch je reinste zelfspot van het woke-artistiek establishment! Als op een middeleeuwse kermiswagen, worden de Olympische goden&#x2014;die op moreel vlak in hun godenwereld graag alle perken te buiten gingen&#x2014;voorgesteld door een schare LGBTQ'ers, de nieuwe goden van onze tijd&#x2014;die vlak van moraal niet moeten onderdoen voor hun Olympische voorgangers.
+Nog beter: dan hadden we nog eens goed kunnen lachen! Want zeg nu eerlijk, het *tableau vivant* waarmee de spelen werden geopend is toch je reinste zelfspot van het woke-artistiek establishment! Als op een middeleeuwse kermiswagen, worden de Olympische goden&#x2014;die op moreel vlak in hun godenwereld graag alle perken te buiten gingen&#x2014;voorgesteld door een schare LGBTQ'ers, de nieuwe goden van onze tijd&#x2014;die niet moeten onderdoen voor hun Olympische voorgangers.
 
 Ik vind het satire, en dan nog van de betere soort, omdat het lelijk is en ook niet verbergt lelijk te wíllen zijn (althans, dat is mijn interpretatie, *de gustibus&#x2026; etc.*).
 
