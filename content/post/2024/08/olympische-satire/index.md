@@ -60,7 +60,7 @@ Tenslotte, niet ongerelateerd, nog enkele topics die de vorige weken in mijn bub
 
 ![img](images/2024-08-06_12-21-06_screenshot.png)
 
--   Dat de moordaanslag op presidentskandidaat Donald Trump is mislukt, betreuren onze media in versluierde termen, "want het zal hem winst opleveren", waardoor hun fantasie het in eerste instantie instinctief overnam van hen werkelijkheidszin en ze schreven [dat het een verfkogel betrof](https://x.com/BenDreesen/status/1816774324122009639).
+-   Dat de moordaanslag op presidentskandidaat Donald Trump is mislukt, betreuren onze media in versluierde termen, "want het zal hem winst opleveren", waardoor hun fantasie het in eerste instantie instinctief overnam van hun werkelijkheidszin en ze schreven [dat het een verfkogel betrof](https://x.com/BenDreesen/status/1816774324122009639).
 -   In Valencia zouden drie mensen op een paar dagen tijd zijn [onthoofd](https://x.com/243_cal/status/1819501328399528312). Typisch iets waar media van zouden smullen, maar je hoort er niks van? Zou de *modus operandi* teveel tot de verbeelding spreken?
 -   In Groot-Brittannië worden drie kinderen vermoord. Daar hoor je wel van, omdat er protesten zijn, waartegen ongewoon hard wordt opgetreden. En *two-tier policing*, daar mogen we niet in geloven, dat is fantasie&#x2026;
 
