@@ -36,9 +36,9 @@ coverImage: "Duccio_di_Buoninsegna_-_Maestà_Madonna_with_Angels_and_Saints_-_WG
 
 Op Twitter lees ik bij [Stefan Paas](https://twitter.com/StefanPaas) regelmatig prikkelende stukjes. Paas is in Nederland dit jaar "Theoloog des Vaderlands". Zijn katholieke [voorgangers](https://nl.wikipedia.org/wiki/Theoloog_des_vaderlands) lagen me minder, die zaten niet in mijn Twittervolglijst. Hijzelf is niet katholiek, maar zit ergens in het protestantse spectrum, vraag me niet precies waar, maar zijn Wikipagina vermeldt wel dat zijn [benoeming als hoogleraar gecontesteerd](https://nl.wikipedia.org/wiki/Stefan_Paas#Hoogleraarschap) werd. Misschien omdat hij stiekem een [beetje te katholiek](https://www.theoblogie.nl/een-rooms-katholiek-priester-over-de-priesterkerk-van-paas/) is om fatsoenlijk te zijn?  
 
-Laatst was hij op Twitter [druk aan het citeren](https://twitter.com/StefanPaas/status/1125034330454134784) uit een boek van Anton van Duinkerken, waaronder deze passage:  
+Laatst was hij op Twitter [druk aan het citeren]([verwijderd]) uit een boek van Anton van Duinkerken, waaronder deze passage:  
 
-{{< tweet 1125034330454134784 >}}
+[verwijderd]
 
 De context van het citaat heb ik niet mee, dus wat Van Duinkerken er precies mee bedoelde is me niet duidelijk. Ik lees het citaat in de context van het debat over de plaats van geloof in de samenleving. Geloof kan je niet terugdringen tot de private ruimte, hoewel velen dat zouden willen. Dat zegt ook Saskia van den Kieboom op Logia:  
 
