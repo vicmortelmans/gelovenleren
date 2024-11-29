@@ -9,6 +9,6 @@ Radio Maria Nederland. Voor Android en iOS.
 
 <!--more-->
 
-{{< appbox googleplay nl.interbrug.radiomaria >}}
+{{< appbox googleplay nl.kwaaijongens.radiomaria >}}
 
 {{< appbox appstore id1064461731 >}}

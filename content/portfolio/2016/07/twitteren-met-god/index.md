@@ -1,5 +1,5 @@
 ---
-title: "Twitteren met God"
+title: "DeoQuest – Twitteren met God"
 date: "2016-07-18"
 categories: "app"
 coverImage: "tweetingwithgod.png"
