@@ -5,7 +5,7 @@ categories: "tools"
 coverImage: "calendars.png"
 ---
 
-With the links on this page, you can add the liturgical calendar to your agenda. The calendar is complete until 2024.
+With the links on this page, you can add the liturgical calendar to your agenda. The calendar is complete until 2030.
 
 <!--more-->
 
@@ -15,25 +15,17 @@ You can also choose if you want only Sundays and feasts, or weekdays as well.
 
 ## Sundays and feasts (ordinary form)
 
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6705)
-
 http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-of-en.ics
 
 ## Weekdays (ordinary form)
-
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6706)
 
 http://www.missale.net/calendar/catholic-liturgy-weekdays-of-en.ics
 
 ## Sundays and feasts (extra-ordinary form)
 
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6707)
-
 http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-eo-en.ics
 
 ## Weekdays (extra-ordinary form)
-
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6708)
 
 http://www.missale.net/calendar/catholic-liturgy-weekdays-eo-en.ics
 

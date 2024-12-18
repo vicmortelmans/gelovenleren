@@ -5,7 +5,7 @@ categories: "tools"
 coverImage: "calendars.png"
 ---
 
-Met de koppelingen op deze pagina, kan je aan je electronische agenda de liturgische kalender toevoegen. De kalender is ingevuld tot 2024.
+Met de koppelingen op deze pagina, kan je aan je electronische agenda de liturgische kalender toevoegen. De kalender is ingevuld tot 2030.
 
 <!--more-->
 
@@ -15,25 +15,17 @@ Je kan ook kiezen of je alleen de zondagen en feestdagen wil, of ook de weekdage
 
 ## Zondagen en feesten (gewone vorm van de liturgie)
 
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6124)
-
 http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-of-nl.ics
 
 ## Weekdagen (gewone vorm van de liturgie)
-
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6125)
 
 http://www.missale.net/calendar/catholic-liturgy-weekdays-of-nl.ics
 
 ## Zondagen en feesten (buitengewone vorm van de liturgie)
 
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6126)
-
 http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-eo-nl.ics
 
 ## Weekdagen (buitengewone vorm van de liturgie)
-
-[![calendars](images/calendars.png)](http://icalshare.com/calendars/6127)
 
 http://www.missale.net/calendar/catholic-liturgy-weekdays-eo-nl.ics
 
