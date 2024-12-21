@@ -13,21 +13,57 @@ Je kan kiezen tussen de gewone vorm van de liturgie of de buitengewone vorm (tri
 
 Je kan ook kiezen of je alleen de zondagen en feestdagen wil, of ook de weekdagen.
 
-## Zondagen en feesten (gewone vorm van de liturgie)
+## Zondagen en feesten (Latijnse ritus)
 
-http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-of-nl.ics
+<a href="webcal://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-of-nl.ics">Voeg catholic-liturgy-sundays-and-feasts-of-nl.ics toe aan je agenda</a>
 
-## Weekdagen (gewone vorm van de liturgie)
+<a href="http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-of-nl.ics">Download catholic-liturgy-sundays-and-feasts-of-nl.ics</a>
 
-http://www.missale.net/calendar/catholic-liturgy-weekdays-of-nl.ics
+<iframe id="open-web-calendar" 
+    style="background:url('https://raw.githubusercontent.com/niccokunzmann/open-web-calendar/master/static/img/loaders/circular-loader.gif') center center no-repeat;"
+    src="https://open-web-calendar.hosted.quelltext.eu/calendar.html?language=nl&amp;skin=flat&amp;start_of_week=su&amp;tabs=month&amp;tabs=agenda&amp;target=_blank&amp;title=Zondagen%20en%20feesten%20(Latijnse%20ritus)&amp;url=http%3A%2F%2Fwww.missale.net%2Fcalendar%2Fcatholic-liturgy-sundays-and-feasts-of-nl.ics"
+    sandbox="allow-scripts allow-same-origin allow-popups"
+    allowTransparency="true" scrolling="no" 
+    frameborder="0" height="600px" width="100%"></iframe>
 
-## Zondagen en feesten (buitengewone vorm van de liturgie)
+## Weekdagen (Latijnse ritus)
 
-http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-eo-nl.ics
+<a href="webcal://www.missale.net/calendar/catholic-liturgy-weekdays-of-nl.ics">Voeg catholic-liturgy-weekdays-of-nl.ics toe aan je agenda</a>
 
-## Weekdagen (buitengewone vorm van de liturgie)
+<a href="http://www.missale.net/calendar/catholic-liturgy-weekdays-of-nl.ics">Download catholic-liturgy-weekdays-of-nl.ics</a>
 
-http://www.missale.net/calendar/catholic-liturgy-weekdays-eo-nl.ics
+<iframe id="open-web-calendar" 
+    style="background:url('https://raw.githubusercontent.com/niccokunzmann/open-web-calendar/master/static/img/loaders/circular-loader.gif') center center no-repeat;"
+    src="https://open-web-calendar.hosted.quelltext.eu/calendar.html?language=nl&amp;skin=flat&amp;start_of_week=su&amp;tabs=month&amp;tabs=agenda&amp;target=_blank&amp;title=Weekdagen%20(Latijnse%20ritus)&amp;url=http%3A%2F%2Fwww.missale.net%2Fcalendar%2Fcatholic-liturgy-weekdays-of-nl.ics"
+    sandbox="allow-scripts allow-same-origin allow-popups"
+    allowTransparency="true" scrolling="no" 
+    frameborder="0" height="600px" width="100%"></iframe>
+
+## Zondagen en feesten (Tridentijse mis)
+
+<a href="webcal://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-eo-nl.ics">Voeg catholic-liturgy-sundays-and-feasts-eo-nl.ics toe aan je agenda</a>
+
+<a href="http://www.missale.net/calendar/catholic-liturgy-sundays-and-feasts-eo-nl.ics">Download catholic-liturgy-sundays-and-feasts-eo-nl.ics</a>
+
+<iframe id="open-web-calendar" 
+    style="background:url('https://raw.githubusercontent.com/niccokunzmann/open-web-calendar/master/static/img/loaders/circular-loader.gif') center center no-repeat;"
+    src="https://open-web-calendar.hosted.quelltext.eu/calendar.html?language=nl&amp;skin=flat&amp;start_of_week=su&amp;tabs=month&amp;tabs=agenda&amp;target=_blank&amp;title=Zondagen%20en%20feesten%20(Tridentijnse%20mis)&amp;url=http%3A%2F%2Fwww.missale.net%2Fcalendar%2Fcatholic-liturgy-sundays-and-feasts-eo-nl.ics"
+    sandbox="allow-scripts allow-same-origin allow-popups"
+    allowTransparency="true" scrolling="no" 
+    frameborder="0" height="600px" width="100%"></iframe>
+
+## Weekdagen (Tridentijnse mis)
+
+<a href="webcal://www.missale.net/calendar/catholic-liturgy-weekdays-eo-nl.ics">Voeg catholic-liturgy-weekdays-eo-nl.ics toe aan je agenda</a>
+
+<a href="http://www.missale.net/calendar/catholic-liturgy-weekdays-eo-nl.ics">Download catholic-liturgy-weekdays-eo-nl.ics</a>
+
+<iframe id="open-web-calendar" 
+    style="background:url('https://raw.githubusercontent.com/niccokunzmann/open-web-calendar/master/static/img/loaders/circular-loader.gif') center center no-repeat;"
+    src="https://open-web-calendar.hosted.quelltext.eu/calendar.html?language=nl&amp;skin=flat&amp;start_of_week=su&amp;tabs=month&amp;tabs=agenda&amp;target=_blank&amp;title=Weekdagen%20(Latijnse%20ritus)&amp;url=http%3A%2F%2Fwww.missale.net%2Fcalendar%2Fcatholic-liturgy-weekdays-eo-nl.ics"
+    sandbox="allow-scripts allow-same-origin allow-popups"
+    allowTransparency="true" scrolling="no" 
+    frameborder="0" height="600px" width="100%"></iframe>
 
 ## Installatie
 
