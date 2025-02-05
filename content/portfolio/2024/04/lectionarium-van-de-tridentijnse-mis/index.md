@@ -16,5 +16,7 @@ De Nederlandse vertalingen zijn genomen uit de Petrus Canisius bijbelvertaling, 
 
 Deze publicatie is ook beschikbaar als boek. Het formaat is 11,5 bij 16,7 cm dus ongeveer zoals een volksmissaal en telt 309 pagina’s.
 
+Er is ook een versie voorzien van prenten bij de evangelieteksten, genomen uit de *Evangelicæ historiæ imagines: ex ordine evangeliorum, quæ toto anno in missæ sacrificio recitantur, in ordinem temporis vitæ Christi digestæ* van Jerónimo Nadal sj uit 1593. Die publicatie telt 463 pagina's.
+
 [Bezoek de website voor meer informatie.](http://lectionarium.gelovenleren.net/)
 

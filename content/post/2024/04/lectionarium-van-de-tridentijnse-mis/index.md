@@ -39,3 +39,5 @@ De Tridentijnse Mis gebruikt andere schriftlezingen dan de gewone katholieke lit
 Voor wie de teksten wil gebruiken tijdens de mis en dan niet graag op zijn gsm zit te kijken, is er ook een publicatie als boek, in een handig compact formaat ;) Bezoek de [website](https://lectionarium.gelovenleren.net) voor de bestelgegevens.
 
 De teksten komen uit de katholieke bijbelvertaling [Petrus Canisius](https://bijbel.gelovenleren.net). 
+
+Er is ook een versie voorzien van prenten bij de evangelieteksten, genomen uit de *Evangelicæ historiæ imagines: ex ordine evangeliorum, quæ toto anno in missæ sacrificio recitantur, in ordinem temporis vitæ Christi digestæ* van Jerónimo Nadal sj uit 1593.

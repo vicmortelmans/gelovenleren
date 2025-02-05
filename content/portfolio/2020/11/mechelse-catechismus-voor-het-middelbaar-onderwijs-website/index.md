@@ -12,4 +12,6 @@ Heruitgave van "Beknopte verklaring van den Mechelse Catechismus ten gebruike va
 <!--more-->
 
 De volledige inhoud van de catechismus is gedigitaliseerd en gepubliceerd op de website [mechelse.gelovenleren.net](https://mechelse.gelovenleren.net/)
+
+[Afdruk bestellen](https://www.boekenbestellen.nl/boek/mechelse-catechismus-ten-gebruike-van-het-middelbaar-onderwijs)
 .
