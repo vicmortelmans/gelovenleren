@@ -20,3 +20,4 @@ De lessen die de liturgie behandelen, zijn afgestemd op de buitengewone vorm van
 De website gebruik je in klasverband of individueel, op een projectiescherm, computer of tablet.
 
 De teksten uit de lessen kan je afdrukken. De website wordt gratis aangeboden en is niet beschikbaar in boekvorm.
+
