@@ -42,13 +42,13 @@ Voor de passieweek heeft Geloven Leren een [reeks bijzondere publicaties](/page/
 
 De toneelbewerking van het Evangelie is niet bedoeld om als passiedrama uit te voeren voor groot publiek, maar aarzel niet om bij gelegenheid samen met de kinderen thuis, in de catechesegroep of in de klas een of meerdere bedrijven uit te voeren om het bijbelverhaal wat leven in te blazen. Of neem het stuk zelf bij de hand als alternatieve bijbellezing!
 
-Slechts op een plaats is noodgedwongen een element aan de dialoog toegevoegd dat niet alsdusdanig in het evangelie is opgenomen in de passage waar Jezus de eucharistie instelt! Er staat geschreven, bijvoorbeeld in Marcus 14:22, _"Terwijl ze aten, nam hij een brood,_ _sprak het zegengebed uit__, brak het brood, deelde het uit en zei: ‘Neem hiervan, dit is mijn lichaam.’"_ Alle elementen van het verhaal staan in de bijbel neergeschreven als dialoog en zijn dus letterlijk over te nemen, maar het zegengebed dat Jezus uitsprak niet. Erg veel moeite vergt het echter niet om te achterhalen welk gebed Jezus uitsprak, want [joden bidden nog steeds hetzelfde psalmgebed voor de maaltijd](http://www.joodsleven.nl/Encyclopedie/Kasjroet/Kasjroet-18.htm):
+Slechts op een plaats is noodgedwongen een element aan de dialoog toegevoegd dat niet alsdusdanig in het evangelie is opgenomen in de passage waar Jezus de eucharistie instelt! Er staat geschreven, bijvoorbeeld in Marcus 14:22, _"Terwijl ze aten, nam hij een brood, sprak het zegengebed uit, brak het brood, deelde het uit en zei: 'Neem hiervan, dit is mijn lichaam.'"_ Alle elementen van het verhaal staan in de bijbel neergeschreven als dialoog en zijn dus letterlijk over te nemen, maar het zegengebed dat Jezus uitsprak niet. Erg veel moeite vergt het echter niet om te achterhalen welk gebed Jezus uitsprak, want [joden bidden nog steeds hetzelfde psalmgebed voor de maaltijd](http://www.joodsleven.nl/Encyclopedie/Kasjroet/Kasjroet-18.htm):
 
 [![Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes](images/SFA02_1002050_01_X-300x230.jpg)](http://www.geheugenvannederland.nl/?/nl/zoekresultaten/pagina/1/passiespelen/%28passiespelen%29/&colcount=0&wst=passiespelen) Passiespel in Tegelen... klik op de foto voor de betere verkleedpartijtjes
 
 _"Gezegend bent U, Eeuwige onze God, Koning van de wereld, die brood voortbrengt uit de aarde."_ (voor het eten van brood)
 
-_"Gezegend bent U, Eeuwige onze God, Koning van de wereld, die de vrucht van de wijnstok geschapen heeft." (_voor het drinken van wijn)
+_"Gezegend bent U, Eeuwige onze God, Koning van de wereld, die de vrucht van de wijnstok geschapen heeft."_ (voor het drinken van wijn)
 
 Niet alleen joden bidden het, ook de priester spreekt het uit tijdens het offertorium, vlak voor de aanvang van het groot dankgebed (tenminste, als u goed luistert, want de priester bidt dit gebed met gedempte stem, en indien uw priester uberhaupt nog de moeite neemt dit te bidden). In de liturgie klinken de joodse gebeden lichtjes gewijzigd als volgt:
 
