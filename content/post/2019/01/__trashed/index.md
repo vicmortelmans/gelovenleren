@@ -38,8 +38,6 @@ Enkele weken geleden heb ik iets bijgeleerd over tabernakels. Mijn nieuwsgierigh
 
 Dat deed me al de wenkbrauwen fronsen, maar de retweet waarin confrater Jos Moons sj stelt dat _"een tabernakel sinds #VaticanumII niet meer de centrale plaats in de kerk heeft"_, zette me aan om wat verder te zoeken. De hashtag #VaticamunII in combinatie met boude beweringen heeft wel eens meer die uitwerking op mij.
 
-{{< tweet 1068437457199353857 >}}
-
 De onschatbare informatiebron van [rkdocumenten.nl](https://www.rkdocumenten.nl/rkdocs/index.php?page=3) geeft elke leek de mogelijkheid zo'n uitspraken te checken. Lang leve de democratisering van het magisterium van de Kerk!
 
 In de [documenten van het tweede Vaticaans Concilie](https://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=570) worden echter geen schikkingen gesteld voor tabernakels, toch niet in directe verwoording. Navraag bij voornoemde twitteraars leerde me dat de [Algemene Instructie van het Romeins Missaal](https://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1798&id=7247) (ook een product van Vaticanum II, of toch van de 'geest' ervan) bepalingen bevat over de locatie van het tabernakel in een kerkgebouw.
