@@ -31,7 +31,7 @@ tags:
   #- "islam"
   - "leven"
   #- "synode"
-coverImage: "brug2.jpg"
+coverImage: ""
 ---
 
 Johan Sanctorum schrijft op zijn blog [een artikeltje over de ingestorte Itialiaanse brug](https://sanctorumblog.wordpress.com/2018/08/19/hoogtevrees-een-niet-zo-dom-gevoel/). _"Wie heeft het gedaan? Whodunit?"_ is de vraag die alle media bezighoudt. Terwijl het net zo goed gewoon pech kan zijn. _"Met zo’n kansspellogica kunnen wij niet om, ik weet het. Ons modern universum, waar we tegelijk het schier onmogelijke, verbluffende willen én alles willen controleren, is er niet op ingericht."_  
