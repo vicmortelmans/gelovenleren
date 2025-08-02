@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "16.jpg"
 ---
 
 Als je probeert een kind op te voeden, is het vraagstuk van vrijheid een bron van veel hoofdbrekens. Het gezonde uitgangspunt is dat je je kind vrijheid geeft, inzoverre het de daaraan gekoppelde verantwoordelijkheid kan oppakken. Geef je je kind vrijheid om 's morgens zelf kleren uit te kiezen of wil je niet dat het er de hele dag als een vogelschrik bijloopt? Geef je je kind vrijheid om zelf zijn huiswerk te regelen of wil je niet dat het bij het volgende rapport onderuit gaat? Geef je je kind vrijheid om er alleen op uit te trekken of wil je niet dat het slechte vrienden zou maken?
@@ -62,8 +61,6 @@ Wat is het dan? [Vinden gelovige ouders](https://www.ncregister.com/blog/msgr-po
 ### Ideologisch
 
 Wat hier de kop opsteekt, is een ideologische definitie van vrijheid. Vrijheid van geloof wordt zodanig verabsoluteerd dat zelfs het kleinste kind er onvoorwaardelijk aanspraak op kan maken, terwijl juist aangevoerd is dat in een gezonde opvoeding elke vrijheid voorwaardelijk is, zeker de "belangrijke".
-
-![Interreligieuze dialoog](images/16-300x139.jpg) Vrijheid van geloof is een "belangrijke" verantwoordelijkheid
 
 Onlangs hoorde ik het verhaal van een joodse intellectueel die erg actief is in de interreligieuze dialoog en als een heel open persoon bekend staat, maar die als vader zijn eigen kinderen een heel gesloten opvoeding geeft, waarbij ze haast geen contact hebben met niet-joden.
 

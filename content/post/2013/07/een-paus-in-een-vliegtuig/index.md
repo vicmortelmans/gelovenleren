@@ -34,8 +34,6 @@ tags:
 coverImage: "prodigal_son1.jpg"
 ---
 
-[![Paus Franciscus geeft een interview in de vlucht uit Rio](images/popefrancispressconfer0121.jpg?w=450 "Paus Franciscus geeft een interview in de vlucht uit Rio")](images/popefrancispressconfer0121.jpg) Paus Franciscus geeft een interview in de vlucht uit Rio
-
 Het was me het weekje wel! Tijdens zijn vlucht uit Rio kondigde paus Franciscus _out of the blue_ een nieuw 'tijdperk' aan waarin de Kerk zich zal verzoenen met homoseksualiteit en met tweede huwelijken en waarin topfuncties in het vaticaan voor vrouwen opengesteld zullen worden (het priesterschap nog net niet, maar volgens rector Torfs is dat een kwestie van tijd, dit terzijde). [Triomfantelijke koppen](http://wdtprs.com/blog/2013/07/how-to-get-francis-wrong-on-homosexuality/?utm_source=feedly) in de media. Intussen legt het vaticaanse _back-office_ opnieuw de [klem](http://maryvictrix.com/2013/07/29/the-fis-and-pope-francis/) op de oude ritus. Genoeg reden voor beroering in de traditionalistische _newsstream_. Wie verder leest leert snel genoeg dat de feitelijke verhalen heel wat [genuanceerder](http://www.catholicculture.org/commentary/otn.cfm?id=989) zijn, maar wie maalt daarom als de telex ronkt?
 
 Paus Franciscus verwijst in zijn afkondiging van het 'tijdperk van barmhartigheid' naar het verhaal van de verloren zoon. De barmhartige vader loopt naar buiten om zijn verloren zoon, die al zijn geld verbraste, zonder enig verwijt te ontvangen en organiseert een groot feest. Zo moet ook de Kerk optreden.

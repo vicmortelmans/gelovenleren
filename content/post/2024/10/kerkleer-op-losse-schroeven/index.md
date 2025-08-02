@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "groepsfoto.jpg"
 ---
 
 Een kort artikeltje met twee bedenkingen, misschien niet onderling ongerelateerd. De eerste bedenking vloeit voort uit het [vorige artikel](https://gelovenleren.net/blog/geloof-in-het-hiernamaals/) op deze blog.

@@ -10,8 +10,6 @@ coverImage: "image01.jpg"
 
 De promotiecampagne van Geert Lernouts boek ter verdediging van het secularisme loopt op volle toeren, met vrije tribunes in [De Morgen](/2011/08/31/secularisme-ter-ziele/) en nu ook in [De Standaard](http://www.demorgen.be/dm/nl/2461/De-Gedachte/article/detail/1312031/2011/08/31/God-heeft-het-druk-de-laatste-tijd.dhtml). Hij trekt ten strijde tegen het christelijk (politkek) fundamentalisme in de VS, maar of het daarbij blijft...
 
-[![](images/image00.jpg?w=150 "image00")](images/image00.jpg)
-
 Enkele opmerkelijke citaten uit zijn laatste stuk, over christelijk fundamentalisme in de VS: “Zij geloven echt dat de wereld zesduizend jaar geleden geschapen is, dat Jezus uit de doden is opgestaan, dat homoseksualiteit een van de zwaarste zonden is en dat het einde der tijden nabij is” en “zij vinden dat iedereen het recht heeft om wapens te dragen, die net zo weinig in evolutie geloven als in de opwarming van de aarde of in sociale rechtvaardigheid, die na lang talmen eindelijk de rassengelijkheid hebben aanvaard, maar die nog altijd moeite hebben met vrouwenrechten of het homohuwelijk.”
 
 Daarbij stelt hij: “dit christendom heeft heel weinig te maken met Europese godsdienst.” (wat dat wel moge zijn, die ‘Europese godsdienst’, daar kom ik later op terug)

@@ -2,7 +2,6 @@
 title: "Praktische gids bij gebedshoudingen in de liturgie"
 date: "2014-11-19"
 categories: "tools"
-coverImage: "20091004_dc_800thofm_mg_41201.jpg"
 ---
 
 Hoe zit het precies met die liturgische gebedshoudingen? Ik vermoed niet dat die nog worden uitgelegd in catechese of godsdiensles, dus is het voor de meeste gelovigen iets wat ze zelf moeten ontdekken. 

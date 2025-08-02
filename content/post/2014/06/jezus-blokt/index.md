@@ -56,8 +56,6 @@ Jezus is zich ongetwijfeld bewust van zijn bijzondere relatie met God, maar dat 
 
 # Denken en leren op menselijke wijze
 
-![Paus Benedictus XVI](images/pope_benedict_in_prayer1.jpg?w=120) Paus Benedictus XVI
-
 Paus Benedictus XVI raakt in de proloog van zijn Jezustrilogie ook heel even Jezus' "groeien in wijsheid" aan, helemaal aan het einde van het boek: _"Johannes zegt dat Jezus de enige is die rust aan het hart van de Vader en Hem heeft doen kennen (Joh. 1:18). Dat precies wordt duidelijk in het antwoord van de twaalfjarige: Hij is bij de Vader, Hij ziet de dingen en de mensen in Gods licht. Anderzijds is het ook waar dat zijn wijsheid_ toeneemt_. Als mens leeft Hij niet in de abstracte alwetendheid, maar is Hij geworteld in een concrete  geschiedenis, in plaats en tijd, in menselijke levensfasen, en daaraan ontleent Hij wat Hij concreet weet. Hier blijkt duidelijk dat Hij op menselijke wijze heeft gedacht en geleerd."_
 
 # Kinderen van God

@@ -31,12 +31,9 @@ tags:
   - "islam"
   #- "leven"
   #- "synode"
-coverImage: "basker-carpet-cropped.jpg"
 ---
 
 In de eerste week van de vakantie werden onze kinderen [dagelijks lastiggevallen](https://twitter.com/vicmortelmans/status/881933489666392064) door allochtone kinderen als ze op het plein gingen voetballen. Na enkele ergernisvolle 'gesprekken' (de eergevoeligheid die de sociale omgang met deze gemeenschap hypothekeert, maakt het moeilijk om dit woord zonder aanhalingstekens te vermelden) en een bezoekje van de politie leek het alsof de spanningen waren opgelost. Omdat we zelf ook op vakantie gingen en er tal van andere activiteiten waren, werd er niet meer dagelijks gespeeld, maar goed, de laatste weken kon het weer terug zonder problemen.
-
-![](images/basker-carpet-215x300.jpg) Borgerhouts plein
 
 Vandaag waren er drie vriendjes op bezoek, die mee op het plein gingen spelen. Na nog geen half uurtje bleek het weer terug ambras. Weer opnieuw met die mannetjes gaan onderhandelen en weet je wat het merkwaardige is: die nieuwe vriendjes waren het probleem! Het waren vreemdelingen! Als je die allochtone jongeren er (weer eens) op aanspreekt dat ze toch ook onze kinderen in vrede moeten kunnen laten spelen, krijg je te horen dat ze onze kinderen niet hebben lastiggevallen. Maar die nieuwe vriendjes, die kenden ze niet.
 

@@ -42,4 +42,3 @@ Het is niet de zoveelste [app met katholieke gebeden](/portfolio/katholieke-gebe
 
 Klinkt heel beloftevol, als jongeren (of ouderen) ermee aan de slag zullen gaan!
 
-![](images/Screenshot_2017-01-11-12-22-07-169x300.png) ![](images/Screenshot_2017-01-11-12-22-02-169x300.png) ![](images/Screenshot_2017-01-11-12-21-54-169x300.png) ![](images/Screenshot_2017-01-11-12-20-59-169x300.png) ![](images/Screenshot_2017-01-11-12-20-48-169x300.png)

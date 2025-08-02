@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "sheep.png"
 ---
 
 Jezus hield van parabels. Eenvoudige verhalen over mensen, maar die iets vertellen over God. We noemen ze soms ook 'gelijkenissen'. Maar ik denk niet dat die naam juist is. Veel van die parabels zijn verhalen die ergens niet kloppen, toch niet vanuit menselijk perspectief.

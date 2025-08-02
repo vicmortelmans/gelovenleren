@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "is_he_questioning_your_relationship.jpg"
 ---
 
 _"Geloof kan niet zonder twijfel"_. Deze stelling is onder katholieke intellectuelen _bon ton_. Ik doe welwillende pogingen om te begrijpen wat ze ermee bedoelen, want op het eerste zicht lijkt het alsof het hun bedoeling is het geloof stilletjes te laten verdampen in een sudderend relativisme, en dat maakt me bezorgd!

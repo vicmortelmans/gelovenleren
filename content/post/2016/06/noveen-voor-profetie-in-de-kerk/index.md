@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "5-500x333.jpg"
 ---
 
 ![noveenkaars-wit-h-johannes-de-doper](images/noveenkaars-wit-h-johannes-de-doper-397x1024.jpg)Het [bericht dat mgr. De Kesel zomaar een succesvolle priesterbroederschap aan de deur zet](https://www.kerknet.be/aartsbisdom-mechelen-brussel/nieuws/verklaring-over-fraterniteit-van-de-heilige-apostelen) zonder een echt geloofwaardige argumentie te geven, verontrust me.

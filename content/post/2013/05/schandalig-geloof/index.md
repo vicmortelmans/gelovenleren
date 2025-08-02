@@ -96,8 +96,6 @@ Dat is de boodschap van Jezus, voor de mensen een vat vol tegenstrijdigheden en 
 
 ### Hoe doet-ie-het?
 
-![](images/pope-francis-smiling-150x150.jpg) Hoe kan deze man je ergeren?
-
 Ondertussen is er wel iemand die er wonderwel in slaagt om geen ergernis te wekken, hoewel zijn boodschap in deze tijd toch schandaal is voor velen. Het is paus Franciscus, die op wonderlijke wijze  erin slaagt te spreken over heikele thema's uit de katholieke leer, zonder heel de pers over zich heen te krijgen.
 
 Bij [Aleteia](http://www.aleteia.org/en/article/the-spell-of-pope-francis-1141001) heeft men opgemerkt dat paus Franciscus met heel wat uitspraken verrassend gemakkelijk wegraakt.

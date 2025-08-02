@@ -38,10 +38,6 @@ Dochterlief kreeg op school een _workshop 3D printing_. Met het bijhorende 3D-te
 
 De opbouw is redelijk eenvoudig, want afbeeldingen van klassieke tempels zitten in elk schoolhandboek. Een opgang van treden rondom het ganse gebouw, een overdekte colonnade en binnenin een ommuurde ruimte.  
 
-![](images/temple-of-hera-700x467.jpg)
-
-Tempel van Hera
-
 Dat beeld, dat we kennen van de talloze ruïnes van antieke tempels, is echter niet volledig. Twee belangrijke elementen ontbreken, blijkens mijn (oppervlakkig) opzoekwerk.  
 
 **Ten eerste: het beeld van de godheid.** Dat bevindt zich binnenin de [ommuurde en overdekte ruimte](https://en.wikipedia.org/wiki/Cella) (die "cella" (Latijn) of "naos" (Grieks) heet) en heeft een sacraal karakter. Afhankelijk van de identiteit van de godheid of lokale tradities, was die ruimte slechts beperkt toegankelijk. Zo'n godenbeeld kom behoorlijk imposante proporties aannemen.  

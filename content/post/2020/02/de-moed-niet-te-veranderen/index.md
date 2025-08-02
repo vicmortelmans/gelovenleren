@@ -31,20 +31,13 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "Dating-advice-from-Pope-Francis.jpg"
 ---
 
 In oktober 2019, tijdens de Amazonesynode, schreef ik een artikeltje onder de titel ["Zoiets aberrants als een priester"](/blog/zoiets-aberrants-als-een-priester/). Ik was een beetje cynisch toen, want ik ging ervan uit, zoals zovelen, dat de synode, nog voor de stemmen goed en wel geteld waren, onherroepelijk zou leiden tot een pauselijke exhortatie die in de Amazone gehuwde mannen tot de priesterwijding zou toelaten.
 
 Die veronderstelling heeft paus Franciscus vandaag ontkracht. Ik betuig mijn spijt over mijn gebrek aan vertrouwen in de heilige Vader.
 
-![](images/december_francis.0.0-700x394.jpg)
-
 De Duitse organisatie van leken, ZdK, is er daarentegen als de kippen bij om paus Franciscus een [gebrek aan moed te verwijten](https://www.zdk.de/veroeffentlichungen/pressemeldungen/detail/ZdK-Praesident-Sternberg-bedauert-fehlenden-Mut-zu-echten-Reformen-1305s/). Hun teleurstelling heeft weinig te maken met bezorgdheid over de Amazone. Zij zaten natuurlijk op hete kolen, omdat ze de exhortatie wilden gebruiken als een katalysator in de Duitse "Synodale Weg". Streep door de rekening van vele opiniemakers, zeker in onze kontreien. Je zal nu trouwens in de media en op blogs plots weer foto's zien opduiken van de paus die een beetje nors kijkt, maar niet hier!
-
-![](images/francis-thumbs-up-700x394.jpg)
-
-Duimpje!
 
 Dat het moed vergt veranderingen door te voeren, daarin hebben ze gelijk. Dat het soms meer moed vergt veranderingen **niet** door te voeren, daarvoor lijk je blind te zijn, als je meent dat er slechts één weg vooruit is. 
 

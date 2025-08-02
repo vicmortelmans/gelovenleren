@@ -31,12 +31,9 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "cc_ebibleiphone21.jpg"
 ---
 
 > Alvorens tot het onderwerp van dit artikel over te gaan, een korte nieuwsflits over een nieuw item in [Credomobiel](/page/mobiele-websites/). De gebruikers van mobiel en tablet kunnen sinds kort ook volwaardig gebruik maken van de webstek [RKDocumenten.nl](http://www.rkdocumenten.nl/rkdocs/). De inhoud blijft hetzelfde, nu ook op het kleine scherm!
-
-![e-boek](images/cc_ebibleiphone21.jpg?w=150) e-boek
 
 Over nu tot het publiceren van een e-boek. Deze markt stijgt gestaag en tegen 2017 zou het aandeel van e-boeken in de verkoop het klassieke gedrukte boek moeten evenaren. Dat geldt voor het commerciële werk. Wie boeken gratis wil verspreiden is natuurlijk het meest gebaat met dit nieuwe platform. En voor de gebruiker zijn de troeven legio, zeker als je denkt aan boeken waaruit je dagelijks een klein stukje wil lezen, zoals de dagelijkse meditaties van Grossouw in "Innerlijk Leven".
 

@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "Virtual-server-scaled.jpeg"
 ---
 
 *(dit artikel verschijnt per uitzondering in het Engels)*

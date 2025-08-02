@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "coronapas.jpg"
 ---
 
 De overheid heeft ervoor gekozen het coronavaccin niet verplicht te maken. Tegelijk heeft ze er alles voor over om het gedrag van de weinige niet-gevaccineerden (minder dan 10%, toch?) alsnog bij te sturen, zelfs een volledig nieuwe omkering van het begrip 'vrijheid'. Burgers hebben vanaf november 2021 niet langer natuurlijke vrijheid, ze moeten hun vrijheid verdienen. De controle van die vrijheid, iets wat normaalgezien de overheid toekomt, wordt bovendien uitbesteed aan geautomatiseerde dataverwerking en aan andere medeburgers. Om dat mogelijk te maken, is de QR-pas (CST) in het leven geroepen. Niet zo onschuldig, hoewel de ministers het misschien gewoon zien als een nieuwe vorm van 'sensibilisering', maar dan een repressieve variant? 

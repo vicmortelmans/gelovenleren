@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "pope-francis-smiling.jpg"
 ---
 
 De ontlading na de publicatie van de exhortatie _Querida Amazonia_ is groot. Veel gelovigen reageren spontaan. Ze voelen zich boos, teleurgesteld, opgelucht of euforisch. Bij jezuieten is die reactie altijd iets complexer. Ik licht er twee toe, die toch de moeite waard zijn.

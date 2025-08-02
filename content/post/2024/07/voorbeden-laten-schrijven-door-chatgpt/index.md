@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "aipraying.png"
 ---
 
 Onze parochie heeft een meertalige gemeenschap en daarom projecteren we de teksten van de mis op een scherm. Daarop verschijnen de vaste gebeden die de gelovigen meebidden (kyrie, gloria, sanctus,&#x2026;&#x2014;in Nederlands of Latijn), de lezingen (in het Nederlands, maar een van de lezingen wordt bij ons altijd in een andere taal gelezen), de voorbeden (in het Nederlands, maar ze worden bij ons in verschillende tale voorgelezen) en de liedteksten.

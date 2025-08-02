@@ -31,10 +31,9 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "phoneapps3silo4e13220179104451.jpg"
 ---
 
-[![Catholic Apps](images/phoneapps3silo4e13220179104451.jpg?w=300)](http://catholicapps.wordpress.com/) Catholic Apps
+[Catholic Apps](http://catholicapps.wordpress.com/)
 
 De Engelstalige blog [Catholic Apps](http://catholicapps.wordpress.com/) is voor Nederlandstalige gelovigen een plaats om weg te dromen in de toekomst van geloofscommunicatie. Praktische hulpmiddelen bij geloof, zij het een missaal, een lectionarium, een getijdenboek, een catechismus, een gebedenboek, een biechtspiegel, een meditatiebundel, je moet er niet naar op zoek in een donker hoekje van een of andere obscure boekhandel, maar je krijgt het allemaal, kant en klaar en bijna gratis, overal beschikbaar, op je mobieltje!
 

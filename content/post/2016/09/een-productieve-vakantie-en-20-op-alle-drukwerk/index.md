@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "strand.jpg"
 ---
 
 De vakantiemaanden bezorgden dit blog een _boost_ in productiviteit. Omdat u misschien op reis was, hier een overzicht van de nieuwe publicaties:

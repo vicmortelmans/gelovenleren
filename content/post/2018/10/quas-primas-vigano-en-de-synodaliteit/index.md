@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "CNS-SYNODALITY-THEOLOGICAL-COMMISSION.jpg"
 ---
 
 ## Horizontalisme  

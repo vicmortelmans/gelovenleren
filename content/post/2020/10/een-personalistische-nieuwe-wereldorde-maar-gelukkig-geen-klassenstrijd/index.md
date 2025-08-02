@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "tuttifrutti.jpg"
 ---
 
 De laatste [encycliek Fratelli Tutti](http://www.vatican.va/content/francesco/en/encyclicals/documents/papa-francesco_20201003_enciclica-fratelli-tutti.html) van Paus Franciscus bevat weinig nieuws, maar is daarom niet minder wereldschokkend. We wisten al dat onze Paus wel iets heeft van een linkse revolutionair, maar waar vorige publicaties die ik van hem las vaak weinig concreets te bieden hadden, ligt er nu een pasklaar plan-van-aanpak gereed, voor de organisatie van een personalistische nieuwe wereldorde. 

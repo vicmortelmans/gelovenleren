@@ -31,7 +31,6 @@ tags:
   #- "islam"
   - "leven"
   #- "synode"
-coverImage: "worden-zoals-een-kind.jpg"
 ---
 
 

@@ -51,7 +51,3 @@ Meestal bidden we om te danken voor de nieuwe kans die we krijgen en voor het we
 Zonder de genade kunnen we niet heilig worden. Om heilig te worden, moeten we niet meer doen dan de genade beantwoorden. Het zware werk, dat wordt door Jezus gedaan. Het jongentje beseft dat hij het Jezus nog moeilijk zal maken, daarom bidt hij dat Jezus het dan nog eens zou proberen… en  nog eens… en nog eens.
 
 Genade lijkt ook een een beetje op de opbrengst van een sponsorloop, waaraan de kinderen op school toevallig vandaag moesten deelnemen om de schoolkas te spijzen. Ze bekloegen zich als volgt: wij moeten ons moe maken, en de juffen, die aan de kant staan te tetteren, krijgen de centen die wij verdienen! Zo gaat het ook met de genade. Ook daar worden rondjes gelopen om genade te verdienen. Wij staan aan de kant onaandachtig te beuzelen, zoals de juffen op school, slechts een enkeling heeft aandacht voor de renbaan en roept de bezwete renner toe "Niet opgeven, Jezus!!"
-
-![Jezus op de sponsorloop (maar veel gekker hoeft het niet te worden)](images/la-sp-sn-marathon-jesus-20131105-001-300x175.jpg)
-
-Jezus op de sponsorloop (maar veel gekker hoeft het niet te worden)

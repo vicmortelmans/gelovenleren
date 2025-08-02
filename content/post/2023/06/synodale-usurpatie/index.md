@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "de-denker.jpg"
 ---
 
 Eergisteren kwamen twee berichten over katholieke synodes in het nieuws. Eerst was er het [bericht over de "Synodaler Weg" van de Duitse katholieken](https://twitter.com/JLLiedl/status/1671132544824139782?s=20), waaronder enkele behoudsgezinde Duitse bisschoppen een bom leggen, door de geldkraan dicht te draaien. Dat doen ze naar eigen zeggen omdat de verdere institutionalisering van de synode, wat de volgende stap in het proces zou worden, ingaat tegen de instructies van Paus Franciscus uitgevaardigd in januari 2023, specifiek met betrekking tot diezelfde synode. Die bisschoppen hadden al veel eerder de stop eruit kunnen trekken door zich eenvoudigweg terug te trekken uit de synode, waardoor die haar legitimiteit zou verliezen, maar dat deden ze dus niet. Vraag is nu wat ze zullen doen als ZdK, de machtige lekenkoepel achter de synode, tegen oktober elders tóch genoeg geld vindt om verder te gaan!

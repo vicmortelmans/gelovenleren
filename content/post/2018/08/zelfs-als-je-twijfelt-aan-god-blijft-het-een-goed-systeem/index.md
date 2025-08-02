@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "sample-parish-billboard_810_500_75_s_c1.jpg"
 ---
 
 Ik ben een bèta-katholiek. Ik houd van orde, van systemen en structuren, van oorzaak en gevolg. Dat zijn typische kenmerken van wetenschappelijk denken, maar je kan ze ook in religieus denken toepassen. Het enige verschil met de "zuivere" wetenschap is, dat in religieus denken God wel wordt opgenemomen in de set van axioma's en in "zuiver" wetenschappelijk denken niet.  

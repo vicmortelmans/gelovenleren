@@ -61,8 +61,6 @@ De boodschap die de film geeft, is er een van hoop. De mechanische levensvorm di
 
 De hoop, een beetje veralgemeend, is de menselijke capaciteit om verwachtingen te koesteren die helemaal niet empirisch gefundeerd zijn. Hoop is dus ook een beetje wat je nodig hebt om een film te appreciëren die een verhaal brengt dat zich niet klip en klaar in flitsende actie voor de ogen van de kijker ontvouwt, om achter de beelden en de muziek op zoek te gaan naar de emoties en onuitgesproken ideeën.  
 
-![](images/fb-klimaatmars-15-maart-700x368.jpg)
-
 Wordt planeet Aarde bedreigd door een mechanische intelligentie? Of erdoor gered? Of geen van beide?
 
 De steekproefsgewijze vaststelling van een totaal gebrek aan waardering voor deze film bij de hedendaagse jeugd, stemt me pessimistisch. Wat rest er hen nog aan verbeelding en aan hoop? Zelfs de klimaatmarsen, die door de 'oudere generatie' worden opgehemeld als tekenen van hoop in de jonge generatie, zijn---in de beleving van deze film---slechts een bevestiging van hun gebrek aan hoop, want zij zoeken evolutie naar een nieuwe toekomst uitsluitend in de mechanische controle over het klimaat, het "systeem".

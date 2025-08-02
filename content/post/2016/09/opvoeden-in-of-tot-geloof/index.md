@@ -48,10 +48,6 @@ Aan de slag dus! Opvoeden _middenin_ geloof en -wie weet- daarmee ook _tot_ gelo
 
 Ik durf vier artikelen die eerder op dit blog verschenen voor (her)lezing aanbevelen, waarin deze nood reeds uitvoerig aan het licht kwam!
 
-[![Interreligieuze dialoog](images/16-300x139.jpg)](/blog/vrije-opvoeding/) Vrije opvoeding – over de verhouding tussen vrijheid en verantwoordelijkheid in geloofsopvoeding
-
- 
-
 [![lethimaskofgod1](images/lethimaskofgod1-300x250.jpg)](/blog/jezus-blokt/) Jezus blokt – over het belang van kennisoverdracht in geloofsopvoeding
 
  

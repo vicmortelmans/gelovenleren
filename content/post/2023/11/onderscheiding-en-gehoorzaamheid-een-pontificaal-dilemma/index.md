@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   - "synode"
-coverImage: "kudde.jpg"
 ---
 
 De katholieke Kerk is in de wereldgeschiedenis een absoluut uniek instituut en dat heeft ze fundamenteel te danken aan het petrusambt. Het is niet de bijbel, niet de kerkelijke leer, niet de geloofsbelijdenis,  niet de liturgie, zelfs niet het geloof in Jezus Christus, dat de Kerk al bijna tweeduizend jaar bijeenhoudt. Nee, al die zaken zijn zelfs eerder divergerende krachten! De enige kracht die maakt dat de katholieke Kerk al tweeduizend jaar bestaat en---zo God het wil---er nog zoveel duizend zal blijven bestaan, is de convergerende kracht van de Paus als hoofd van de Kerk.

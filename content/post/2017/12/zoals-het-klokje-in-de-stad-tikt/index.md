@@ -34,7 +34,7 @@ tags:
 coverImage: "altaar.jpg"
 ---
 
-![](images/fileprobleem-300x200.jpg)Het komt wel eens voor dat je met mensen die je niet kent een praatje moet maken en dan gaat het vaak over trivialiteiten zoals het weer, waar je werkt, waar je woont en hoe je je naar je werk begeeft. Vier vragen die mensen ondanks hun trivialiteit toch belangrijk vinden, want het zijn alledrie factoren die mee aan de oorzaak liggen van het enorme verkeersinfarkt waaronder zoveel pendelaars te lijden hebben.
+Het komt wel eens voor dat je met mensen die je niet kent een praatje moet maken en dan gaat het vaak over trivialiteiten zoals het weer, waar je werkt, waar je woont en hoe je je naar je werk begeeft. Vier vragen die mensen ondanks hun trivialiteit toch belangrijk vinden, want het zijn alledrie factoren die mee aan de oorzaak liggen van het enorme verkeersinfarkt waaronder zoveel pendelaars te lijden hebben.
 
 Ik prijs me dan telkens gelukkig dat ik me per fiets naar het werk kan begeven en dus van al die files geen last heb. Ik woon immers in de stad en bijna alle verplaatsingen, prive of voor het werk, kan ik maken per fiets of met het openbaar vervoer. Als mijn occasionele gesprekspartner, niet zelden een uitwijkeling van de stad, zich erover verwondert dat ik geen huisje op het platteland verkies, steek ik dat altijd fijntjes door.
 
