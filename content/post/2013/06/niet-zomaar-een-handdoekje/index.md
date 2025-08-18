@@ -31,10 +31,7 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "8b22cmanutergium.jpg"
 ---
-
-[![Manutergium](images/8b22cmanutergium.jpg)](http://blog.adw.org/2010/06/lost-liturgies-file-the-maniturgia/) Manutergium
 
 [Sublieme eenvoud met een ontroerende schoonheid](http://blog.adw.org/2010/06/lost-liturgies-file-the-maniturgia/ "The Manutergium").
 

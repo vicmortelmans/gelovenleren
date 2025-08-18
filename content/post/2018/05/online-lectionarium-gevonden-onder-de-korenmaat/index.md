@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "lectionarium.png"
 ---
 
 Een paar dagen geleden vroeg me iemand of ik zou weten of je de schriftlezingen van de mis enkele weken vooruit online kan vinden. Een online Lectionarium dus.

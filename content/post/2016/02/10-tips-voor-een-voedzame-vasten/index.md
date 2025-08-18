@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "a13f625314565a4e64d0e2bf78986216.jpg"
 ---
 
 Volgende week begint de vasten weer! Misschien heb je je al voorgenomen wat minder gulzig te zijn met voedsel, drank of andere consumptieartikelen. Maar heb je ook al voornemens om wat minder zuinig te zijn met het voedsel voor je geloof?

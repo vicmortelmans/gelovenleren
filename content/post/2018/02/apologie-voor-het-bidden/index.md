@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "prayer.png"
 ---
 
 Hoe ik erbij kom, mag u raden (het heeft iets met opvoeding te maken), maar ik bedacht me plotseling: waarom zou ik niet eens een apologie schrijven voor het bidden? Ja, waarom niet, hoor ik u beamen, dus aan de slag!

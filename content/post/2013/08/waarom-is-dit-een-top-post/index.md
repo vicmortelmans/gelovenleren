@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg"
 ---
 
 Af en toe moet een blogger zijn ijdelheid strelen (of zijn nederigheid oefenen) en dan slaat hij de bezoekersstatistieken open. Dat doe ik dus ook. Je kan dan ook de "all-time" bezoekersaantallen per artikel opvragen. Ik geef hier gewoon even het overzicht. Mij treft vooral de "top post" (de homepage niet meegerekend).  Zou het kunnen dat het relatieve succes van dit artikel te 'danken' is aan het feit dat er elders over dit onderwerp te weinig geschreven wordt?

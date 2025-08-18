@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "Ministerraad-News-belgium.png"
 ---
 
 Net voor de Advent had ik een goed voornemen en heb ik mijn Twitter opgekuist. Het is mijn voornaamste nieuwsbron en ik merkte dat ik er veel tijd aan besteedde om eigenlijk alleen maar zaken te lezen die nodeloos ergernis opwekken. Systematisch heb ik er alle accounts uitgegooid die artikels verspreidden met overwegend negatieve teneur. Dat waren er heel wat, en gedurende een tweetal weken merkte ik dat mijn tijdsbesteding veel lager was, dat ik veel meer zinvolle artikels oppikte zonder het gevoel te hebben iets echt relevants te missen en---niet onbelangrijk---dat ik beduidend minder ergernis ondervond.

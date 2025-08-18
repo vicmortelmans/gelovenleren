@@ -31,7 +31,6 @@ tags:
   #- "islam"
   #- "leven"
   #- "synode"
-coverImage: "1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg"
 ---
 
 Een klein artikeltje wijden aan de biecht kan geen kwaad, net voor het begin van de vasten. De biecht is immers het kneusje onder de sacramenten. Biechten is ook het moeilijkste van alle sacramenten, want het vraagt nederigheid en overgave.
@@ -45,10 +44,6 @@ Iemand die voor de eerste keer zou willen biechten, moet minstens drie hordes ov
 Voor je naar een priester stapt, moet je eerst de keuze maken hoe je wil biechten. Dat ligt veel aan je persoonlijkheid en aan de relatie die je wil opbouwen met je biechtvader en wie je daarvoor kiest. Je kan kiezen voor een heel open biechtgesprek, van aangezicht tot aangezicht, waarin de voltrekking van het sacrament haast spontaan wordt verweven, of voor een klassieke biecht, waarbij bepaalde vormelijkheden het sacrament ondersteunen.
 
 ## Biechtstoel
-
-![Evenement-biechtstoelen](images/1313945444publicconfessionariesatworldyouthday2011madrid_7981451.jpg?w=150)
-
-Evenement-biechtstoelen
 
 Beide vormen hebben hun voor- en nadelen en geen van beide doet iets af aan de waarde van het sacrament. Ik maak echter graag een bedenking waarom het gebruik van het meubelstuk 'biechtstoel' een zekere waarde heeft, hoewel het misschien in eerste instantie afschrikwekkend overkomt. De biechtstoel is uiteraard niet wezenlijk voor het sacrament, maar wel speciaal gebouwd voor dit sacrament en hij biedt een kader dat helpt om het sacrament te beleven, op meerdere manieren:
 

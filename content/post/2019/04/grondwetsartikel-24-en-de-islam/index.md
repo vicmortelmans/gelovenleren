@@ -31,7 +31,6 @@ tags:
   - "islam"
   #- "leven"
   #- "synode"
-coverImage: "shutterstock_100114838-e1537174466201.jpg"
 ---
 
 In Belgie is godsdienst knus ingenesteld in de staat. Die bekostigt onderhoud van kerkgebouwen, synagogen, moskeeen, tempels,... ook de eredienst zelf en de bedienaars van de eredienst en daarnaast ook godsdienstonderwijs in officiele zowel als vrije scholen. Dat laatste leek [even op de helling te staan](https://www.demorgen.be/politiek/dan-toch-geen-debat-over-onderwijsvrijheid-volgende-legislatuur~b8888854/?referer=https%3A%2F%2Ft.co%2FeDHlKKHEsT&utm_campaign=shared_earned&utm_medium=social&utm_source=twitter) door het voorstel om artikel 24 van de grondwet te herzien.  
