@@ -31,6 +31,12 @@ En mocht het afdrukken mislukken, kan je je boek [online bestellen](http://www.
 
 ---
 
+# BIJBEL
+
+{{< list-by-category bijbelboekjes >}}
+
+---
+
 # MISSAAL
 
 Om het juiste missaal te kiezen voor de gewone vorm, moet je weten in welk liturgisch jaar we zitten. De cyclus herhaalt zich om de drie jaar. 2019 is een jaar C, 2020 een jaar A en 2021 een jaar B enzovoort. Het jaar begint op de eerste zondag van de advent, dus het liturgische jaar 2019 begint reeds op de laatste zondag van november 2018.
