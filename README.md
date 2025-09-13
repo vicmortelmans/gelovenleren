@@ -4,6 +4,10 @@ New post:
 
 `./newpost "This is the title"`
 
+Figure:
+
+{{< figure src="images/seeger.png" >}}
+
 Twitter embed:
 
 {{< tweet 877500564405444608 >}}
