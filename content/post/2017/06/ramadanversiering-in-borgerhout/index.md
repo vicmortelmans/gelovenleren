@@ -22,7 +22,7 @@ tags:
   #- "films"
   #- "bijbel"
   #- "woke"
-  #- "antwerpen"
+  - "antwerpen"
   #- "publicaties"
   - "kerstmis"
   #- "pasen"
