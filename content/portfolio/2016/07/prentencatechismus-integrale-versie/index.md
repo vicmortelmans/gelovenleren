@@ -13,8 +13,6 @@ De Prentencatechismus uit het begin van de XXe eeuw bevat [zeventig rijkelijk g
 
 De bijhorende teksten van de Prentencatechismus zijn overgenomen uit de oorspronkelijke Nederlandse vertaling en herschreven naar hedendaagse Nederlandse taalvormen. De publicatie is aangevuld met verwijzingen naar online publicaties van de [Catechismus van de Katholieke Kerk](http://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=1) (1997), het [Compendium van de Catechismus van de Katholieke Kerk](http://www.rkdocumenten.nl/rkdocs/index.php?mi=600&doc=663) (2005) en de [Willibrordvertaling](http://www.bijbel.net/) van de Bijbel (1995).
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/prentencatechismus.compressed)
-
-[Afdruk bestellen](https://www.peecho.com/print/en/11175)
+[Afdruk bestellen](https://www.boekenbestellen.nl/boek/prentencatechismus)
 
 Het boek is volledig gedigitaliseerd en gepubliceerd op de website [prentencatechismus.org](http://prentencatechismus.org/inhoud/)

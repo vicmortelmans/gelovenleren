@@ -13,9 +13,7 @@ Kindercatechismus "Luistert naar Hem" uit 1949
 
 [![Download PDF](images/2bdd26a893f94f1d69b5a89ee751a599.jpg)](https://storage.googleapis.com/geloven-leren/printerboekjes/Luistert-naar-hem5.pdf) Hoge resolutie (350 MB)
 
-[Afdruk bestellen](https://www.peecho.com/print/en/227242)
-
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/luistert-naar-hem5-display)
+[Afdruk bestellen](https://www.boekenbestellen.nl/boek/luistert-naar-hem)
 
 Het volledige boek is gedititaliseerd en gepubliceerd op de website [prentencatechismus.org](http://prentencatechismus.org/inhoud-luistert-naar-hem/).
 
