@@ -46,7 +46,7 @@ Ik vond het al merkwaardig dat dit stukje verwees naar het lijdensverhaal! Even 
 
 Als toevalligheid kan dat al tellen, maar er is meer!
 
-Deze Palmzondag trok onze parochie uit in processie. Van de Heilig-Hartkerk in de Lange Beeldekensstraat, waar we de palmtakken wijdden, gingen we in processie naar de Sint-Willibrorduskerk om de Heilige Mis te vieren. Het was volgens de voorzitter van onze Kerkfabriek 50 jaar geleden dat er in Antwerpen-Noord nog een processie was uitgegaan. Zo lang waren de schapen van de kudde, geslagen door het postconciliaire zwaard, verstrooid en durfden ze, net zoals de leerlingen van Jezus na zijn gevangenname, zich niet meer in zijn nabijheid in het openbaar durfden vertonen.
+Deze Palmzondag trok onze parochie uit in processie. Van de Heilig-Hartkerk in de Lange Beeldekensstraat, waar we de palmtakken wijdden, gingen we in processie naar de Sint-Willibrorduskerk om de Heilige Mis te vieren. Het was volgens de voorzitter van onze Kerkfabriek 50 jaar geleden dat er in Antwerpen-Noord nog een processie was uitgegaan. Zo lang waren de schapen van de kudde, geslagen door het postconciliaire zwaard, verstrooid en durfden ze, net zoals de leerlingen van Jezus na zijn gevangenname, zich niet meer in zijn nabijheid in het openbaar vertonen.
 
 Een heftig profetische wende, mij persoonlijk geopenbaard door twee passages uit teksten die als bij wonder als puzzelstukjes in mekaar vielen!
 
