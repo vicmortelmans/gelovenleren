@@ -8,6 +8,16 @@ Figure:
 
 {{< figure src="images/seeger.png" >}}
 
+Full width figure:
+
+{{< figure
+  src="images/DeepL-vs-Google.png"
+  type="full"
+  caption="Vergelijking van de vertaling door DeepL vs. Google Translate"
+  link="images/DeepL-vs-Google.png"
+ >}}
+{{< section "end" >}}
+
 Twitter embed:
 
 {{< tweet 877500564405444608 >}}
