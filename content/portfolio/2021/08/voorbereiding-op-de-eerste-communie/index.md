@@ -7,7 +7,7 @@ categories:
 coverImage: "Mijn-Eerste-Communie.png"
 ---
 
-De website www.eerstecommunie.net is een online interactieve lessenreeks als voorbereiding op de eerste communie.
+De website eerstecommunie.gelovenleren.net is een online interactieve lessenreeks als voorbereiding op de eerste communie.
 
 <!--more-->
 
