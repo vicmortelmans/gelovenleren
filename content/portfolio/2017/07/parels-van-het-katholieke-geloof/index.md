@@ -11,6 +11,6 @@ _Parels van het Katholieke Geloof_ is een boek dat in veertien korte hoofdstukke
 
 [Afdruk bestellen](https://www.peecho.com/print/en/307401)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/plus)
+[Preview](https://storage.googleapis.com/geloven-leren/printerboekjes/Parels-van-het-katholieke-geloof-preview.pdf)
 
 De publicaties zijn gebundeld in een boek dat te verkrijgen is via de website [parels.gelovenleren.net](http://parels.gelovenleren.net/).

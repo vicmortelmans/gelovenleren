@@ -36,8 +36,6 @@ Er is een versie van het boekje mét afbeeldingen (32 blz) en een versie zonder 
 
 [Afdruk bestellen](https://www.peecho.com/print/en/255516)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/lof)
-
 ### Versie zonder afbeeldingen (16 blz)
 
 [![Lof zonder afbeeldingen op A5](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](https://storage.googleapis.com/geloven-leren/printerboekjes/lof-kort-a5.pdf) Afdrukken als boekje (~A5)
@@ -47,5 +45,3 @@ Er is een versie van het boekje mét afbeeldingen (32 blz) en een versie zonder 
 [![Lof zonder afbeeldingen als PDF](images/2bdd26a893f94f1d69b5a89ee751a599-150x150.jpg)](https://storage.googleapis.com/geloven-leren/printerboekjes/lof-kort.pdf) Lezen op je scherm
 
 [Afdruk bestellen](https://www.peecho.com/print/en/255515)
-
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/lof-kort)

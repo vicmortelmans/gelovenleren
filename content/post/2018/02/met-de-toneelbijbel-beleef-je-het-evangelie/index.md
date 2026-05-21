@@ -78,4 +78,4 @@ Dit zijn de gebeurtenissen die je met De Toneelbijbel kan beleven:
 - De Emmaüsgangers en de Ongelovige Thomas
 - De Belofte van Petrus en de Hemelvaart
 
-https://issuu.com/vicmortelmans/docs/bijbeltoneel2
+https://storage.googleapis.com/geloven-leren/toneel/De-Toneelbijbel-preview.pdf

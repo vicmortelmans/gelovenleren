@@ -15,4 +15,3 @@ Een voorbereidingsboekje voor moeder
 
 [Afdruk bestellen](https://www.peecho.com/print/en/507871)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/eerstecommunie-boek)

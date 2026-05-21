@@ -15,7 +15,7 @@ De toneelbewerking van het Evangelie is niet bedoeld om uit te voeren voor groot
 
 [Bezoek de website voor meer informatie.](http://toneelbijbel.gelovenleren.net/)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/bijbeltoneel2)
+[Preview](https://storage.googleapis.com/geloven-leren/toneel/De-Toneelbijbel-preview.pdf)
 
 [Afdruk bestellen](https://www.peecho.com/print/en/365249)
 

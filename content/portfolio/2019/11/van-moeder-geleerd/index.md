@@ -13,4 +13,3 @@ Eerste godsdienstonderricht
 
 [Afdruk bestellen](https://www.peecho.com/checkout/geloven-leren/610464/van-moeder-geleerd-eerste-godsdienstonderricht)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/vanmoedergeleerd-ocr-with-cover)

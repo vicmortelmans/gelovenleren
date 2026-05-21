@@ -15,4 +15,3 @@ Grondige voorbereiding voor de biecht
 
 [Afdruk bestellen](https://www.peecho.com/print/en/507781)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/punten)

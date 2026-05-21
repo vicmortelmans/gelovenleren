@@ -33,4 +33,4 @@ tags:
   #- "synode"
 ---
 
-Een klein [boekje](http://issuu.com/vicmortelmans/docs/katholiekegebeden) met avondgebedjes,  dat je ook krijgt als [katern](http://issuu.com/vicmortelmans/docs/katholiekegebeden-boekje): recto-verso afdrukken, drie keer plooien, de vouwen met een mes opensnijden, eventueel nieten en klaar is kees.
+Een klein [boekje](https://storage.googleapis.com/geloven-leren/printerboekjes/Katholieke%20Avondgebeden.pdf) met avondgebedjes,  dat je ook krijgt als [katern](https://storage.googleapis.com/geloven-leren/printerboekjes/katholiekegebedena6.pdf): recto-verso afdrukken, drie keer plooien, de vouwen met een mes opensnijden, eventueel nieten en klaar is kees.

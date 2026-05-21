@@ -13,7 +13,7 @@ Heruitgave van "Beknopte verklaring van den Mechelse Catechismus ten gebruike va
 
 [Afdruk bestellen](https://www.boekenbestellen.nl/boek/mechelse-catechismus-ten-gebruike-van-het-middelbaar-onderwijs)
 
-[Preview op Issuu](https://issuu.com/vicmortelmans/docs/mechelse-catechismus-1623)
+[Download PDF](https://storage.googleapis.com/geloven-leren/printerboekjes/mechelse-catechismus-1623.pdf)
 
 De volledige inhoud is gedigitaliseerd en gepubliceerd op de website [mechelse.gelovenleren.net](https://mechelse.gelovenleren.net/)
 .

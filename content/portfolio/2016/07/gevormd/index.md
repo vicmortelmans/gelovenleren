@@ -17,4 +17,3 @@ coverImage: "Flammable_liquid.png"
 
 Het boekje kan je gratis downloaden als PDF, in een formaat dat je op een gewone printer kan afdrukken om er zelf een mooi boekje van te maken, of je kan het (aan kostprijs) bestellen bij de drukker.
 
-[Preview](https://issuu.com/vicmortelmans/docs/vormsel)
