@@ -41,3 +41,5 @@ Net zoals de website, bevatten deze uitgaves **geen integrale boeken**, veel *qu
 Wegens een technische slordigheid ontbraken echter in de gedrukte versies een heel aantal *quæstiones* die wel gewoon op de website beschikbaar waren. *Mea culpa*, dit is intussen rechtgezet en op de [pagina](https://summa.gelovenleren.net/about.html) waar de boeken besteld kunnen worden, kan je nu ook de PDF downloaden, zodat je weet wat je krijgt!
 
 Wacht echter misschien nog even met massaal de nieuwe versie te bestellen, want de voorzienigheid heeft een nieuwe vrijwilliger in beeld gebracht, dus kortelings worden de Nederlandse teksten wellicht verder aangevuld!
+
+**AANVULLING juni 2026:** De Nederlandse teksten zijn intussen volledig gepubliceerd op de website en in druk beschikbaar: https://gelovenleren.net/blog/volledige-onvolledige-nederlandstalige-summa-theologiae-in-druk-beschikbaar/

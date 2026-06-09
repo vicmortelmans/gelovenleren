@@ -40,4 +40,4 @@ Je kan dit boek [hier](https://www.boekenbestellen.nl/boek/summa-theologiae/6747
 
 De teksten zijn nog lang niet volledig, maar zelfs voor het verwerken van één *quaestio* of enkele *articuli* kan je je [aanmelden](mailto:info@gelovenleren.net) als vrijwilliger! Het overzicht van van wat er nog te doen staat, vind je op de [website](https://summa.gelovenleren.net/about.html).
 
-
+**AANVULLING juni 2026:** De Nederlandse teksten zijn intussen volledig gepubliceerd op de website en in druk beschikbaar: https://gelovenleren.net/blog/volledige-onvolledige-nederlandstalige-summa-theologiae-in-druk-beschikbaar/

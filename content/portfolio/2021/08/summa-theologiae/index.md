@@ -7,7 +7,7 @@ categories:
 coverImage: "theologischesumma-700x449.png"
 ---
 
-De Nederlandse vertaling van de Summa Theologiae van Sint Thomas van Aquino is (gedeeltelijk) online gepubliceerd op een website.
+De (gedeeltelijke) Nederlandse vertaling uit 1933 van de Summa Theologiae van Sint Thomas van Aquino is online gepubliceerd op een website.
 
 <!--more-->
 

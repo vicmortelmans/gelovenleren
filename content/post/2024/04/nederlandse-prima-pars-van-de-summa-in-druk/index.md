@@ -43,3 +43,5 @@ Ondertussen is de beschikbare inhoud substantieel genoeg om het omgekeerde proce
 Zoals geldt voor al het materiaal dat vanuit deze blog te bestellen is, dekt de kostprijs enkel de druk- en verzendingskosten af!
 
 Belangrijke kanttekening: deze publicatie betreft slechts een deel van de oorspronkelijke Nederlandse uitgave, die op haar beurt slechts een deel van Thomas' werk betrof!
+
+**AANVULLING juni 2026:** De Nederlandse teksten zijn intussen volledig gepubliceerd op de website en in druk beschikbaar: https://gelovenleren.net/blog/volledige-onvolledige-nederlandstalige-summa-theologiae-in-druk-beschikbaar/
