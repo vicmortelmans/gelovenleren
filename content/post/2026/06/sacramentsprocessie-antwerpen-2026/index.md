@@ -59,3 +59,10 @@ Het klopt dat de oude Sint-Willibrorduskerk tot het einde van de 19de eeuw een a
 {{<figure src="images/klappeistraat-2026.png" caption="2026" >}}
 
 {{<figure src="images/klappeijstraat-oosterhout.jpg" caption="Klappeijstraat in Oosterhout, met in de achtergrond de kerk" >}}
+
+--
+
+**Update 12 juni** De processie van de Hemelstraat is toch doorgegaan, blijkens dit mooie videoverslag:
+
+{{< youtube iICVLz4Fd-A >}}
+
