@@ -62,6 +62,12 @@ Het klopt dat de oude Sint-Willibrorduskerk tot het einde van de 19de eeuw een a
 
 --
 
+**Update 25 juli** Tijdens de sacramentsprocessie vanuit de Sint-Jacobskerk, nam ik deze foto, bij het opstellen van de processie. Het treffende opschrift op het gebouw tegenover de kerk, merkte ik zelf pas op na ontwikkeling van het negatief ;)
+
+{{<figure src="images/sacramentsprocessie-antwerpen-2026.jpg" caption="Tot één manier van zijn" >}}
+
+--
+
 **Update 12 juni** De processie van de Hemelstraat is toch doorgegaan, blijkens dit mooie videoverslag:
 
 {{< youtube iICVLz4Fd-A >}}
